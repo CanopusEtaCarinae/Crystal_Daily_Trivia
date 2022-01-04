@@ -14,7 +14,7 @@ Priscilla Barielle's real name is Prisca Benedict. She's one of the children of 
 
 （红莲的残影）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -27,7 +27,7 @@ It seems that Reinhard deleted this D.P. from himself.
 
 （Once Upon a Time in Lugunica）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -45,7 +45,7 @@ https://cdn.discordapp.com/attachments/779596494860058635/793100930903179264/unk
 https://cdn.discordapp.com/attachments/779596494860058635/793101001527525386/unknown.png
 </details>
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -57,7 +57,7 @@ Reisel failed and as a result was transformed into something inhuman.
 
 （Kararagi Girl & Cats' Eye）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -67,7 +67,7 @@ Roswaal J. Mathers died young, protecting her friend Carol Remendis from the bla
 
 （剑鬼战歌）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -79,7 +79,7 @@ One of these is the Od Lagna, which is responsible for giving Divine Protections
 
 （剑鬼战歌）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -91,7 +91,7 @@ Tappei has mentioned that Frederica's time to shine will be Arc 11, so she may b
 
 （Golden Siblings，18年芙蕾生日）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -105,7 +105,7 @@ Character limit didn't let me include this tidbit, but she's controlling a horde
 
 （傲慢与偏见与僵尸）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -117,7 +117,7 @@ Of those we do, we have the Yang Sword, the Dragon Sword Reid, the Fiend Sword M
 
 https://twitter.com/nezumiironyanko/status/965199179826970626
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
 
@@ -129,6 +129,6 @@ In "Pride, Prejudice and Zombies" Yae seemingly assassinated Priscilla but her d
 
 （傲慢与偏见与僵尸）
 
-[Reture to Content](#Content)
+[Return to Content](#Content)
 
 ---
