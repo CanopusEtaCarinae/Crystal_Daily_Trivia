@@ -121,7 +121,7 @@ https://twitter.com/nezumiironyanko/status/965199179826970626
 
 ---
 
-[Re: Zero Daily Trivia #10](https://twitter.com/LoremIpsumVerb/status/1269597688343023619)
+#### [Re: Zero Daily Trivia #10](https://twitter.com/LoremIpsumVerb/status/1269597688343023619)
 
 Yae Tenzen was a maid that worked for the Barielle household that came under Priscilla's command when Leip died.
 
