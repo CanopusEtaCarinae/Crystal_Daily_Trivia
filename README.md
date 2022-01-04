@@ -1,6 +1,10 @@
-# Crystal's Daily Trivia
+# Crystal's Daily Trivias
 
 Credit: [Ice](https://twitter.com/LoremIpsumVerb)
+
+### Content
+
+[1](#re-zero-daily-trivia-1)
 
 
 #### [Re: Zero Daily Trivia #1](https://twitter.com/LoremIpsumVerb/status/1266327774425427968)
@@ -8,6 +12,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)
 Priscilla Barielle's real name is Prisca Benedict. She's one of the children of Drizen Vollachia, 76th Vollachian Emperor. She lost the Imperial Selection due to her bodyguard Arrachia's lack of faith in her, resulting in her death being faked.
 
 （红莲的残影）
+
+[Reture to Content](#Content)
 
 ---
 
@@ -19,6 +25,8 @@ Reinhard had the Divine Protection of Mind-Changing when he was four. This D.P. 
 It seems that Reinhard deleted this D.P. from himself.
 
 （Once Upon a Time in Lugunica）
+
+[Reture to Content](#Content)
 
 ---
 
@@ -36,6 +44,8 @@ https://cdn.discordapp.com/attachments/779596494860058635/793100930903179264/unk
 https://cdn.discordapp.com/attachments/779596494860058635/793101001527525386/unknown.png
 </details>
 
+[Reture to Content](#Content)
+
 ---
 
 #### [Re: Zero Daily Trivia #4](https://twitter.com/LoremIpsumVerb/status/1267404813614153734)
@@ -46,6 +56,8 @@ Reisel failed and as a result was transformed into something inhuman.
 
 （Kararagi Girl & Cats' Eye）
 
+[Reture to Content](#Content)
+
 ---
 
 #### [Re: Zero Daily Trivia #5](https://twitter.com/LoremIpsumVerb/status/1267765868467048449)
@@ -54,4 +66,6 @@ Roswaal J. Mathers died young, protecting her friend Carol Remendis from the bla
 
 （剑鬼战歌）
 
+[Reture to Content](#Content)
 
+---
