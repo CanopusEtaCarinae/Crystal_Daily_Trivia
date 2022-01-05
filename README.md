@@ -4,7 +4,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)
 
 ### Content
 
-[1](#re-zero-daily-trivia-1)
+[1](#re-zero-daily-trivia-1) &ensp; [11](#re-zero-daily-trivia-11)
 
 ---
 
@@ -128,6 +128,66 @@ Yae Tenzen was a maid that worked for the Barielle household that came under Pri
 In "Pride, Prejudice and Zombies" Yae seemingly assassinated Priscilla but her death was seemingly reversed by Al, who then defeated Yae.
 
 （傲慢与偏见与僵尸）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #11](https://twitter.com/LoremIpsumVerb/status/1269956236684021760)
+
+Volume 21 changed the way Subaru and his group broke through Sand Time. In the Light Novel, Ram used her Clairvoyance to share in one of the mysterious birds' senses so that they could follow it to a breach point.
+
+（21卷文库改动）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #12](https://twitter.com/LoremIpsumVerb/status/1270311209322139651)
+
+Between Arc 4-5, Subaru, Otto and Garfiel all cross-dress to accompany Roswaal to a party organised by Gwain Merette.
+
+They are known by their alter-egos Natsumi Schwartz, Audrey Souffle and Garnet Thuram. Audrey is the one that is hit on the most.
+
+（三马鹿女神像篇）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #13](https://twitter.com/LoremIpsumVerb/status/1270688728579575811)
+
+Clind, the mysterious Butler that works for Roswaal, has been with Roswaal since the beginning. Thus he too numbers in at over 400 years of age.
+
+Clind has shown strange, yet potent combat abilities throughout the story despite being a "simple" Butler.
+
+（18年骡子生日，Golden Siblings）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #14](https://twitter.com/LoremIpsumVerb/status/1271020685557719041)
+
+After leaving the Sanctuary, Omega nearly drowned trying to drink water from a river. She washed up by a cabin owned by a girl called Colette.
+
+After some unfortunate events, Omega found herself with Colette and her friend Palmyra as travel companions.
+
+（魔女的条件）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #15](https://twitter.com/LoremIpsumVerb/status/1271405121499430912)
+
+Melakuera was originally a Minute Spirit born of a bonfire tended by the youngest of a family of travelers.
+
+The boy would pray to the fire for peace; on his death, the Spirit grew a sense of self and became the Arbitrator for the world for his friend.
+
+Once again the Twitter char limit made me cut out a bunch of details. For example, Melakuera was initially the name of said boy. Melakuera took his name on his death. Also, he became the Arbitrator specifically to uphold his friend's prayers for peace and tranquility.
+
+（冰结）
 
 [Return to Content](#Content)
 
