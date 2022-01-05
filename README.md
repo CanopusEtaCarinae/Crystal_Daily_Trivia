@@ -327,7 +327,7 @@ The flooding system was designed as a trap to kill Witches, Witchbeasts and the 
 
 ---
 
-[Re: Zero Daily Trivia #25](https://twitter.com/LoremIpsumVerb/status/1275033911853289473)
+#### [Re: Zero Daily Trivia #25](https://twitter.com/LoremIpsumVerb/status/1275033911853289473)
 
 Felt is all but confirmed to be the "lost" child of Ford Lugunica. She sometimes dreams of the scene from her infancy where Ford handed her over to Rom's care.
 
