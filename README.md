@@ -340,7 +340,7 @@ As well as that, she found out in Arc Five that Felt was not her real name.
 
 ---
 
-####[Re: Zero Daily Trivia #26](https://twitter.com/LoremIpsumVerb/status/1275388786810195970)
+#### [Re: Zero Daily Trivia #26](https://twitter.com/LoremIpsumVerb/status/1275388786810195970)
 
 Though Farsale Lugunica is known to have made the covenant with the Divine Dragon Volcanica, what is often not mentioned is that there was a shrine maiden present as well who spoke to the Dragon.
 
@@ -351,7 +351,7 @@ Though Farsale Lugunica is known to have made the covenant with the Divine Drago
 
 ---
 
-####[Re: Zero Daily Trivia #27](https://twitter.com/LoremIpsumVerb/status/1275766505859407873)
+#### [Re: Zero Daily Trivia #27](https://twitter.com/LoremIpsumVerb/status/1275766505859407873)
 
 There are many tales about the Dragon Sword Reid and its vast superiority over other swords.
 
@@ -364,7 +364,7 @@ Amongst them, it's said that a nameless smith forged the sword, and the Sword Go
 
 ---
 
-####[Re: Zero Daily Trivia #28](https://twitter.com/LoremIpsumVerb/status/1276124675555364866)
+#### [Re: Zero Daily Trivia #28](https://twitter.com/LoremIpsumVerb/status/1276124675555364866)
 
 In Volume 23, Subaru did not go down to the Sixth Floor in the Tower of the Dead Loop to grab his knife. Instead he picked up the broken Knight's Sword Julius carried from his corpse and used that instead to stab Patrasche with later.
 
@@ -375,7 +375,7 @@ In Volume 23, Subaru did not go down to the Sixth Floor in the Tower of the Dead
 
 ---
 
-####[Re: Zero Daily Trivia #29](https://twitter.com/LoremIpsumVerb/status/1276456142043066368)
+#### [Re: Zero Daily Trivia #29](https://twitter.com/LoremIpsumVerb/status/1276456142043066368)
 
 In a conversation between Felt and Sirius (as they escort her to the Royal Capital), the latter revealed that her hometown had been destroyed by a Witch Hunt when she was younger.
 
@@ -388,7 +388,7 @@ It's also unknown why Sirius' Authority seems to have no effect on Felt.
 
 ---
 
-####[Re: Zero Daily Trivia #30](https://twitter.com/LoremIpsumVerb/status/1276824442396651520)
+#### [Re: Zero Daily Trivia #30](https://twitter.com/LoremIpsumVerb/status/1276824442396651520)
 
 Leip was conspiring with Sphinx before his untimely death to turn Priscilla into a puppet which he could control. However, he tried to accelerate his plan despite Sphinx recommending it unwise, and ultimately it backfired on him.
 
