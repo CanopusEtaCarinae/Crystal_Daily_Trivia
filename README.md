@@ -1,10 +1,10 @@
 # Crystal's Daily Trivias
 
-Credit: [Ice](https://twitter.com/LoremIpsumVerb)
+Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) &ensp; [11-20](#re-zero-daily-trivia-11)
+[1-10](#re-zero-daily-trivia-1)(20-06) &ensp; [11-20](#re-zero-daily-trivia-11)
 
 ---
 
@@ -188,6 +188,64 @@ The boy would pray to the fire for peace; on his death, the Spirit grew a sense 
 Once again the Twitter char limit made me cut out a bunch of details. For example, Melakuera was initially the name of said boy. Melakuera took his name on his death. Also, he became the Arbitrator specifically to uphold his friend's prayers for peace and tranquility.
 
 （冰结）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #16](https://twitter.com/LoremIpsumVerb/status/1271764426291625984)
+
+The Holy Kingdom of Gusteko has a group called the Acolyte Knights in place that serve as the Church's fighting force. Acolyte Knights will receiving a "Blessing" granting them a kind of immortality; one which Elsa also possessed despite not being one.
+
+（赤雪）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #17](https://twitter.com/LoremIpsumVerb/status/1272136835360268289)
+
+The "Stone" Muspel is one of the 4 Great Spirits in Re: Zero, said to roam freely within the Vollachian Empire
+
+Over 7 years ago, Arrachia used her Spirit Eating powers to take in its power. It's unknown what happened to Muspel after as a result of that
+
+（红莲的残影）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #18](https://twitter.com/LoremIpsumVerb/status/1272523643734687751)
+
+Echidna created only three Artificial Spirits, with the rest of her attempts ending up as failures.
+
+The first one she created was Puck, then Eridna and finally Beatrice was last.
+
+（zeropedia，21卷蜜瓜）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #19](https://twitter.com/LoremIpsumVerb/status/1272842263555649537)
+
+Ricardo lost his right arm from the elbow down in Arc 5 during his fight against Roi Alphard. The reason it couldn't be reattached by Felix was because they couldn't find it when they searched for it.
+
+Thus he was fitted with a prosthetic hook instead.
+
+（五章，水门复兴日志）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #20](https://twitter.com/LoremIpsumVerb/status/1273215131858673664)
+
+Melinda, Stride's wife, was one of the last survivors of the Evil Eye Tribe which fearing their unnatural powers had been wiped out by the Empire.
+
+Melinda took solace in Stride's destruction wish, glad that her husband found her cursed Evil Eyes useful
+
+（剑鬼战歌）
 
 [Return to Content](#Content)
 
