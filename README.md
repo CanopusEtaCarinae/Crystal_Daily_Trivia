@@ -4,6 +4,11 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。
 
+<details>
+<summary>【出处待完善】</summary>
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23)
+</details>
+
 ### Content
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21)
