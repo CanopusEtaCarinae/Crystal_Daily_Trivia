@@ -24,6 +24,8 @@ Priscilla Barielle's real name is Prisca Benedict. She's one of the children of 
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #2](https://twitter.com/LoremIpsumVerb/status/1266678591145881600)
@@ -36,6 +38,8 @@ It seems that Reinhard deleted this D.P. from himself.
 （Once Upon a Time in Lugunica）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -55,6 +59,8 @@ https://cdn.discordapp.com/attachments/779596494860058635/793101001527525386/unk
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #4](https://twitter.com/LoremIpsumVerb/status/1267404813614153734)
@@ -67,6 +73,8 @@ Reisel failed and as a result was transformed into something inhuman.
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #5](https://twitter.com/LoremIpsumVerb/status/1267765868467048449)
@@ -76,6 +84,8 @@ Roswaal J. Mathers died young, protecting her friend Carol Remendis from the bla
 （剑鬼战歌）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -89,6 +99,8 @@ One of these is the Od Lagna, which is responsible for giving Divine Protections
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #7](https://twitter.com/LoremIpsumVerb/status/1268484550251905026)
@@ -100,6 +112,8 @@ Tappei has mentioned that Frederica's time to shine will be Arc 11, so she may b
 （Golden Siblings，18年芙蕾生日）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -115,6 +129,8 @@ Character limit didn't let me include this tidbit, but she's controlling a horde
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #9](https://twitter.com/LoremIpsumVerb/status/1269239338522611712)
@@ -126,6 +142,8 @@ Of those we do, we have the Yang Sword, the Dragon Sword Reid, the Fiend Sword M
 https://twitter.com/nezumiironyanko/status/965199179826970626
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -139,6 +157,8 @@ In "Pride, Prejudice and Zombies" Yae seemingly assassinated Priscilla but her d
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #11](https://twitter.com/LoremIpsumVerb/status/1269956236684021760)
@@ -148,6 +168,8 @@ Volume 21 changed the way Subaru and his group broke through Sand Time. In the L
 （21卷文库改动）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -161,6 +183,8 @@ They are known by their alter-egos Natsumi Schwartz, Audrey Souffle and Garnet T
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #13](https://twitter.com/LoremIpsumVerb/status/1270688728579575811)
@@ -173,6 +197,8 @@ Clind has shown strange, yet potent combat abilities throughout the story despit
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #14](https://twitter.com/LoremIpsumVerb/status/1271020685557719041)
@@ -184,6 +210,8 @@ After some unfortunate events, Omega found herself with Colette and her friend P
 （魔女的条件）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -199,6 +227,8 @@ Once again the Twitter char limit made me cut out a bunch of details. For exampl
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #16](https://twitter.com/LoremIpsumVerb/status/1271764426291625984)
@@ -208,6 +238,8 @@ The Holy Kingdom of Gusteko has a group called the Acolyte Knights in place that
 （赤雪）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -221,6 +253,8 @@ Over 7 years ago, Arrachia used her Spirit Eating powers to take in its power. I
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #18](https://twitter.com/LoremIpsumVerb/status/1272523643734687751)
@@ -232,6 +266,8 @@ The first one she created was Puck, then Eridna and finally Beatrice was last.
 （zeropedia，21卷蜜瓜）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -245,6 +281,8 @@ Thus he was fitted with a prosthetic hook instead.
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #20](https://twitter.com/LoremIpsumVerb/status/1273215131858673664)
@@ -257,6 +295,8 @@ Melinda took solace in Stride's destruction wish, glad that her husband found he
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #21](https://twitter.com/LoremIpsumVerb/status/1273581325463818241)
@@ -267,6 +307,8 @@ Use of the the Dragon's Blood during the epidemic that killed off the Royal Fami
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #22](https://twitter.com/LoremIpsumVerb/status/1273945770815823872)
@@ -276,6 +318,8 @@ There exist other smaller countries in the world of Re Zero, but they typically 
 （放弃追随者之日）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
 
@@ -289,6 +333,8 @@ This time around it was Scarfdona asking Subaru what the word "Parallel World" m
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 #### [Re: Zero Daily Trivia #24](https://twitter.com/LoremIpsumVerb/status/1274665372185235456)
@@ -301,6 +347,8 @@ The flooding system was designed as a trap to kill Witches, Witchbeasts and the 
 
 [Return to Content](#Content)
 
+[Return to top](#crystals-daily-trivias)
+
 ---
 
 [Re: Zero Daily Trivia #25](https://twitter.com/LoremIpsumVerb/status/1275033911853289473)
@@ -312,5 +360,7 @@ As well as that, she found out in Arc Five that Felt was not her real name.
 （菲鲁待酱从零开始的王选生活；五章暴食战）
 
 [Return to Content](#Content)
+
+[Return to top](#crystals-daily-trivias)
 
 ---
