@@ -6,6 +6,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 <details>
 <summary>【出处待完善】</summary>
+
 [21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23)
 </details>
 
