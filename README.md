@@ -4,7 +4,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)
 
 ### Content
 
-[1](#re-zero-daily-trivia-1) &ensp; [11](#re-zero-daily-trivia-11)
+[1-10](#re-zero-daily-trivia-1) &ensp; [11-20](#re-zero-daily-trivia-11)
 
 ---
 
