@@ -2,9 +2,11 @@
 
 Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
+部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。
+
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21)
 
 ---
 
@@ -246,6 +248,62 @@ Melinda, Stride's wife, was one of the last survivors of the Evil Eye Tribe whic
 Melinda took solace in Stride's destruction wish, glad that her husband found her cursed Evil Eyes useful
 
 （剑鬼战歌）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #21](https://twitter.com/LoremIpsumVerb/status/1273581325463818241)
+
+Use of the the Dragon's Blood during the epidemic that killed off the Royal Family was prohibited due to there having been cases in the past where using it on people had led to big problems.
+
+【出处不确定，龙血用在人身上出大问题的案例在哪里有提及确实想不起来……此trivia发于2020-06-18，六章还未完结】
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #22](https://twitter.com/LoremIpsumVerb/status/1273945770815823872)
+
+There exist other smaller countries in the world of Re Zero, but they typically always hold the position of being vassal states to one of the four great countries.
+
+（放弃追随者之日）
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #23](https://twitter.com/LoremIpsumVerb/status/1274314073237336066)
+
+For a second time in a row, a discussion around an Echidna talking about "Parallel Worlds" has been cut from the Light Novel Version.
+
+This time around it was Scarfdona asking Subaru what the word "Parallel World" meant that was cut from Volume 23.
+
+【第二次异世界话题被删是23卷改动，第一次是哪我也一时想不起……】
+
+[Return to Content](#Content)
+
+---
+
+#### [Re: Zero Daily Trivia #24](https://twitter.com/LoremIpsumVerb/status/1274665372185235456)
+
+Pristella was a city which was designed by Hoshin of the Wastelands over 400 years ago. The city is shaped like a bowl with an intricate Watergate mechanism in place.
+
+The flooding system was designed as a trap to kill Witches, Witchbeasts and the sort
+
+（文库17 18卷）
+
+[Return to Content](#Content)
+
+---
+
+[Re: Zero Daily Trivia #25](https://twitter.com/LoremIpsumVerb/status/1275033911853289473)
+
+Felt is all but confirmed to be the "lost" child of Ford Lugunica. She sometimes dreams of the scene from her infancy where Ford handed her over to Rom's care.
+
+As well as that, she found out in Arc Five that Felt was not her real name.
+
+（菲鲁待酱从零开始的王选生活；五章暴食战）
 
 [Return to Content](#Content)
 
