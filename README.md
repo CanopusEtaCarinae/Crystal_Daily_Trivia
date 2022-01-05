@@ -22,8 +22,7 @@ Priscilla Barielle's real name is Prisca Benedict. She's one of the children of 
 
 （红莲的残影）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -37,8 +36,7 @@ It seems that Reinhard deleted this D.P. from himself.
 
 （Once Upon a Time in Lugunica）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -57,8 +55,7 @@ https://cdn.discordapp.com/attachments/779596494860058635/793100930903179264/unk
 https://cdn.discordapp.com/attachments/779596494860058635/793101001527525386/unknown.png
 </details>
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -71,8 +68,7 @@ Reisel failed and as a result was transformed into something inhuman.
 
 （Kararagi Girl & Cats' Eye）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -83,8 +79,7 @@ Roswaal J. Mathers died young, protecting her friend Carol Remendis from the bla
 
 （剑鬼战歌）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -97,8 +92,7 @@ One of these is the Od Lagna, which is responsible for giving Divine Protections
 
 （剑鬼战歌）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -111,8 +105,7 @@ Tappei has mentioned that Frederica's time to shine will be Arc 11, so she may b
 
 （Golden Siblings，18年芙蕾生日）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -127,8 +120,7 @@ Character limit didn't let me include this tidbit, but she's controlling a horde
 
 （傲慢与偏见与僵尸）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -141,8 +133,7 @@ Of those we do, we have the Yang Sword, the Dragon Sword Reid, the Fiend Sword M
 
 https://twitter.com/nezumiironyanko/status/965199179826970626
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -155,8 +146,7 @@ In "Pride, Prejudice and Zombies" Yae seemingly assassinated Priscilla but her d
 
 （傲慢与偏见与僵尸）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -167,8 +157,7 @@ Volume 21 changed the way Subaru and his group broke through Sand Time. In the L
 
 （21卷文库改动）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -181,8 +170,7 @@ They are known by their alter-egos Natsumi Schwartz, Audrey Souffle and Garnet T
 
 （三马鹿女神像篇）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -195,8 +183,7 @@ Clind has shown strange, yet potent combat abilities throughout the story despit
 
 （18年骡子生日，Golden Siblings）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -209,8 +196,7 @@ After some unfortunate events, Omega found herself with Colette and her friend P
 
 （魔女的条件）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -225,8 +211,7 @@ Once again the Twitter char limit made me cut out a bunch of details. For exampl
 
 （冰结）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -237,8 +222,7 @@ The Holy Kingdom of Gusteko has a group called the Acolyte Knights in place that
 
 （赤雪）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -251,8 +235,7 @@ Over 7 years ago, Arrachia used her Spirit Eating powers to take in its power. I
 
 （红莲的残影）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -265,8 +248,7 @@ The first one she created was Puck, then Eridna and finally Beatrice was last.
 
 （zeropedia，21卷蜜瓜）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -279,8 +261,7 @@ Thus he was fitted with a prosthetic hook instead.
 
 （五章，水门复兴日志）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -293,8 +274,7 @@ Melinda took solace in Stride's destruction wish, glad that her husband found he
 
 （剑鬼战歌）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -305,8 +285,7 @@ Use of the the Dragon's Blood during the epidemic that killed off the Royal Fami
 
 【出处不确定，龙血用在人身上出大问题的案例在哪里有提及确实想不起来……此trivia发于2020-06-18，六章还未完结】
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -317,8 +296,7 @@ There exist other smaller countries in the world of Re Zero, but they typically 
 
 （放弃追随者之日）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -331,8 +309,7 @@ This time around it was Scarfdona asking Subaru what the word "Parallel World" m
 
 【第二次异世界话题被删是23卷改动，第一次是哪我也一时想不起……】
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -345,8 +322,7 @@ The flooding system was designed as a trap to kill Witches, Witchbeasts and the 
 
 （文库17 18卷）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
@@ -359,8 +335,7 @@ As well as that, she found out in Arc Five that Felt was not her real name.
 
 （菲鲁待酱从零开始的王选生活；五章暴食战）
 
-[Return to Content](#Content)
-
+[Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
