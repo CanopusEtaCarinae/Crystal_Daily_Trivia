@@ -7,12 +7,12 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33)
 </details>
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07)
 
 ---
 
@@ -61,6 +61,8 @@ https://cdn.discordapp.com/attachments/779596494860058635/793101001527525386/unk
 ---
 
 #### [Re: Zero Daily Trivia #4](https://twitter.com/LoremIpsumVerb/status/1267404813614153734)
+
+(2020-06-01)
 
 Capella seems to be going after legacies that were left behind by the Witches 400 years ago. This was evident nine years ago when she commanded her "Son" Reisel to go after Scarfdona.
 
@@ -393,6 +395,72 @@ It's also unknown why Sirius' Authority seems to have no effect on Felt.
 Leip was conspiring with Sphinx before his untimely death to turn Priscilla into a puppet which he could control. However, he tried to accelerate his plan despite Sphinx recommending it unwise, and ultimately it backfired on him.
 
 【Ex2剑鬼恋歌、放弃追随者之日。不过似乎没有直接性实锤就是Sphinx教莱普把人变傀儡的？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #31](https://twitter.com/LoremIpsumVerb/status/1277206318747713536)
+
+
+Joshua Euculius was eaten by Roi Alphard in Arc 5 after giving a letter to Schult, sensing that something was about to go wrong.
+
+Roi Alphard mentioned that the time promised to Mama was coming near before he ate him, with Mama referring to Capella.
+
+（18卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #32](https://twitter.com/LoremIpsumVerb/status/1277569353660207105)
+
+Sirius said that ever asince her hometown was destroyed all she has attracted is misfortune.
+
+This is evident during her ongoing transfer to the Capital, where they encountered bandits 6 times, a herd of migrating Witchbeasts and a pier breaking on them
+
+（23卷蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #33](https://twitter.com/LoremIpsumVerb/status/1277926660453646336)
+
+If Wilhelm hadn't met Theresia, he would have ended up dying during the Demi-Human War, likely due to his arrogance back then.
+
+【会战死出自2018年剑鬼生日问答，傲慢是否是作者明说不确定】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #34](https://twitter.com/LoremIpsumVerb/status/1278270527585607680)
+
+(2020-07-01)
+
+Despite his lack of sword talent, and his overbearing, overprotective nature, Bertol Astrea was a great man.
+
+He lost his life at the hands of Carol Remendis while she was under the spell of Stride's curse, trying to protect both his wife and daughter.
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #35](https://twitter.com/LoremIpsumVerb/status/1278645987129647105)
+
+Otto has the Divine Protection of Kotodama, a Protection that allows him to speak with all kinds of living creatures.
+
+However, this DP isn't without its problems - a large part of people who've held it are believed to have ended up killing themselves.
+
+（19年奥托生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
