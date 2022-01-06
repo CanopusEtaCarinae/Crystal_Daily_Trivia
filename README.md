@@ -12,7 +12,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41)
 
 ---
 
@@ -559,6 +559,81 @@ Humans weren't always adept at casting or embracing the concept of magic
 Furthermore, Beatrice mentioned that the Gate organ wasn't always there to begin with in humans. That begs the question of how Subaru and Al possessed a Gate after being summoned
 
 （21卷蜜瓜？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #41](https://twitter.com/LoremIpsumVerb/status/1280819844259201025)
+
+Arc 2 of Re Zero wasn't originally planned by the author, however he decided to add it in because he realised that Subaru and Emilia's relationship going from Arc 1 to 3 would be too weak otherwise to make the scene where they quarreled impactful.
+
+（[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #42](https://twitter.com/LoremIpsumVerb/status/1281187853620445184)
+
+Regulus Corneas was the strongest Archbishop in the Witch Cult, and was even stronger than the Witches of Sin of 400 years ago (bar Satella).
+
+In an all out fight between them, Regulus would have come out as the sole survivor according to the author.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：大罪司教ってぶっちゃけ魔女より強くないですか‥‥
+
+A：相性の問題がありますが、同じ大罪同士なら前に五分五分な勝敗という感じで答えました。総力戦なら……最強格が戦い方次第で、どっちが勝つかわからなくなりますが、レグルスが一人勝ちする可能性が高いです。
+</details>
+
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #43](https://twitter.com/LoremIpsumVerb/status/1281535157531541507)
+
+The Eight Arms Kurgan had a rich legacy associated with him, starting with boosting the status of the Multi-Arm Clan by becoming the Empire's Strongest.
+
+However such an individual also had a fatherly side to him, essentially adopting Stride as his son
+
+（20卷，Web五章55，剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #44](https://twitter.com/LoremIpsumVerb/status/1281912364942659584)
+
+Anastasia Hoshin grew up as a nameless orphan when she was young, having to scavenge in the streets of Banan, Kararagi to keep her going.
+
+It was thanks to Ricardo coming across her that she was taken off the streets and introduced to her first job.
+
+（短1、6卷蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #45](https://twitter.com/LoremIpsumVerb/status/1282277265670365184)
+
+Emilia has one of the highest pools of mana available, presumably at her peak, beating even Roswaal and Echidna.
+
+However, since she is still honing her control over her magical talent, at this point in the story her strength is comparable to Priscilla.
+
+
+<details>
+<summary>（18年寡妇生日；ask.fm：）</summary>
+Q：今までに登場したキャラクターで、保持できるマナの量上位10名あげるなら誰ですか?
+
+A：エミリア、ロズワール、エキドナ、テュフォン、カーミラ、ダフネ、フェリス、プリシラ、ミミあたりが多いです。順番つけると後が怖いのでそれはやめよう。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
