@@ -7,7 +7,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39)
 </details>
 
 ### Content
@@ -461,6 +461,105 @@ Otto has the Divine Protection of Kotodama, a Protection that allows him to spea
 However, this DP isn't without its problems - a large part of people who've held it are believed to have ended up killing themselves.
 
 （19年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #36](https://twitter.com/LoremIpsumVerb/status/1279015169172082690)
+
+Priscilla's mansion was attacked by Vollachian assassins after their return from Pristella.
+
+Heinkel was able to defeat seven of them singlehandedly in an attempt to redeem himself to Priscilla for the mistakes he'd made in Arc 5.
+
+（23卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #37](https://twitter.com/LoremIpsumVerb/status/1279348238563381250)
+
+In the ruins that house Typhon's Remains, the Pristella Group encountered some strange writing that Ezzo mentioned was sometimes found in ancient ruins.
+
+Garfiel recognised the writing as the same sort as in Subaru's diary, making the writing Japanese.
+
+（水门复兴日志）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #38](https://twitter.com/LoremIpsumVerb/status/1279728985648312320)
+
+Despite her deviant, cutthroat nature Elsa Granhiert has a hobby for knitting and sewing.
+
+She frequently knitted stuffed dolls for Meili, including one in the semblance of Reinhard; this role would end up being taken over by Subaru after Elsa's death.
+
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+Re: Zero Daily Trivia #39（夏乌拉吃魔兽？）
+
+Witchbeasts are, for the most part, edible creatures, though their taste is so repugnant that it's often the case that you would only eat one in the direst of circumstances.
+
+Meanwhile, that was what Shaula lived on for all of those 400 years.
+
+https://twitter.com/LoremIpsumVerb/status/1280076573622915072
+
+【「魔兽通常可食，但you would only eat one...」此话未找到准确出处。下列问答只能说有接近的部分但都不完全对得上】
+
+<details>
+<summary>【出处待完善】</summary>
+ダフネちゃんは食べるものの量と質（味の良さ）、どちらを大切にしているのでしょう？魔獣とかいう不味そうな生物や大兎みたいな無限増殖、白鯨みたいな巨体を創ったことから考えると量を大事にしているのかな。
+味も大切ですが、基本量です。満腹感を満たすことだけが、ダフネの生き甲斐です。でも、拒食症も併発しているので食べたものをすぐ吐いてしまうこともあります。
+
+三大魔獣でいちばんおいしいのはどれですか？
+大兎が柔らかくて美味しいですが、白鯨は高値で取引されそうです。黒蛇は珍味ですが、毒抜き必須。そこまでして食いたいか
+
+白鯨の唐揚げ、大兎のソテー、黒蛇の黒焼きの中で一番美味しいのはどれですか
+その中なら大兎のソテーだろうけど、ソテーする前に食材にならないように頑張ってね。
+
+白鯨や大兎、黒蛇は普通の人間が食べて美味しいと感じられます？
+おいしいわけがない。「食えればいいや」の精神で作られた生き物だぞ。
+
+大兎は美味しいんじゃないんでしたっけ？
+食った奴がいないからわかんないよ。おいしいんじゃない？的な答えだよ。兎だし。クジラや蛇よりはマシだろう。
+
+くじらさん、うさぎさん、へびさんを作った魔女は何を考えていたんですか？
+おなかすいた
+
+もしかしてダフネってくじらさん、うさぎさん、へびさん食べれるんですか？
+食べれますよ？
+
+へびさんを食べれるということはダフネは病気にならないんですか？
+あれを見ろ。どう見ても病気だ。
+
+ダフネさんなんで兎や鯨食べなかったんですか？
+全部は食べなかっただけです
+
+ダフネさん兎や鯨を全部食べない自制心あったんですね。驚きです。
+そりゃあ、我が子ですもの。子を丸のみする親がいようか。ちゃんとちょっとずつ味わう過程で魔獣が逃げ切りました
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #40](https://twitter.com/LoremIpsumVerb/status/1280474575311179781)
+
+Humans weren't always adept at casting or embracing the concept of magic
+
+Furthermore, Beatrice mentioned that the Gate organ wasn't always there to begin with in humans. That begs the question of how Subaru and Al possessed a Gate after being summoned
+
+（21卷蜜瓜？）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
