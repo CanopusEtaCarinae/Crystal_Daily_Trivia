@@ -505,13 +505,12 @@ She frequently knitted stuffed dolls for Meili, including one in the semblance o
 
 ---
 
-Re: Zero Daily Trivia #39（夏乌拉吃魔兽？）
+#### [Re: Zero Daily Trivia #39](https://twitter.com/LoremIpsumVerb/status/1280076573622915072)
 
 Witchbeasts are, for the most part, edible creatures, though their taste is so repugnant that it's often the case that you would only eat one in the direst of circumstances.
 
 Meanwhile, that was what Shaula lived on for all of those 400 years.
 
-https://twitter.com/LoremIpsumVerb/status/1280076573622915072
 
 【「魔兽通常可食，但you would only eat one...」此话未找到准确出处。下列问答只能说有接近的部分但都不完全对得上】
 
