@@ -1024,4 +1024,17 @@ Note: School swimsuits are worn in Japanese schools, and are often one-pieces.
 
 ---
 
+#### [Re: Zero Daily Trivia #588](https://twitter.com/LoremIpsumVerb/status/1479441484462051330)
+
+In Tappei's alternate-reality story: Re: Zero Academy, Second Period, Clind is described as a "Night Hawk" in contrast to Frederica being described as a "Golden Tiger".
+
+The hawk is well-known in Re: Zero the be a symbol of the Mathers Family.
+
+（学园篇2）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 -->
