@@ -7,7 +7,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69)
 </details>
 
 ### Content
@@ -941,9 +941,74 @@ Furthermore, when asked about what kind of people her parents were, the author d
 
 ---
 
+#### [Re: Zero Daily Trivia #66](https://twitter.com/LoremIpsumVerb/status/1289890562187784197)
+
+Tappei has has mentioned that after Subaru's disappearance from the world, a police investigation was carried out to investigate where he'd gone. However, it turned up no leads. Both Kenichi and Naoko are trying to cope but are passing each day in tears
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：長男のスバル君が異世界に召喚された菜月家は今、どういう状態なのでしょうか。あの夫婦なら異世界まで追っかけてきても不思議ではなさそうです。
+
+A：さすがに長男行方不明は堪えています。警察の捜査も手掛かりなく、賢一も菜穂子を慰めていますがあまり効果がありません。毎日、泣くように過ごしています。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #67](https://twitter.com/LoremIpsumVerb/status/1290238453993504768)
+
+Otto met his friend Marone when they were captured by slave traders near Guineb
+
+After rescuing her, Otto gave her a bag of money to start a new life, claiming he'd gotten it as a reward for stopping the traders. In fact, the money came from his savings
+
+（奥托悲喜行商录）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #68](https://twitter.com/LoremIpsumVerb/status/1290613408509960192)
 
 
 
+Wilhelm was originally only meant to be a simple carriage driver when he debuted; however, due to a fan being interested in his backstory, Tappei developed his character into the "Sword Demon", Wilhelm van Astrea, that we all know and love.
+
+
+（[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #69](https://twitter.com/LoremIpsumVerb/status/1290963670894346241)
+
+The author, Nagatsuki Tappei has mentioned that when he writes from Liliana's point of view, it has the downside that he starts to feel like he's become an idiot.
+
+I am sure all readers can empathise with this when reading her dialogue.
+
+【[fc2的2015年老贼推文记录](http://rezero.wiki.fc2.com/wiki/twitter%E3%81%BE%E3%81%A8%E3%82%81%202015)里记载了这样一条推：「リリアナ喋らせてるせいか、この三日で知能指数がどんどん落ちてる気がする」，但我水平太低推特上没搜到……另外一条更接近的是web感想板上2015年5月1号老贼的一条回复「リリアナ視点で書いてると、自分が馬鹿になった気分になるという欠点があります。」不确定Ice具体使用的出处是哪里】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #70](https://twitter.com/LoremIpsumVerb/status/1291327171831762944)
+
+The Insect Cage Tribe is a tribe that can only be found in Vollachia and consists of people who are half-insect half-human hybrids.
+
+They achieve this hybrid state by sharing Ods with a special "insect" when young, thus merging their souls together.
+
+（帝国外交）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
