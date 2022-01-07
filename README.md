@@ -12,7 +12,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08)
 
 ---
 
@@ -861,6 +861,85 @@ Garfiel retains poor control over his beast-transformation, losing the grip on h
 
 ---
 
+#### [Re: Zero Daily Trivia #61](https://twitter.com/LoremIpsumVerb/status/1288082856795873280)
+
+The Crystal Palace in Rupgana, Vollachia serves as the Emperor's abode as well as its central fortification.
+
+The palace contains many manastones of all kinds, carefully arranged so to produce vast amounts of mana, bolstering their defender's advantage.
+
+（帝国外交）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #62](https://twitter.com/LoremIpsumVerb/status/1288427296618172419)
+
+During a scuffle with Gusteko, Julius' Grandpa and some of his comrades were separated from the main Lugnican force, forced to wander in freezing conditions.
+
+They were saved from certain death by a "phantom" who teleported them away, thought to be Puck
+
+（Another Memory Snow 安娜阵营）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #63](https://twitter.com/LoremIpsumVerb/status/1288776296189886465)
+
+Standing at the top of the Vollachian Military are the 9 Divine Generals each ranked accordingly
+
+
+Cecilus Segmunt, Rank 1
+
+Chisha Gold, Rank 4
+
+Groovy Gamlet, Rank 6
+
+Moguro Hagane, Rank 8
+
+Balroy Temeglyph, Former Rank 9
+
+Goz Ralfon, Rank ?
+
+Arrachia, Rank ?
+
+（原出自Ex4，七章现已大幅更新）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+[Re: Zero Daily Trivia #64](https://twitter.com/LoremIpsumVerb/status/1289154062131355649)
+
+Fifteen years before the main story the legendary Eight Arms, Kurgan, was killed by Regulus Corneas in the border city of Garkla.
+
+However, he was revived using some sort of arcane art, thus becoming a puppet of the Witch Cult.
+
+（web三章，文库8卷。15年前出自Web四章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #65](https://twitter.com/LoremIpsumVerb/status/1289536393107054595)
+
+(2020-08-01)
+
+Echidna, unlike the other Witches at the time, was born as a Witch.
+
+Furthermore, when asked about what kind of people her parents were, the author described them to be trash.
+
+（18年、19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 
 
 
