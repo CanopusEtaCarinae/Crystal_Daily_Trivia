@@ -7,7 +7,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46)
 </details>
 
 ### Content
@@ -634,6 +634,79 @@ Q：今までに登場したキャラクターで、保持できるマナの量�
 
 A：エミリア、ロズワール、エキドナ、テュフォン、カーミラ、ダフネ、フェリス、プリシラ、ミミあたりが多いです。順番つけると後が怖いのでそれはやめよう。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #46](https://twitter.com/LoremIpsumVerb/status/1282614476529979393)
+
+There are five great cities in the Kingdom of Lugunica, dotted out roughly in a pentagon shape equidistantly from the capital.
+
+Their names are Picoutatte, Ganaks, Flanders, Pristella and Costuul. Of them, Costuul is the newest.
+
+<details>
+<summary>【Golden Siblings，冰结；以下问答给的是六芒星，不确定是否Ice说五边形是用这个与当前五大都市的设定改的：】</summary>
+Q：ルグニカの、王都以外の都市や村ってどんな感じですか？
+
+A：王都を中心に、六茫星を描くように人口２０万から３０万クラスの大都市が六つ配置されています。それ以外にも小規模都市が点在、町、村落、集落レベルで下がっていきますね。人間族に限れば大体が村落レベルに住んでますが、亜人は集落レベルを山や森に作って暮らしているケースもあります。仲は積極的にはよくありません。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #47](https://twitter.com/LoremIpsumVerb/status/1283003249541480450)
+
+Something light hearted today, a breast comparison ranking from Tappei.
+
+Priscilla > Minerva > Elsa > Sekhmet > Crusch > Frederica > Carmilla > Emilia > Rem > Echidna > Anastasia > Ram > Daphne > Felt > Mimi > Beatrice > Typhon > Ryuzu > Petra > Felix
+
+https://twitter.com/nezumiironyanko/status/407519094213054465
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #48](https://twitter.com/LoremIpsumVerb/status/1283350804964020225)
+
+Meteors, though commonly mis-romanised as "Metia", got their names from shooting stars because they have the potential to make the users wishes come true.
+
+This information was mentioned by Omega after witnessing the effects of one such Meteor.
+
+（魔女的条件）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #49](https://twitter.com/LoremIpsumVerb/status/1283709700891119623)
+
+The box containing the Witch Factor of Sloth that Geuse took the lid off, where he apologised to Flugel, has been revealed by Tappei to be made of the bones of a Sage.
+
+As Geuse apologised to Flugel, it's likely that the box was made of Flugel's bones.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ジュースの持っていた怠惰の因子をいれていた箱って一体何製なんですか?
+
+A：賢人の骨です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #50](https://twitter.com/LoremIpsumVerb/status/1284067482089803778)
+
+Of Natsuki Subaru's 47 deaths, a grand total of 26 of them have come from Arc 6. Meaning that Subaru has died more in Arc 6 than all of the other Arcs combined!
+
+（死亡统计-2020-07-17-Web六章79）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
