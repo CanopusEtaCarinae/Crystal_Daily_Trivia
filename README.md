@@ -787,3 +787,76 @@ Despite her adoring gestures towards it, Capella mentioned that to the end, the 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #56](https://twitter.com/LoremIpsumVerb/status/1286267081437188096)
+
+In the Tsugihagu IF Route, the shock of reading Beatrice's Book of the Dead caused Subaru's hair to turn white, as well as for him to bang his head off the floor and walls leading to his left eye clouding over and losing most of his vision in it.
+
+（暴食IF补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #57](https://twitter.com/LoremIpsumVerb/status/1286614434555875328)
+
+Darts, the Restoration Specialist, is one of the few people who has applied Yang Magic to the point where it can be used to restore objects to their original state.
+
+Currently he is repairing the burnt Book of Wisdom which Otto had brought to Pristella.
+
+（Web五章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #58](https://twitter.com/LoremIpsumVerb/status/1286988451984945152)
+
+The author has mentioned before that were Ram to still have her horn, she would be a force to be reckoned with. In one combat strength ranking, the author put her second only to Reinhard, beating the likes of Regulus, Sekhmet and Puck.
+
+Just to be noted, that this power level ranking was done in 2014. There could be changes in it since.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：今まで登場したキャラで、戦闘力高い順に五人並べるとどんな感じですか？
+
+A：ラインハルト、ラム、レグルス、セクメト、パック本気。ラインハルトの下は団子ですが、このあたりは単独で白鯨を落としかねない奴らです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #59](https://twitter.com/LoremIpsumVerb/status/1287329492441145344)
+
+The Author has confirmed that there have been other Witches before the Witches of 400 years ago. However it seems that they haven't been recorded in history.
+
+<details>
+<summary>（ask.fm，应该不止以下出处：）</summary>
+Q：魔女達は子供を産めますか。魔女の子孫はいるのでしょうか。
+
+A：普通に子どもは作れます。いないことはありませんが、あの七人以前にも『魔女』はいました。
+
+Q：古の魔女よりも前に魔女っていたんですか？
+
+A：いました、とだけ。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #60](https://twitter.com/LoremIpsumVerb/status/1287706779858751490)
+
+Garfiel retains poor control over his beast-transformation, losing the grip on his own reasoning. Meanwhile, Frederica is able to perfectly control hers, keeping her reasoning when she transforms. This was thanks to Clind training her.
+
+（18年加菲猫生日、18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
