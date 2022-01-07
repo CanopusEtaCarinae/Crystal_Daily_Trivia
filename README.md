@@ -860,3 +860,24 @@ Garfiel retains poor control over his beast-transformation, losing the grip on h
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+
+
+
+
+<!--
+
+#### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
+
+According to the author, Echidna is the daredevil sort, who would probably opt for a school swimsuit, if she had to wear one.
+
+Note: School swimsuits are worn in Japanese schools, and are often one-pieces.
+
+（19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+-->
