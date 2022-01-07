@@ -7,12 +7,12 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74)
 </details>
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71)
 
 ---
 
@@ -1009,6 +1009,89 @@ They achieve this hybrid state by sharing Ods with a special "insect" when young
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #71](https://twitter.com/LoremIpsumVerb/status/1291675701108715520)
+
+Otto's younger brother, Regin Suwen, works as a veterinarian in the city of Pappelt. Seeing Otto talk to animals is what inspired him to take this career path.
+
+He is currently deeply in love with his assistant, Marone Lisbon.
+
+（土蜘蛛）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #72](https://twitter.com/LoremIpsumVerb/status/1292042535188258816)
+
+Garfiel enjoyed a book called "The Legend of Reid Astrea", a book about Reid's deeds written by someone who was familiar with him.
+
+It's likely that from it he picked up his favorite proverb, "Reid unsheathed his sword before the dragon, and smiled."
+
+【17年加菲猫生日；谚语见[合集](https://github.com/CanopusEtaCarinae/garf_saying#73web%E5%9B%9B-127aweb-44)，但说这句是加菲猫最喜欢的我好像没找到这样的确切描述】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #73](https://twitter.com/LoremIpsumVerb/status/1292394587332501504)
+
+Arc 1 has a theme of "Beginning", Arc 2 has a theme of "Trust", Arc 3 has a theme of "Self-Awareness", and Arc 4 has a theme of "Self-Reliance".
+
+The author has also given some impressions about the other Arcs, though they are not themes per se.
+
+The author has commented that the feelings of "Deadlock" in Arc 5, "Despair" in Arc 6, "Impatience" in Arc 7, "Urgency" in Arc 8 and "Tragic Heroism" in Arc 9 wouldn't lose out to either Arc 3 or 4, giving some hints about possible overarching themes in the Arcs
+
+（5-9章在web感想板2014年5月23日的回复「５章の手詰まり感と、６章の絶望感と、７章の焦燥感と、８章の切迫感と、９章の悲壮感は３章にも４章にも負けない自信があります。」三四章主题见[此推](https://twitter.com/nezumiironyanko/status/342244427529588737)。一二章能找到的大概就是ask.fm这条了（不知道还有没有更早的）：）
+<details>
+<summary>（ask.fm：）</summary>
+Q：三章のテーマってありますか？
+
+A：一章が『はじまり』、二章が『しんらい』、三章が『じかく』、四章が『じりつ』です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #74](https://twitter.com/LoremIpsumVerb/status/1292750196233908224)
+
+There are 4 Great Spirits in the world
+
+The "Slasher" Zarestia, representing Wind
+
+The "Stone" Muspel, representing Earth
+
+The "Sacred Beast" Odglass, representing Water
+
+The "Beast of the End" Puck, representing Fire, after killing the "Arbiter" Melakuera
+
+【石块和灵兽的属性应该还是推测没有实锤明写？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #75](https://twitter.com/LoremIpsumVerb/status/1293177139152420864)
+
+Tappei Nagatsuki came up with the idea of Re Zero at a family restaurant with his friend, mentioning "An incompetent protagonist that saves a silver haired heroine would be nice right?" to them after drinking some ginger ale.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：リゼロという作品はどのように考え、生まれたのですか？
+
+A：ファミレスで友達と「銀髪ヒロインを助ける無能な主人公とかよくね？よくね？」ってジンジャーエール飲んでたらなんかそんな感じになりました。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
