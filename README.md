@@ -12,7 +12,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51)
 
 ---
 
@@ -589,7 +589,6 @@ Q：大罪司教ってぶっちゃけ魔女より強くないですか‥‥
 A：相性の問題がありますが、同じ大罪同士なら前に五分五分な勝敗という感じで答えました。総力戦なら……最強格が戦い方次第で、どっちが勝つかわからなくなりますが、レグルスが一人勝ちする可能性が高いです。
 </details>
 
-
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
@@ -706,7 +705,83 @@ A：賢人の骨です。
 
 Of Natsuki Subaru's 47 deaths, a grand total of 26 of them have come from Arc 6. Meaning that Subaru has died more in Arc 6 than all of the other Arcs combined!
 
-（死亡统计-2020-07-17-Web六章79）
+（[死亡统计](https://tieba.baidu.com/p/6276813888)-2020-07-17-Web六章79）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #51](https://twitter.com/LoremIpsumVerb/status/1284449241189044224)
+
+Magicreation Tools are strange contraptions invented by Roswaal K. Mathers that help in the production of industrial goods in Costuul.
+
+They are sometimes known as "Modern Day Meteors" since they perform work that wouldn't be possible with just manpower
+
+（Golden Siblings）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #52](https://twitter.com/LoremIpsumVerb/status/1284826989564764160)
+
+There exist six titles of magic in Lugunica which are conferred to people who are at the pinnacle of said element.
+
+Red for Fire Magic. Blue for Water Magic. Green for Wind Magic. Yellow for Earth Magic. Black for Yin Magic. And White for Yang Magic.
+
+[Continuation due to the character limit]
+
+Of them, Blue is held by Felix Argyle, Red, Green and Yellow by Roswaal L. Mathers and Black & White remain empty.
+
+（出处太多懒得一个个翻了……）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #53](https://twitter.com/LoremIpsumVerb/status/1285188013316874240)
+
+After pressing her point to the other Witches in the Tea Party about travelling with Colette and Palmyra, Echidna mentions that she wants to travel to Kararagi next.
+
+She mentions she has a connection to the country, as she helped found it.
+
+（短篇集6蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #54](https://twitter.com/LoremIpsumVerb/status/1285531527649132546)
+
+Tappei has described the loyalty between the King Candidates and their Knights in this order pre-Arc Four:
+
+Crusch - Ferris > Priscilla - Al > Anastasia - Julius > Emilia - Subaru > Felt - Reinhard
+
+It's worth noting that this ranking may have changed.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：アルデバランは傭兵上がりですが、忠誠度はどの程度なのでしょう。
+
+A：意外にも高い。王選候補者の主従仲良し度でいくと、クルシュ・フェリス＞プリシラ・アル＞アナスタシア・ユリウス＞エミリア・スバル＞フェルト・ラインハルトぐらい。エミリア・スバルは4章終わりでもうちょい高くなるかも。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #55](https://twitter.com/LoremIpsumVerb/status/1285892046973284362)
+
+Capella seems to keep her Gospel literally inside her left arm, as seen in Volume 20.
+
+Despite her adoring gestures towards it, Capella mentioned that to the end, the book was a material for judgement, yet the freedom to chose her actions rested in her.
+
+（20卷）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
