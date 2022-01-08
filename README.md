@@ -8,6 +8,12 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <summary>【出处待完善】</summary>
 
 [21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74)
+
+<!--
+&nbsp; [589](#re-zero-daily-trivia-589)
+-->
+
+
 </details>
 
 ### Content
@@ -1216,6 +1222,74 @@ She relied on martial arts instead in battle, a feature that perfectly countered
 
 ---
 
+#### [Re: Zero Daily Trivia #86](https://twitter.com/LoremIpsumVerb/status/1297124739991900160)
+
+Meili Portroute has the Divine Protection of Magic Manipulation which allows her to control Witchbeasts so long as she is compatible with them, they're not too strong or too numerous.
+
+This ability has even let her control some as mighty as the Centaurs
+
+（六章）
+<!-- 16卷蜜瓜；21卷表示代替角-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #87](https://twitter.com/LoremIpsumVerb/status/1297505387797782528)
+
+Felix Argyle has a self-repair spell at work on himself continuously, so his cells are continually rejuvenated, heightening their anti-aging and restoration power.
+
+Thus, Felix is in a state of pseudo-immortality and won't die so easily.
+
+（19年菲利斯生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #88](https://twitter.com/LoremIpsumVerb/status/1297843001293668352)
+
+The floors of the Pleiades Watchtower are named after the seven sisters of Pleiades from mythology.
+
+They are from top to bottom, Maia, Electra, Taygeta, Alcyone, Calaeno, Asterope and Merope.
+
+It's presumed by Subaru that Merope is in the underground.
+
+（六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #89](https://twitter.com/LoremIpsumVerb/status/1298175289172856832)
+
+Each of the IF stories have been likened to a sin by the author.
+
+Ayamatsu is Pride, Kasaneru is Greed, Rem IF is Sloth, Oboreru is Wrath, The Butterfly's Dream (Harem IF) is Lust, and Tsugihagu is Gluttony. Meanwhile, the main story is Envy.
+
+https://twitter.com/nezumiironyanko/status/873863063635607554
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #90](https://twitter.com/LoremIpsumVerb/status/1298564161656553483)
+
+The 3 Gluttonies each embody a different slant of the sin, with Rai embodying "Gourmet", Roi "Bizarre Eating" and Rui "Satiation".
+
+Rai has a knack for wanting to become powerful, and can combine techniques from people they have eaten with lunar eclipse
+
+（六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -1238,6 +1312,19 @@ In Tappei's alternate-reality story: Re: Zero Academy, Second Period, Clind is d
 The hawk is well-known in Re: Zero the be a symbol of the Mathers Family.
 
 （学园篇2）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #589](https://twitter.com/LoremIpsumVerb/status/1479800914831622148)
+
+According to Tappei, the last 5 minutes of Episode Eight - the lap pillow scene - were the most important part of the Re: Zero Season One cast audition.
+
+It was an easy decision to have Yusuke Kobayashi as Subaru and Rie Takahashi as Emilia.
+
+【实在没思路出处从哪找了……】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
