@@ -7,7 +7,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95)
 
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589)
@@ -18,7 +18,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91)
 
 ---
 
@@ -1284,6 +1284,89 @@ The 3 Gluttonies each embody a different slant of the sin, with Rai embodying "G
 Rai has a knack for wanting to become powerful, and can combine techniques from people they have eaten with lunar eclipse
 
 （六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #91](https://twitter.com/LoremIpsumVerb/status/1298915833809375233)
+
+Echidna, Palmyra and Colette have found themselves in Gusteko, caught in a blizzard. A member of the faith rescued them and brought them to a church
+
+A member of the multi-arm clan & a bard who sucks at singing are there too
+
+But, the priest was killed
+
+（One Wild Night）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #92](https://twitter.com/LoremIpsumVerb/status/1299267274591830016)
+
+The author has, of all things, listed the colour of some of his character's underwear in Q&As.
+
+
+From them, we have: Emilia with white, Rem and Felix with blue, Ram with pink, Priscilla with red, and Crusch, Elsa and Daphne with black.
+
+<details>
+<summary>（19年菲利斯生日、ask.fm：）</summary>
+Q：エミリアと、レムと、ラムと、プリシラと、アナタシスタと、クルシュのパンツの色を教えてください！！！
+
+A：白、青、ピンク、赤、誰だ、黒
+
+Q：黒が透きなんですが、作中で黒の人っていますか？(下着の話)
+
+A：エルザとダフネがそうなんじゃないッスかね（適当
+
+Q: What color is Ferri-chan's underwear?
+
+A: 'Blue', wouldn't it be? Just blue.
+（19年菲利斯生日，原推提问者不可见仅有英肉及[老贼回复](https://twitter.com/nezumiironyanko/status/1088131749442277376)）
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #93](https://twitter.com/LoremIpsumVerb/status/1299631825569099777)
+
+Kiritaka Muse is a trade representative of the Muse Company, and a member of the Pristellan Council of Ten.
+
+During the attack from the Witch Cult in Arc 5, Kiritaka was the sole survivor from the Council, who are thought to have been slaughtered by Al.
+
+（文库五章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #94](https://twitter.com/LoremIpsumVerb/status/1300009231962308608)
+
+The author has mentioned that when the Blacksnake next appears, Subaru will find himself tangled up in something and captured.
+
+<details>
+<summary>（ask.fm：）</summary>
+スバルが何かで絡めとられて捕獲されるシーンください
+
+黒蛇が出たら需要も満たせるよ
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #95](https://twitter.com/LoremIpsumVerb/status/1300353759164366848)
+
+The Stick Swinger Reid Astrea possessed the ability to take down low-level dragons with merely his chopsticks. Such an instance of this is illustrated on the Volume 23 cover.
+
+【筷子击败低级龙一时想不起出处了】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
