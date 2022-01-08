@@ -1092,6 +1092,64 @@ A：ファミレスで友達と「銀髪ヒロインを助ける無能な主人�
 
 ---
 
+#### [Re: Zero Daily Trivia #76](https://twitter.com/LoremIpsumVerb/status/1293478171854155776)
+
+The names of the three thugs from Arc 1, "Ton" "Chin" "Kan" are a play on words with the Japanese word "Tonchinkan" which expresses the idea that something is inconsistent, irrelevant or that someone is plain stupid.
+
+（一卷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #77](https://twitter.com/LoremIpsumVerb/status/1293833412403507203)
+
+Shiroro Tonerico is a 100cm tall Rabbit Demi-Human that presides over the mercenary group, "The Scratch of Silver" in Kararagi.
+
+Shiroro fights using two swords that are about the same size as him.
+
+（Kararagi Girl & Cats' Eye）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #78](https://twitter.com/LoremIpsumVerb/status/1294198176749178880)
+
+Priscilla Barielle's habit, of keeping her folding fan in between her cleavage, was one which she picked up from one of the half-sisters she most despised, Lamia Godwin.
+
+（红莲的残影）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #79](https://twitter.com/LoremIpsumVerb/status/1294562261114261504)
+
+It has been now exactly FIVE years since Tappei started to write Arc 6 of the Re: Zero Web Novel. In that time, the Light Novel has nearly caught up with the Web Novel, being only 25 Chapters behind now.
+
+（截至此trivia日期2020-8-15）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #80](https://twitter.com/LoremIpsumVerb/status/1294936011043209223)
+
+Cecilus Segmunt, a Divine General of Vollachia holding the rank of "One", is renown for his strength and his pursuit for the title of the "Heavenly Sword".
+
+Tappei has mentioned that in terms of swordsmanship, Cecilus ranks the same as prime Wilhelm.
+
+（愤怒IF？18年剑鬼生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
