@@ -7,7 +7,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95) &nbsp; [95](#re-zero-daily-trivia-95)
 
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589)
@@ -18,7 +18,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
 ---
 
@@ -1202,7 +1202,7 @@ Ezzo Cadner > Flam and Grassis > Gaston > Felt > Old Man Rom > Rachins > Camberl
 
 "Gaddogi Guadozeaddo" mentioned in Episode Six(打错了是Seven) is a famous great spirit that's not included among the Four Great Spirits. It's powerful, but behaves badly, so it's sealed at the far reaches of Gusteko. It won't show up in Re: Zero's main story.
 
-（二期实况32集解说，[谚语见此](https://github.com/CanopusEtaCarinae/garf_saying#37%E6%96%87%E9%99%9011-%E4%B8%89-3%E6%96%8715%E5%8A%A85)）
+（32集实况解说，[谚语见此](https://github.com/CanopusEtaCarinae/garf_saying#37%E6%96%87%E9%99%9011-%E4%B8%89-3%E6%96%8715%E5%8A%A85)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -1352,9 +1352,9 @@ The author has mentioned that when the Blacksnake next appears, Subaru will find
 
 <details>
 <summary>（ask.fm：）</summary>
-スバルが何かで絡めとられて捕獲されるシーンください
+Q：·スバルが何かで絡めとられて捕獲されるシーンください
 
-黒蛇が出たら需要も満たせるよ
+A：黒蛇が出たら需要も満たせるよ
 </details>
 
 [Return to Content](#Content)<br/>
@@ -1373,6 +1373,65 @@ The Stick Swinger Reid Astrea possessed the ability to take down low-level drago
 
 ---
 
+#### [Re: Zero Daily Trivia #96](https://twitter.com/LoremIpsumVerb/status/1300707074230439938)
+
+There are 4 known species of Earth Dragon, with each of their names taken from flowers that existed in the past.
+
+Flanna, the must numerous kind
+
+Eliq, adapted to cold environments
+
+Agaress, adapted for deserts
+
+Diana, a prideful and rare species
+
+（Ex3虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #97](https://twitter.com/LoremIpsumVerb/status/1301081013431529473)
+
+Contrary to popular belief, Rem was actually 18 years of age when she was eaten by Rai Batenkaitos.
+
+Her and Ram's 18th birthday took place in a Side Story between Arc 2 and 3, meaning she was only 17 during Arc 2.
+
+（时间黑洞的生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #98](https://twitter.com/LoremIpsumVerb/status/1301461411525206017)
+
+The Author has stated that there are a few "one-off" type Witchbeasts which Daphne created all those years ago. One of them is her Centipede Coffin, the others are the White Whale, the Great Rabbit, the Black Serpent and the Crimson Scorpion.
+
+（34集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #99](https://twitter.com/LoremIpsumVerb/status/1301814495128555522)
+
+Tivey, Mimi and Hetaro Pearlbaton possess a Divine Protection known as "The Divine Protection of Trisection". It allows them to share each other's physical and emotional burdens.
+
+Though, if one of them were to die with it in effect, the rest would too.
+
+【与游戏LiM新章2冲突。除五章擦边外是否有问答支持？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+[#100 纯纪念](https://twitter.com/LoremIpsumVerb/status/1302179903069130753)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
