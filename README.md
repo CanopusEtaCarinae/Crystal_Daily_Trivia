@@ -7,7 +7,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 <details>
 <summary>【出处待完善】</summary>
 
-[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95) &nbsp; [95](#re-zero-daily-trivia-95)
+[21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95) &nbsp; [99](#re-zero-daily-trivia-99)
 
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589)
@@ -1374,6 +1374,8 @@ The Stick Swinger Reid Astrea possessed the ability to take down low-level drago
 ---
 
 #### [Re: Zero Daily Trivia #96](https://twitter.com/LoremIpsumVerb/status/1300707074230439938)
+
+(2020-09-01)
 
 There are 4 known species of Earth Dragon, with each of their names taken from flowers that existed in the past.
 
