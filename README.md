@@ -12,7 +12,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71)
+[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81)
 
 ---
 
@@ -1150,6 +1150,72 @@ Tappei has mentioned that in terms of swordsmanship, Cecilus ranks the same as p
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #81](https://twitter.com/LoremIpsumVerb/status/1295312022406561792)
+
+The Libra are one of the "Big Three" factions of the black society in Flanders, along with the Black Silver Coin and the Flower Prison Garden.
+
+They run a gambling district and seem to worship the Witch Typhon.
+
+（Flanders骚乱？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #82](https://twitter.com/LoremIpsumVerb/status/1295665017493299201)
+
+Reinhard's bedroom is furnished mostly like an ordinary room. It has a bed, furniture and books pertaining to scholastic topics.
+
+The one thing that stands out is a small sword he has hanging on the wall, given to him by Heinkel when he was still young.
+
+（菲鲁待酱从零开始的王选生活）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #83](https://twitter.com/LoremIpsumVerb/status/1296055151925628929)
+
+In terms of strength, when excluding Reinhard, the author has ranked the Felt Camp as such:
+
+Ezzo Cadner > Flam and Grassis > Gaston > Felt > Old Man Rom > Rachins > Camberly
+
+(N.B. Flam and Grassis are Grimm and Carol Fauzen's granddaughters)
+
+（18年菲鲁特生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #84](https://twitter.com/LoremIpsumVerb/status/1296379354381979648)
+
+"Gaddogi Guadozeaddo" mentioned in Episode Six(打错了是Seven) is a famous great spirit that's not included among the Four Great Spirits. It's powerful, but behaves badly, so it's sealed at the far reaches of Gusteko. It won't show up in Re: Zero's main story.
+
+（二期实况32集解说，[谚语见此](https://github.com/CanopusEtaCarinae/garf_saying#37%E6%96%87%E9%99%9011-%E4%B8%89-3%E6%96%8715%E5%8A%A85)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #85](https://twitter.com/LoremIpsumVerb/status/1296745717424369664)
+
+Roswaal J. Mathers, despite being the head of the magical research department in Lugunica 40 years ago, had no ability to cast magic herself.
+
+She relied on martial arts instead in battle, a feature that perfectly countered Sphinx's abilities.
+
+（Ex2剑鬼恋歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
