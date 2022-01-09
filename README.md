@@ -21,7 +21,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101) &thinsp; [111-120](#re-zero-daily-trivia-111)
+[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111)
 
 ---
 
