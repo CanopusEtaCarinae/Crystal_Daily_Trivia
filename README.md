@@ -1504,6 +1504,71 @@ The naming scheme is intentional, despite Petelgeuse being a common typo of the 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #106](https://twitter.com/LoremIpsumVerb/status/1304366386907619328)
+
+Omega has nearly died three times since leaving the Sanctuary.
+
+The first time was when she set part of the forest on fire. The second when she fell into a cold river. And the third was when she fell into a crevasse of snow and nearly froze to death.
+
+（15卷蜜瓜、魔女的条件、One Wild Night）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #107](https://twitter.com/LoremIpsumVerb/status/1304744230523412480)
+
+Maqueena is a spazzy travelling minstrel who prides herself in the ability to sing tales with her Lulyre. However, she  completely sucks at singing.
+
+She is currently holed up in a church with Omega and seven others, with a murderer on the loose.
+
+（One Wild Night）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+####[Re: Zero Daily Trivia #108](https://twitter.com/LoremIpsumVerb/status/1305115036575248384)
+
+Currently, Omega and the others are holed up in a church in the Gustekan mountains, sheltering from a blizzard.
+
+The church belonged to Pastor Coatl, a hero who was known for helping the village nearby when an avalanche struck.
+
+He was found murdered.
+
+（One Wild Night）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #109](https://twitter.com/LoremIpsumVerb/status/1305470170656374784)
+
+Meteors in the Web Novel were actually referred to by the term "Magic Devices" first. It wasn't until much later in the Web Novel, that Tappei settled on the term "Meteor", which then became the standard term used in the Light Novel.
+
+（流星似乎web五章才开始用？文库倒是一卷就直接流星了）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #110](https://twitter.com/LoremIpsumVerb/status/1305840356928425984)
+
+In Volume 24, it's mentioned from Meili's point of view, that "Mother", i.e. Capella transformed her into beasts, birds, fish, insects, countless frogs, indescribable beings and mere lumps of flesh.
+
+The transformation was done by a touch of her hand.
+
+（文库24）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
