@@ -20,6 +20,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
+[101-110](#re-zero-daily-trivia-101)
+
 ---
 
 #### [Re: Zero Daily Trivia #1](https://twitter.com/LoremIpsumVerb/status/1266327774425427968)
@@ -1050,7 +1052,7 @@ The author has also given some impressions about the other Arcs, though they are
 
 The author has commented that the feelings of "Deadlock" in Arc 5, "Despair" in Arc 6, "Impatience" in Arc 7, "Urgency" in Arc 8 and "Tragic Heroism" in Arc 9 wouldn't lose out to either Arc 3 or 4, giving some hints about possible overarching themes in the Arcs
 
-（5-9章在web感想板2014年5月23日的回复「５章の手詰まり感と、６章の絶望感と、７章の焦燥感と、８章の切迫感と、９章の悲壮感は３章にも４章にも負けない自信があります。」三四章主题见[此推](https://twitter.com/nezumiironyanko/status/342244427529588737)。一二章能找到的大概就是ask.fm这条了（不知道还有没有更早的）：）
+（5-9章在web感想板2014年5月23日的回复「５章の手詰まり感と、６章の絶望感と、７章の焦燥感と、８章の切迫感と、９章の悲壮感は３章にも４章にも負けない自信があります。」三四章主题见[此推](https://twitter.com/nezumiironyanko/status/342244427529588737)。一二章能找到的大概就是ask.fm这条了〔不知道还有没有更早的〕：）
 <details>
 <summary>（ask.fm：）</summary>
 Q：三章のテーマってありますか？
@@ -1431,7 +1433,74 @@ Though, if one of them were to die with it in effect, the rest would too.
 
 ---
 
-[#100 纯纪念](https://twitter.com/LoremIpsumVerb/status/1302179903069130753)
+[#100 百条纪念](https://twitter.com/LoremIpsumVerb/status/1302179903069130753)
+
+---
+
+#### [Re: Zero Daily Trivia #101](https://twitter.com/LoremIpsumVerb/status/1302556453077692417)
+
+Fluffoo, sometimes inexplicably, and incorrectly romanised as Verhoe in English, is Otto's loyal Earth Dragon.
+
+She is around 23 years of age, and came to the Suwen Family when Otto had attained a certain degree of human nature, roughly 13 years ago.
+
+<summary>（18年奥托生日，原推提问者不可见，仅有英肉及[老贼回复](https://twitter.com/nezumiironyanko/status/977531592791941121)：）</summary>
+Q: How old is Otto's favorite dragon?
+
+A: Verhoe has been together with Otto for a long time, and she came to the Suwen family when Otto had attained a certain degree of human nature, so at that point she was around ten years old. Thinking that thirteen years have passed since then, she's probably around twenty-three years old. Ground dragons live for around 100 years, so their ageing isn't that different from humans.
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #102](https://twitter.com/LoremIpsumVerb/status/1302908505599496192)
+
+Priscilla Barielle possesses a wide array of abilities; among them, she has the Divine Protection of the Sun, which makes her stronger in daylight.
+
+She can also use Yang Magic, including the spell "Akra". However this magic was cut in the LN.
+
+（[三章web角色设定](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949/)，Web三章9节〔アルラ〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #103](https://twitter.com/LoremIpsumVerb/status/1303288811397566466)
+
+The author has mentioned that if Julius Euculius were to receive the Divine Protection of the Sword Saint somehow, he wouldn't become any stronger.
+
+That's because Julius has already reached the pinnacle of his sword skill by his own strength.
+
+（18年6154生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #104](https://twitter.com/LoremIpsumVerb/status/1303655254786035712)
+
+The author has stated that even if Roswaal L. Mathers were to learn that Echidna had been reborn as Omega, he would still need to kill the Divine Dragon.
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #105](https://twitter.com/LoremIpsumVerb/status/1304012313834512384)
+
+According to the author, the reason why he named Petelgeuse with a "P" rather than Betelgeuse will be revealed later in the story.
+
+The naming scheme is intentional, despite Petelgeuse being a common typo of the star's name in Japan.
+
+【早听说怠惰名特地用ぺ而不是べ是有坑，但我好像一直没找到老贼原话在哪……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---
 <!--
