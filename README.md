@@ -593,8 +593,7 @@ In an all out fight between them, Regulus would have come out as the sole surviv
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：大罪司教ってぶっちゃけ魔女より強くないですか‥‥
-
+Q：大罪司教ってぶっちゃけ魔女より強くないですか‥‥<br/>
 A：相性の問題がありますが、同じ大罪同士なら前に五分五分な勝敗という感じで答えました。総力戦なら……最強格が戦い方次第で、どっちが勝つかわからなくなりますが、レグルスが一人勝ちする可能性が高いです。
 </details>
 
@@ -638,8 +637,7 @@ However, since she is still honing her control over her magical talent, at this 
 
 <details>
 <summary>（18年寡妇生日；ask.fm：）</summary>
-Q：今までに登場したキャラクターで、保持できるマナの量上位10名あげるなら誰ですか?
-
+Q：今までに登場したキャラクターで、保持できるマナの量上位10名あげるなら誰ですか?<br/>
 A：エミリア、ロズワール、エキドナ、テュフォン、カーミラ、ダフネ、フェリス、プリシラ、ミミあたりが多いです。順番つけると後が怖いのでそれはやめよう。
 </details>
 
@@ -700,8 +698,7 @@ As Geuse apologised to Flugel, it's likely that the box was made of Flugel's bon
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：ジュースの持っていた怠惰の因子をいれていた箱って一体何製なんですか?
-
+Q：ジュースの持っていた怠惰の因子をいれていた箱って一体何製なんですか?<br/>
 A：賢人の骨です。
 </details>
 
@@ -774,8 +771,7 @@ It's worth noting that this ranking may have changed.
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：アルデバランは傭兵上がりですが、忠誠度はどの程度なのでしょう。
-
+Q：アルデバランは傭兵上がりですが、忠誠度はどの程度なのでしょう。<br/>
 A：意外にも高い。王選候補者の主従仲良し度でいくと、クルシュ・フェリス＞プリシラ・アル＞アナスタシア・ユリウス＞エミリア・スバル＞フェルト・ラインハルトぐらい。エミリア・スバルは4章終わりでもうちょい高くなるかも。
 </details>
 
@@ -829,8 +825,7 @@ Just to be noted, that this power level ranking was done in 2014. There could be
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：今まで登場したキャラで、戦闘力高い順に五人並べるとどんな感じですか？
-
+Q：今まで登場したキャラで、戦闘力高い順に五人並べるとどんな感じですか？<br/>
 A：ラインハルト、ラム、レグルス、セクメト、パック本気。ラインハルトの下は団子ですが、このあたりは単独で白鯨を落としかねない奴らです。
 </details>
 
@@ -845,12 +840,10 @@ The Author has confirmed that there have been other Witches before the Witches o
 
 <details>
 <summary>（ask.fm，应该不止以下出处：）</summary>
-Q：魔女達は子供を産めますか。魔女の子孫はいるのでしょうか。
-
+Q：魔女達は子供を産めますか。魔女の子孫はいるのでしょうか。<br/>
 A：普通に子どもは作れます。いないことはありませんが、あの七人以前にも『魔女』はいました。
 
-Q：古の魔女よりも前に魔女っていたんですか？
-
+Q：古の魔女よりも前に魔女っていたんですか？<br/>
 A：いました、とだけ。
 </details>
 
@@ -956,8 +949,7 @@ Tappei has has mentioned that after Subaru's disappearance from the world, a pol
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：長男のスバル君が異世界に召喚された菜月家は今、どういう状態なのでしょうか。あの夫婦なら異世界まで追っかけてきても不思議ではなさそうです。
-
+Q：長男のスバル君が異世界に召喚された菜月家は今、どういう状態なのでしょうか。あの夫婦なら異世界まで追っかけてきても不思議ではなさそうです。<br/>
 A：さすがに長男行方不明は堪えています。警察の捜査も手掛かりなく、賢一も菜穂子を慰めていますがあまり効果がありません。毎日、泣くように過ごしています。
 </details>
 
@@ -1056,8 +1048,7 @@ The author has commented that the feelings of "Deadlock" in Arc 5, "Despair" in 
 （5-9章在web感想板2014年5月23日的回复「５章の手詰まり感と、６章の絶望感と、７章の焦燥感と、８章の切迫感と、９章の悲壮感は３章にも４章にも負けない自信があります。」三四章主题见[此推](https://twitter.com/nezumiironyanko/status/342244427529588737)。一二章能找到的大概就是ask.fm这条了〔不知道还有没有更早的〕：）
 <details>
 <summary>（ask.fm：）</summary>
-Q：三章のテーマってありますか？
-
+Q：三章のテーマってありますか？<br/>
 A：一章が『はじまり』、二章が『しんらい』、三章が『じかく』、四章が『じりつ』です。
 </details>
 
@@ -1091,8 +1082,7 @@ Tappei Nagatsuki came up with the idea of Re Zero at a family restaurant with hi
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：リゼロという作品はどのように考え、生まれたのですか？
-
+Q：リゼロという作品はどのように考え、生まれたのですか？<br/>
 A：ファミレスで友達と「銀髪ヒロインを助ける無能な主人公とかよくね？よくね？」ってジンジャーエール飲んでたらなんかそんな感じになりました。
 </details>
 
@@ -1317,17 +1307,15 @@ From them, we have: Emilia with white, Rem and Felix with blue, Ram with pink, P
 
 <details>
 <summary>（19年菲利斯生日、ask.fm：）</summary>
-Q：エミリアと、レムと、ラムと、プリシラと、アナタシスタと、クルシュのパンツの色を教えてください！！！
-
+Q：エミリアと、レムと、ラムと、プリシラと、アナタシスタと、クルシュのパンツの色を教えてください！！！<br/>
 A：白、青、ピンク、赤、誰だ、黒
 
-Q：黒が透きなんですが、作中で黒の人っていますか？(下着の話)
-
+Q：黒が透きなんですが、作中で黒の人っていますか？(下着の話)<br/>
 A：エルザとダフネがそうなんじゃないッスかね（適当
 
-Q: What color is Ferri-chan's underwear?
-
+Q: What color is Ferri-chan's underwear?<br/>
 A: 'Blue', wouldn't it be? Just blue.
+
 （19年菲利斯生日，原推提问者不可见仅有英肉及[老贼回复](https://twitter.com/nezumiironyanko/status/1088131749442277376)）
 </details>
 
@@ -1355,8 +1343,7 @@ The author has mentioned that when the Blacksnake next appears, Subaru will find
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：·スバルが何かで絡めとられて捕獲されるシーンください
-
+Q：·スバルが何かで絡めとられて捕獲されるシーンください<br/>
 A：黒蛇が出たら需要も満たせるよ
 </details>
 
@@ -1632,12 +1619,10 @@ The author has mentioned that there will probably be a case where the story will
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：>どんな話が読みたいか世をはかなんだ人がどうせなら最後に誰も見たことがない景色を見たいとかで大瀑布に投身自殺をする話。彼が最後に見たものとは……
-
+Q：>どんな話が読みたいか世をはかなんだ人がどうせなら最後に誰も見たことがない景色を見たいとかで大瀑布に投身自殺をする話。彼が最後に見たものとは……<br/>
 A：大瀑布もそのうちに行くからもうちょい待っててんか。
 
-Q：＞どんな話が読みたいか : すごい風景の場所にいく話。五章5話の描写、門番が笑うくだりは光景が目に見えるようで大変わくわくしました。紀行ものではないので本筋ではないのでしょうけど、さりげなくそういった話があると嬉しいです。
-
+Q：＞どんな話が読みたいか : すごい風景の場所にいく話。五章5話の描写、門番が笑うくだりは光景が目に見えるようで大変わくわくしました。紀行ものではないので本筋ではないのでしょうけど、さりげなくそういった話があると嬉しいです。<br/>
 A：今後、大瀑布を見にいったりするケースもあるかと思われます。お楽しみに。
 </details>
 
