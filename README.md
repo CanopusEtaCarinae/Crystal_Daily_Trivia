@@ -1630,6 +1630,61 @@ A：今後、大瀑布を見にいったりするケースもあるかと思わ�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #116](https://twitter.com/LoremIpsumVerb/status/1308021000362229761)
+
+The old couple that help look after the Astrea Mansion in the Capital, and also helped Reinhard look after Felt when she was taken there, are Grimm and Carol Fauzen. They are the same couple who appear in the Sword Demon Trilogy.
+
+（菲鲁特相关短篇，剑鬼系列）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #117](https://twitter.com/LoremIpsumVerb/status/1308367974450049024)
+
+Arakiya wears an ornate eyepatch over her left eye and has practically lost all of her vision in that eye. This came about as a side-effect of drinking poison in the plan she had with Vincent Vollachia to fake Prisca Benedict's death.
+
+（红莲的残影）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #118](https://twitter.com/LoremIpsumVerb/status/1308721544735215617)
+
+The world of Re: Zero has been confirmed by the author to be flat, with the Great Waterfall surrounding the landmass that has been by and large conquered by the four great countries: Lugunica, Vollachia, Gusteko and Kararagi.
+
+（基本设定，可参考zeropedia，四卷等）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #119](https://twitter.com/LoremIpsumVerb/status/1309108555828596738)
+
+The author has stated that he has plans for Subaru to appear on the cover for the final Light Novel volume.
+
+（[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #120](https://twitter.com/LoremIpsumVerb/status/1309470056368271360)
+
+In Volume 24, Rui Arneb does not use Solar Eclipse on Rai Batenkaitos when fighting against Emilia and the others. Instead, after he is defeated with Emilia's hammer blow, he tries to eat Subaru's name, only to be torn apart by the scorpion's stingers.
+
+（文库24）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
