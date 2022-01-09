@@ -841,9 +841,8 @@ The Author has confirmed that there have been other Witches before the Witches o
 <details>
 <summary>（ask.fm，应该不止以下出处：）</summary>
 Q：魔女達は子供を産めますか。魔女の子孫はいるのでしょうか。<br/>
-A：普通に子どもは作れます。いないことはありませんが、あの七人以前にも『魔女』はいました。
-
-
+A：普通に子どもは作れます。いないことはありませんが、あの七人以前にも『魔女』はいました。<br/>
+<br/>
 Q：古の魔女よりも前に魔女っていたんですか？<br/>
 A：いました、とだけ。
 </details>
@@ -1309,13 +1308,11 @@ From them, we have: Emilia with white, Rem and Felix with blue, Ram with pink, P
 <details>
 <summary>（19年菲利斯生日、ask.fm：）</summary>
 Q：エミリアと、レムと、ラムと、プリシラと、アナタシスタと、クルシュのパンツの色を教えてください！！！<br/>
-A：白、青、ピンク、赤、誰だ、黒
-
-
+A：白、青、ピンク、赤、誰だ、黒<br/>
+<br/>
 Q：黒が透きなんですが、作中で黒の人っていますか？(下着の話)<br/>
-A：エルザとダフネがそうなんじゃないッスかね（適当
-
-
+A：エルザとダフネがそうなんじゃないッスかね（適当<br/>
+<br/>
 Q: What color is Ferri-chan's underwear?<br/>
 A: 'Blue', wouldn't it be? Just blue.
 
@@ -1623,9 +1620,8 @@ The author has mentioned that there will probably be a case where the story will
 <details>
 <summary>（ask.fm：）</summary>
 Q：>どんな話が読みたいか世をはかなんだ人がどうせなら最後に誰も見たことがない景色を見たいとかで大瀑布に投身自殺をする話。彼が最後に見たものとは……<br/>
-A：大瀑布もそのうちに行くからもうちょい待っててんか。
-
-
+A：大瀑布もそのうちに行くからもうちょい待っててんか。<br/>
+<br/>
 Q：＞どんな話が読みたいか : すごい風景の場所にいく話。五章5話の描写、門番が笑うくだりは光景が目に見えるようで大変わくわくしました。紀行ものではないので本筋ではないのでしょうけど、さりげなくそういった話があると嬉しいです。<br/>
 A：今後、大瀑布を見にいったりするケースもあるかと思われます。お楽しみに。
 </details>
