@@ -1726,4 +1726,21 @@ It was an easy decision to have Yusuke Kobayashi as Subaru and Rie Takahashi as 
 
 ---
 
+#### [Re: Zero Daily Trivia #590](https://twitter.com/LoremIpsumVerb/status/1480160902792032264)
+
+According to the author, Subaru had a thing for silver-haired heroines even before he met Emilia.
+
+In fact, this is clearly seen in his room in the Anime, where he keeps figurines and posters of girls with silver hair.
+
+<details>
+<summary>（动画亲子集，ask.fm：）</summary>
+Q：エミリアたんに出会う前のスバルの好みの女性ってどんなですか？<br/>
+A：銀髪ヒロインです。二次元じゃないなら、初恋は保育園の保母さんで、ラブレター渡して「重い……」ってふられました。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 -->
