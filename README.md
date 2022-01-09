@@ -21,7 +21,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101)
+[101-110](#re-zero-daily-trivia-101) &nbsp; [111-120](#re-zero-daily-trivia-111)
 
 ---
 
@@ -1564,6 +1564,82 @@ In Volume 24, it's mentioned from Meili's point of view, that "Mother", i.e. Cap
 The transformation was done by a touch of her hand.
 
 （文库24）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #111](https://twitter.com/LoremIpsumVerb/status/1306201198257729536)
+
+Meili Portroute grew up as a feral child, as the queen of her pack of Witchbeasts, after she was abandoned in a forest.
+
+She was able to learn her real name because it had been sewn into the rags she wore, enabling Elsa to read it out to her.
+
+（文库24）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #112](https://twitter.com/LoremIpsumVerb/status/1306562144415232000)
+
+The Re: Zero world writes Japanese using its own writing system consisting of ro, ha and i-glyphs.
+
+Ro-glyphs are a remap of the latin alphabet used in English today, whereas ha-glyphs represent Japanese kana, albeit with some of the kana reduced.
+
+Finally i-glyphs are represented in the anime as heavily cursive English text, which may possibly be just a shortcut by Whitefox.
+
+In all, Whitefox has developed an intricate glyph system for these scripts, of which the mappings can be found on my Twitter.
+
+（i和ha感觉是不是反了……）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #113](https://twitter.com/LoremIpsumVerb/status/1306924576954253313)
+
+Theresia's uncle, Fribal van Astrea, was the Sword Saint before her.
+
+In the publication of Sword Demon Battle Ballad, the author accidentally forgot he'd named the character already and called him "Redrick van Astrea".
+
+（战歌七幕杂志生肉）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #114](https://twitter.com/LoremIpsumVerb/status/1307286593326194689)
+
+Theresia van Astrea is the character who holds the record for most official romanisations in various official Re: Zero publications, clocking in at four!
+
+They are as follows: Theresia Thearesia, Teresia and Theåresia.
+
+（参见[此贴](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/latin#%E5%89%8D%E4%BB%A3%E5%89%91%E5%9C%A3%E3%83%86%E3%83%AC%E3%82%B7%E3%82%A2%E3%83%B4%E3%82%A1%E3%83%B3%E3%82%A2%E3%82%B9%E3%83%88%E3%83%AC%E3%82%A2)。不过Ice有一个搞混了，官方只拼过Theåresia没拼过Thearesia，后者也是民间拼法）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #115](https://twitter.com/LoremIpsumVerb/status/1307644586106523654)
+
+The author has mentioned that there will probably be a case where the story will visit the Great Waterfall in the future.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：>どんな話が読みたいか世をはかなんだ人がどうせなら最後に誰も見たことがない景色を見たいとかで大瀑布に投身自殺をする話。彼が最後に見たものとは……
+
+A：大瀑布もそのうちに行くからもうちょい待っててんか。
+
+Q：＞どんな話が読みたいか : すごい風景の場所にいく話。五章5話の描写、門番が笑うくだりは光景が目に見えるようで大変わくわくしました。紀行ものではないので本筋ではないのでしょうけど、さりげなくそういった話があると嬉しいです。
+
+A：今後、大瀑布を見にいったりするケースもあるかと思われます。お楽しみに。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
