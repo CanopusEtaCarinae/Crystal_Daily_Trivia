@@ -9,6 +9,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95) &nbsp; [99](#re-zero-daily-trivia-99)
 
+[105](#re-zero-daily-trivia-105)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589)
 -->
