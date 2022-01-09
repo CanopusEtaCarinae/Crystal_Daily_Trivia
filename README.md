@@ -843,6 +843,7 @@ The Author has confirmed that there have been other Witches before the Witches o
 Q：魔女達は子供を産めますか。魔女の子孫はいるのでしょうか。<br/>
 A：普通に子どもは作れます。いないことはありませんが、あの七人以前にも『魔女』はいました。
 
+
 Q：古の魔女よりも前に魔女っていたんですか？<br/>
 A：いました、とだけ。
 </details>
@@ -1310,8 +1311,10 @@ From them, we have: Emilia with white, Rem and Felix with blue, Ram with pink, P
 Q：エミリアと、レムと、ラムと、プリシラと、アナタシスタと、クルシュのパンツの色を教えてください！！！<br/>
 A：白、青、ピンク、赤、誰だ、黒
 
+
 Q：黒が透きなんですが、作中で黒の人っていますか？(下着の話)<br/>
 A：エルザとダフネがそうなんじゃないッスかね（適当
+
 
 Q: What color is Ferri-chan's underwear?<br/>
 A: 'Blue', wouldn't it be? Just blue.
@@ -1518,7 +1521,7 @@ She is currently holed up in a church with Omega and seven others, with a murder
 
 ---
 
-####[Re: Zero Daily Trivia #108](https://twitter.com/LoremIpsumVerb/status/1305115036575248384)
+#### [Re: Zero Daily Trivia #108](https://twitter.com/LoremIpsumVerb/status/1305115036575248384)
 
 Currently, Omega and the others are holed up in a church in the Gustekan mountains, sheltering from a blizzard.
 
@@ -1621,6 +1624,7 @@ The author has mentioned that there will probably be a case where the story will
 <summary>（ask.fm：）</summary>
 Q：>どんな話が読みたいか世をはかなんだ人がどうせなら最後に誰も見たことがない景色を見たいとかで大瀑布に投身自殺をする話。彼が最後に見たものとは……<br/>
 A：大瀑布もそのうちに行くからもうちょい待っててんか。
+
 
 Q：＞どんな話が読みたいか : すごい風景の場所にいく話。五章5話の描写、門番が笑うくだりは光景が目に見えるようで大変わくわくしました。紀行ものではないので本筋ではないのでしょうけど、さりげなくそういった話があると嬉しいです。<br/>
 A：今後、大瀑布を見にいったりするケースもあるかと思われます。お楽しみに。
