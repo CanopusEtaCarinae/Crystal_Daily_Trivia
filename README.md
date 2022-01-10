@@ -1316,7 +1316,7 @@ A：エルザとダフネがそうなんじゃないッスかね（適当<br/>
 Q: What color is Ferri-chan's underwear?<br/>
 A: 'Blue', wouldn't it be? Just blue.
 
-（19年菲利斯生日，原推提问者不可见仅有英肉及 [老贼回复](https://twitter.com/nezumiironyanko/status/1088131749442277376) ）
+（19年菲利斯生日，原推提问者不可见仅有英肉及[老贼回复](https://twitter.com/nezumiironyanko/status/1088131749442277376)）
 </details>
 
 [Return to Content](#Content)<br/>
@@ -1431,7 +1431,8 @@ Fluffoo, sometimes inexplicably, and incorrectly romanised as Verhoe in English,
 
 She is around 23 years of age, and came to the Suwen Family when Otto had attained a certain degree of human nature, roughly 13 years ago.
 
-<summary>（18年奥托生日，原推提问者不可见，仅有英肉及[老贼回复](https://twitter.com/nezumiironyanko/status/977531592791941121)：）</summary>
+<summary>（18年奥托生日，原推提问者不可见，仅有英肉及老贼回复）</summary>
+https://twitter.com/nezumiironyanko/status/977531592791941121<br/>
 Q: How old is Otto's favorite dragon?
 
 A: Verhoe has been together with Otto for a long time, and she came to the Suwen family when Otto had attained a certain degree of human nature, so at that point she was around ten years old. Thinking that thirteen years have passed since then, she's probably around twenty-three years old. Ground dragons live for around 100 years, so their ageing isn't that different from humans.
