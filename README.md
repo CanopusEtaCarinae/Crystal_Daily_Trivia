@@ -1825,7 +1825,7 @@ Heinkel plans on using it to restore his wife, Louanna Astrea, back to health.
 
 ---
 
-### [Re: Zero Daily Trivia #130(131)](https://twitter.com/LoremIpsumVerb/status/1313456729863139328)
+#### [Re: Zero Daily Trivia #130(131)](https://twitter.com/LoremIpsumVerb/status/1313456729863139328)
 
 After Ram put Subaru out of his misery in Arc 2, the two sisters buried his corpse in the mountains.
 
