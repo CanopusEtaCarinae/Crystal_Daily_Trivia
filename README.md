@@ -1431,6 +1431,7 @@ Fluffoo, sometimes inexplicably, and incorrectly romanised as Verhoe in English,
 
 She is around 23 years of age, and came to the Suwen Family when Otto had attained a certain degree of human nature, roughly 13 years ago.
 
+<details>
 <summary>（18年奥托生日，原推提问者不可见，仅有英肉及老贼回复）</summary>
 https://twitter.com/nezumiironyanko/status/977531592791941121<br/>
 Q: How old is Otto's favorite dragon?
