@@ -21,7 +21,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111)
+[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10)
 
 ---
 
@@ -1680,6 +1680,93 @@ The author has stated that he has plans for Subaru to appear on the cover for th
 In Volume 24, Rui Arneb does not use Solar Eclipse on Rai Batenkaitos when fighting against Emilia and the others. Instead, after he is defeated with Emilia's hammer blow, he tries to eat Subaru's name, only to be torn apart by the scorpion's stingers.
 
 （文库24）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #121](https://twitter.com/LoremIpsumVerb/status/1309832615940313088)
+
+In the Pristella Story, Liliana and the others have reached the innermost part of the Great Temple which houses Typhon's remains. They were challenged by a trial, where Typhon spoke: "Sin shall turn into a shackle, never letting go of the sinner."
+
+（水门复兴日志）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #121(122)](https://twitter.com/LoremIpsumVerb/status/1310191547430862853)
+
+（这里Ice序号写重了，影响延续至200）
+
+Though Echidna was born as a Witch, she wasn't originally called by the term "Witch of Greed". She gained that title after she killed a "Witch".
+
+（18年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #122(123)](https://twitter.com/LoremIpsumVerb/status/1310554547543257089)
+
+Felt and Reinhard have successfully escorted Sirius to the Prison Tower in the Royal Capital, even though it took them about a month due to the impediments along the way.
+
+Sirius will be held captive there gagged, surrounded by Magical Sealing Stones.
+
+（24卷蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #123(124)](https://twitter.com/LoremIpsumVerb/status/1310918011008811008)
+
+Tappei has mentioned that Emilia will go through three "heroine" transformations. The first of which happened at the end of Arc 4.
+
+https://twitter.com/nezumiironyanko/status/295163540787040256
+https://twitter.com/nezumiironyanko/status/333918902616731648
+<!--
+https://twitter.com/search?q=4%E7%AB%A0%20%E3%83%92%E3%83%AD%E3%82%A4%E3%83%B3%20(from%3Anezumiironyanko)&src=typed_query&f=top
+Q：スバルの変身はあと一回ですか？もうちょっとありますか？<br/>
+A：あと２回変身するね。-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #124(125)](https://twitter.com/LoremIpsumVerb/status/1311256458982494210)
+
+After the attack on her mansion by Vollachian assassins, Priscilla Barielle has decided to go to Vollachia.
+
+Al tried 1000 times to convince her not to, but he was unsuccessful. Thus Priscilla, Al and the others are currently en route there.
+
+（24卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #125(126)](https://twitter.com/LoremIpsumVerb/status/1311632465849704455)
+
+(2020-10-01)
+
+The author has confirmed that Subaru may end up in a situation where he's unable to die, after one of his fans asked him about this idea.
+
+The author mentioned that he has this idea planned for the XXX Battle in Arc Eight.
+
+https://twitter.com/nezumiironyanko/status/347925526373101568
+（[零大7-11章情报](http://tieba.baidu.com/p/7276964431)）
+<!-- EMT 486 杀 感想板 老贼回复2014-05-26 12:02 回复 2014-05-24 5:02
+スバルがエミリアを殺す展開やったんだから、その逆も然り。
+どこでやるのが一番面白いのかは俺が知ってるから、そこは安心しておきたまえよ。
+ただ、その性癖は俺とは話が合わないのでやめてくださいお願いします。
+-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
