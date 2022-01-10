@@ -21,7 +21,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10)
+[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &zwnj; [130(131)-139(140)](#re-zero-daily-trivia-130131)
 
 ---
 
@@ -1772,6 +1772,76 @@ https://twitter.com/nezumiironyanko/status/347925526373101568
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #126(127)](https://twitter.com/LoremIpsumVerb/status/1312009999040868354)
+
+Itinerant Ecclesiastics are high-ranking members of the Gustekan Faith, on par with the Acolyte Knights.
+
+While the Acolyte Knights are executioners for the faith, the Ecclesiastics travel around spreading the faith, punishing those who go against it.
+
+（One Wild Night）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #127(128)](https://twitter.com/LoremIpsumVerb/status/1312372454627700736)
+
+Before Farsale Lugunica made the covenant with the Divine Dragon Volcanica, the lineage of kings were known as the Lion Kings.
+
+Thus, since the Kingdom then became known as the Dragon Kingdom, Farsale was dubbed the "Last Lion King".
+
+（zeropedia？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #128(129)](https://twitter.com/LoremIpsumVerb/status/1312731820816039936)
+
+Tappei considered changing the surname "Romanee-Conti" in the Light Novel version after he finished writing Arc 4 in the Web Novel.
+
+He asked his readers for their opinions about it, who overwhelmingly advised him to keep it the same.
+
+https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/967544/index.php?p=6
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #129(130)](https://twitter.com/LoremIpsumVerb/status/1313100126051860482)
+
+The reason why Heinkel Astrea joined the Priscilla Camp was because Priscilla promised him the blood of the dragon held in the royal castle if she were to win.
+
+Heinkel plans on using it to restore his wife, Louanna Astrea, back to health.
+
+（16卷gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+### [Re: Zero Daily Trivia #130(131)](https://twitter.com/LoremIpsumVerb/status/1313456729863139328)
+
+After Ram put Subaru out of his misery in Arc 2, the two sisters buried his corpse in the mountains.
+
+Emilia thought Subaru was under the blue sky, happily travelling somewhere, and terrible things happened to the village because of the Witchbeasts.
+
+<details>
+<summary>（ask.fm：）</summary>
+A：スバル死後話の「えんでぃんぐりすと」が大好きだったんですが、試練絡みだったので今後の周回での死後シーンが見れそうもないのが残念です。あと、2章でレムが先走ってラムがカイシャクした森の中Endのその後が気になるのですが、どんな感じだったんでしょうか？<br/>
+A：山にスバル埋めて、エミリアたんはスバルがこの青空の下、どこかで元気に旅していると思いながら、村が魔獣の毒牙でえらいことになってendです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -1830,4 +1900,19 @@ A：銀髪ヒロインです。二次元じゃないなら、初恋は保育園�
 
 ---
 
+-->
+
+<!-- Other notes:
+首张 fanart 怠惰 https://twitter.com/nanashi111/status/306458580557635584，多死两次？
+https://twitter.com/nezumiironyanko/status/316527276785274880
+非官方来源https://frequ.jp/1893
+https://w.atwiki.jp/aniwotawiki/pages/35051.html
+https://wikiwiki.jp/boudai/%E3%83%9A%E3%83%86%E3%83%AB%E3%82%AE%E3%82%A6%E3%82%B9%E3%83%BB%E3%83%AD%E3%83%9E%E3%83%8D%E3%82%B3%E3%83%B3%E3%83%86%E3%82%A3
+过时问答：
+ペテルギウスのファンアートでスバルの死亡回数を増やすほど興奮したといっていましたが、文字だけの感想で同程度の興奮を得たことはありますか。
+
+1 年多前
+
+誰かが２万字ぐらい、びっしりリゼロの考察としかしてくれたらいけるかもしんない
+https://twitter.com/nezumiironyanko/status/306770729557430272
 -->
