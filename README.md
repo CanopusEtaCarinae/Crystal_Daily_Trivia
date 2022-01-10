@@ -1316,7 +1316,7 @@ A：エルザとダフネがそうなんじゃないッスかね（適当<br/>
 Q: What color is Ferri-chan's underwear?<br/>
 A: 'Blue', wouldn't it be? Just blue.
 
-（19年菲利斯生日，原推提问者不可见仅有英肉及[老贼回复](https://twitter.com/nezumiironyanko/status/1088131749442277376)）
+（19年菲利斯生日，原推提问者不可见仅有英肉及 [老贼回复](https://twitter.com/nezumiironyanko/status/1088131749442277376) ）
 </details>
 
 [Return to Content](#Content)<br/>
@@ -1727,7 +1727,7 @@ Sirius will be held captive there gagged, surrounded by Magical Sealing Stones.
 
 Tappei has mentioned that Emilia will go through three "heroine" transformations. The first of which happened at the end of Arc 4.
 
-https://twitter.com/nezumiironyanko/status/295163540787040256
+https://twitter.com/nezumiironyanko/status/295163540787040256<br/>
 https://twitter.com/nezumiironyanko/status/333918902616731648
 <!--
 https://twitter.com/search?q=4%E7%AB%A0%20%E3%83%92%E3%83%AD%E3%82%A4%E3%83%B3%20(from%3Anezumiironyanko)&src=typed_query&f=top
