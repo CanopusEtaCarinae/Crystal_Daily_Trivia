@@ -143,6 +143,7 @@ There are 10 ridiculously powerful swords in Re Zero. All of their names have be
 Of those we do, we have the Yang Sword, the Dragon Sword Reid, the Fiend Sword Murasame and the Dream Sword Masayume
 
 https://twitter.com/nezumiironyanko/status/965199179826970626
+<!--――世界に、力ある本物の魔剣、聖剣、妖刀は十本存在すると言われている。——红莲-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -1844,6 +1845,69 @@ A：山にスバル埋めて、エミリアたんはスバルがこの青空の�
 
 ---
 
+#### [Re: Zero Daily Trivia #131(132)](https://twitter.com/LoremIpsumVerb/status/1313816355842527234)
+
+Someone once asked Tappei whether a certain character would die or not later, surprising him about how they knew about it.
+
+According to the author, this specific thing was related to the truth of Re: Zero.
+
+（[Nico生放送](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:Nico%E7%94%9F%E6%94%BE%E9%80%81)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #132(133)](https://twitter.com/LoremIpsumVerb/status/1314169319362899968)
+
+The author has mentioned that out of all of the characters that had appeared so far by mid-2014, Elsa Granhiert was both the most sadistic and masochistic.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：今まで出てきたキャラで一番S度が高いキャラとM度が高いキャラを教えて下さい！<br/>
+A：どっちもエルザ姐さん。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+####[Re: Zero Daily Trivia #133(134)](https://twitter.com/LoremIpsumVerb/status/1314538607600955392)
+
+In the Web Novel, Roswaal L. Mathers has the Divine Protection of Sorcery, which makes him compatible with all six magic elements, enabling him to use the magic perfectly.
+
+However, Tappei has since rescinded it, though its effects are still present.
+
+https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/629900/ （旧设）<br/>
+https://twitter.com/nezumiironyanko/status/791535430839652352（改设）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #134(135)](https://twitter.com/LoremIpsumVerb/status/1314910539378720769)
+
+Regulus was mentioned to have had 291 wives in total. However, according to Sylphy, 238 of those wives were killed, leaving only 53 alive in Arc Five.
+
+（五章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #135(136)](https://twitter.com/LoremIpsumVerb/status/1315255865159684097)
+
+Cecilus Segmund ordered his kimono to be custom-made for him after he fell in love with this kind of special you can only find in Kararagi.
+
+（Ex4银华乱舞）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -1917,4 +1981,13 @@ https://wikiwiki.jp/boudai/%E3%83%9A%E3%83%86%E3%83%AB%E3%82%AE%E3%82%A6%E3%82%B
 
 誰かが２万字ぐらい、びっしりリゼロの考察としかしてくれたらいけるかもしんない
 https://twitter.com/nezumiironyanko/status/306770729557430272
+
+
+
+莱傲天视角避免
+>どんな話が読みたいかラインハルト視点からの一章の成功ルートも読んでみたいです。
+1 年多前
+申し訳ありません。作中事情で、ラインハルト視点で作品を描写することは極力避けています。
+
+18年莱傲天生日——男女颜值最高
 -->
