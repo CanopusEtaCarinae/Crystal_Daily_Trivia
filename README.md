@@ -21,7 +21,9 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &zwnj; [130(131)-139(140)](#re-zero-daily-trivia-130131) &zwnj; [140(141)-149(150)](#re-zero-daily-trivia-140141) &zwnj; [150(151)-159(160)](#re-zero-daily-trivia-150151)
+[101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141)
+
+[150(151)-159(160)](#re-zero-daily-trivia-150151)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2068,7 +2070,7 @@ Al tried to convince her against it, looping almost 1000 times, yet unable to ch
 
 ---
 
-#### [Re: Zero Daily Trivia #147 (b)[148b])](https://twitter.com/LoremIpsumVerb/status/1319632670813454336)
+#### [Re: Zero Daily Trivia #147 (b)(148b)](https://twitter.com/LoremIpsumVerb/status/1319632670813454336)
 
 Elves were used as a collateral to make Minerva fall into a trap in the past. They were sent as a suicide squad, and in order to save them, Minerva ran, fell under the influence of the time authority, Witch Time, and was swallowed whole by the WOE.
 
