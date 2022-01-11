@@ -21,7 +21,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &zwnj; [130(131)-139(140)](#re-zero-daily-trivia-130131) &zwnj; [140(141)-149(150)](#re-zero-daily-trivia-140141)
+[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &zwnj; [130(131)-139(140)](#re-zero-daily-trivia-130131) &zwnj; [140(141)-149(150)](#re-zero-daily-trivia-140141) &zwnj; [150(151)-159(160)](#re-zero-daily-trivia-150151)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2039,6 +2039,92 @@ A：ハインケル・アストレアか、フェルトです。
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #146(147)](https://twitter.com/LoremIpsumVerb/status/1319279650674073604)
+
+15 years ago, a group of men invaded the Astrea Mansion to send a warning against Reinhard for his use of a D.P.
+
+One of them threatened him to devote himself to the Kingdom, using his family against him. Words that would carry a long lasting impact.
+
+（Once Upon a Time in Lugunica）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #147(148)](https://twitter.com/LoremIpsumVerb/status/1319619056870318080)
+
+（和[124(125)](#re-zero-daily-trivia-130131)内容重复，故当天又发了[下一条](#re-zero-daily-trivia-147-b148b)）
+
+In response to the assassin attack on her mansion, Priscilla Barielle has decided to go straight to Vollachia to see who's boss.
+
+Al tried to convince her against it, looping almost 1000 times, yet unable to change her mind.
+
+（24卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #147 (b)[148b])](https://twitter.com/LoremIpsumVerb/status/1319632670813454336)
+
+Elves were used as a collateral to make Minerva fall into a trap in the past. They were sent as a suicide squad, and in order to save them, Minerva ran, fell under the influence of the time authority, Witch Time, and was swallowed whole by the WOE.
+
+<details>
+<summary>（Web四章茶会幕间，ask.fm：）</summary>
+Q：過去にミネルヴァさんを罠にかけることになったエルフ達は、一体どのような心境だったのでしょうか。<br/>
+A：エルフはミネルヴァたんを嵌めるために罠に掛けられた巻き添えです。決死隊という形で送り出されたエルフたちを救うためにミネルヴァたんは走り、時の権力者たちの魔の手にかかり、魔女タイム。
+
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #148(149)](https://twitter.com/LoremIpsumVerb/status/1319971738726354946)
+
+"The White Dragon Scales" are a band of people that formed to try and gain enough funds to fix the contaminated soil in their homeland, that led rise to an epidemic.
+
+The contamination is speculated to be due to the aftereffects of the Blacksnake.
+
+（从零开始的英雄传）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #149(150)](https://twitter.com/LoremIpsumVerb/status/1320363585651048453)
+
+The author has mentioned that Daphne gave birth to the Witchbeasts from her "third mouth".
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ダフネちゃんってどうやって魔獣産むんですか？<br/>
+A：第三の口からペロッと産みます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #150(151)](https://twitter.com/LoremIpsumVerb/status/1320736431791345671)
+
+Dorkell the Leaper, one of the people Rai Batenkaitos ate, possesses an ability called Shukuchi.
+
+Shukuchi lets him be undetectable to the naked eye, allowing him to leap behind his opponents and move around the battlefield as if he were teleporting.
+
+（六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
