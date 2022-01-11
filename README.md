@@ -1583,7 +1583,7 @@ Finally i-glyphs are represented in the anime as heavily cursive English text, w
 
 In all, Whitefox has developed an intricate glyph system for these scripts, of which the mappings can be found on my Twitter.
 
-（i和ha感觉是不是反了……）
+（[异世界文字](https://rezero.fandom.com/zh/wiki/%E6%9C%AF%E8%AF%AD:%E5%BC%82%E4%B8%96%E7%95%8C%E6%96%87%E5%AD%97)，[一期新编集第3集实况](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E5%8A%A8%E7%94%BB%E5%AE%9E%E5%86%B5%E8%A7%A3%E8%AF%B4/%E7%AC%AC%E4%B8%80%E5%AD%A3%E6%96%B0%E7%BC%96%E9%9B%86%E7%89%88#.E6.96.B0.E7.BC.96.E7.AC.AC3.E9.9B.86.E2.80.94.E2.80.942020.E5.B9.B41.E6.9C.8815.E6.97.A5)。i和ha感觉是不是反了……）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
