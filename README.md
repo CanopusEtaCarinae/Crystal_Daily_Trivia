@@ -21,7 +21,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &zwnj; [130(131)-139(140)](#re-zero-daily-trivia-130131)
+[101-110](#re-zero-daily-trivia-101) &zwnj; [111-120](#re-zero-daily-trivia-111) &zwnj; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &zwnj; [130(131)-139(140)](#re-zero-daily-trivia-130131) &zwnj; [140(141)-149(150)](#re-zero-daily-trivia-140141)
 
 ---
 
@@ -1908,6 +1908,68 @@ Cecilus Segmund ordered his kimono to be custom-made for him after he fell in lo
 [Return to top](#crystals-daily-trivias)
 
 ---
+#### [Re: Zero Daily Trivia #136(137)](https://twitter.com/LoremIpsumVerb/status/1315634735218130944)
+
+The Twin Shura, Raizo and Shasuke, were Shinobi produced in a Vollachian Village via human experimentation.
+
+They were trained, drugged and magicked, and somehow managed to both survive this process that killed almost everyone put through it.
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #137(138)](https://twitter.com/LoremIpsumVerb/status/1315991981655547904)
+
+When Reinhard feels he needs a Divine Protection, the Od Lagna will create it and give it to him. Sometimes there are errors with conveying his intention, and doesn't end up receiving the proper Divine Protection.
+
+（19年莱傲天生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #138(139)](https://twitter.com/LoremIpsumVerb/status/1316377464290017281)
+
+The Eight Arms Kurgan was killed by the Sin Archbishop of Greed, Regulus Corneas, when the fortress city of Garkla in Vollachia was attacked by him
+
+It's said that an item relating to one of the Witches of Sin other than Envy was being exhibited there.
+
+（Web四章8节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #139(140)](https://twitter.com/LoremIpsumVerb/status/1316729221339729921)
+
+Despite being known as the Sword Saint, Reid Astrea did not actually possess the Divine Protection of the Sword Saint.
+
+The Divine Protection only started to pass down his descendants after his death.
+
+（传闻雷德无加护-Web五章79）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #140(141)](https://twitter.com/LoremIpsumVerb/status/1317097386003628037)
+
+Not much is known about Felt's Divine Protection, except that it allows her to dash ahead in the blink of an eye, just like the wind. It also allows her to climb up walls and buildings.
+
+The author has said that it's seriously related to her parents.
+
+（18年菲鲁特生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -1966,6 +2028,18 @@ A：銀髪ヒロインです。二次元じゃないなら、初恋は保育園�
 
 ---
 
+#### [Re: Zero Daily Trivia #591](https://twitter.com/LoremIpsumVerb/status/1480576625737711617)
+
+According to the author, Subaru's first puppy love came back when he was in preschool and was directed towards one of its day-care teachers.
+
+He even went as far as to give her a love letter, which she promptly rejected.
+
+（ask.fm同[#590](#re-zero-daily-trivia-590)+13卷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 -->
 
 <!-- Other notes:
