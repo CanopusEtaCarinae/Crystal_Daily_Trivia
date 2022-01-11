@@ -1873,14 +1873,14 @@ A：どっちもエルザ姐さん。
 
 ---
 
-####[Re: Zero Daily Trivia #133(134)](https://twitter.com/LoremIpsumVerb/status/1314538607600955392)
+#### [Re: Zero Daily Trivia #133(134)](https://twitter.com/LoremIpsumVerb/status/1314538607600955392)
 
 In the Web Novel, Roswaal L. Mathers has the Divine Protection of Sorcery, which makes him compatible with all six magic elements, enabling him to use the magic perfectly.
 
 However, Tappei has since rescinded it, though its effects are still present.
 
 https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/629900/ （旧设）<br/>
-https://twitter.com/nezumiironyanko/status/791535430839652352（改设）
+https://twitter.com/nezumiironyanko/status/791535430839652352 （改设）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
