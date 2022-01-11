@@ -2127,6 +2127,70 @@ Shukuchi lets him be undetectable to the naked eye, allowing him to leap behind 
 
 ---
 
+#### [Re: Zero Daily Trivia #151(152)](https://twitter.com/LoremIpsumVerb/status/1321065274179833856)
+
+Julius Euculius's father, Klein, left the aristocratic household to marry a commoner, Maria. As a result, Julius was born a commoner. It was there he found his ideals in knighthood
+
+When his parents died in a flash flood, his uncle Alviero adopted him
+
+Joshua三百科，6154生父养父名均出自六章。生母名强烈怀疑Ice以及fandom搞错了，见[19年Joshua生日问答](https://twitter.com/nezumiironyanko/status/1088120084516589568)，虽然提问者原推不可见，但[reddit](https://www.reddit.com/r/Re_Zero/comments/ajlrhj/translation_joshuas_birthday_2019_qa_tweets)记录里写的是问Joshua的母亲而非6154的。
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #152(153)](https://twitter.com/LoremIpsumVerb/status/1321442979148685312)
+
+Cecilus Segmund is stated to likely be responsible for more deaths than any other single person in the world.
+
+（Ex4帝国外交“单纯以个人成就来讲，可以说是世界上杀了最多人的剑士吧”）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #153(154)](https://twitter.com/LoremIpsumVerb/status/1321761686244806657)
+
+When comparing the scale of the damage the Sin Archbishops have caused, to the Witches, Tappei has stated that it's no contest - that the Witches have caused more damage.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：大罪司教たちは400年前の魔女たちよりクズさは上だと思いますが、被害の規模では魔女と大罪司教どっちの方が酷いんでしょうか？、<br/>
+A：比べ物になりません。魔女です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #154(155)](https://twitter.com/LoremIpsumVerb/status/1322141914850861057)
+
+During Arc 5, Anastasia deliberately decided to stay encased within her Od, so that she wouldn't forget her knight, Julius Euculius.
+
+Od has been described to act as a kind of separate world, free from the terrible influences of Gluttony's authority.
+
+（六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #155(156)](https://twitter.com/LoremIpsumVerb/status/1322534816173228032)
+
+Hornette was a Gladiator in the Gladiator Island of Guninhive. She stood at over 2.5 metres tall and wielded two great swords almost the size of a full-grown person, attached to the stumps of her upper arm.
+
+She was known as the "Gladiator Empress".
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
