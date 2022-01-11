@@ -1973,6 +1973,72 @@ The author has said that it's seriously related to her parents.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #141(142)](https://twitter.com/LoremIpsumVerb/status/1317446470908432384)
+
+Anastasia met Eridna eleven years before the main story after finding her sealed in a wooden box that was being delivered in some cargo.
+
+The cargo was being targeted by Capella's "son", Reisel, but Anastasia and the others were able to thwart him.
+
+（Kararagi Girl & Cats' Eye）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #142(143)](https://twitter.com/LoremIpsumVerb/status/1317827381525184514)
+
+When Otto Suwen was rescued by Ricardo Welkin in Arc 3, the former began to bawl his eyes out, relieved to the bone that he hadn't died.
+
+To this day, Ricardo has kept this fact a secret - a debt which Otto will one day repay.
+
+（奥托名前回）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #143(144)](https://twitter.com/LoremIpsumVerb/status/1318180451127873536)
+
+Julius Euculius owns a pedigreed Earth Dragon called Shaknar. Originally, it was handed over to celebrate his fifteenth birthday, from an Earth Dragon trainer that the Euclius family was close to.
+
+（18年6154生日）
+<!--https://twitter.com/ka___zuha__/status/1015455723709333504-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #144(145)](https://twitter.com/LoremIpsumVerb/status/1318540074896818178)
+
+Spirits are supernatural beings that are given life by the Od Lagna, manifesting via the power of mana.
+
+They start off as lesser spirits, before becoming quasi-spirits, and finally spirits. Particularly powerful ones are known as great spirits.
+
+（冰结）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #145(146)](https://twitter.com/LoremIpsumVerb/status/1318906068647530497)
+
+The author has mentioned that if he were to write a long-term spinoff of one of the Re: Zero characters, the story he'd write would most likely feature either Felt or Heinkel Astrea.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：re:ゼロのキャラクターの中で長期スピンオフ作品を書くとして、誰のストーリーを書きたいですか？<br/>
+A：ハインケル・アストレアか、フェルトです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -2067,4 +2133,5 @@ https://twitter.com/nezumiironyanko/status/306770729557430272
 申し訳ありません。作中事情で、ラインハルト視点で作品を描写することは極力避けています。
 
 18年莱傲天生日——男女颜值最高
+魔法强度 无印--…… https://twitter.com/nezumiironyanko/status/1225074727980417025
 -->
