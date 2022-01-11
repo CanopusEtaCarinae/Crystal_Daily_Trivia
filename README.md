@@ -9,7 +9,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95) &nbsp; [99](#re-zero-daily-trivia-99)
 
-[105](#re-zero-daily-trivia-105)
+[105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589)
 -->
@@ -23,7 +23,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141)
 
-[150(151)-159(160)](#re-zero-daily-trivia-150151)
+[150(151)-159(160)](#re-zero-daily-trivia-150151) &ensp; [160(161)-170(171)](#re-zero-daily-trivia-160161)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2191,6 +2191,77 @@ She was known as the "Gladiator Empress".
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #156(157)](https://twitter.com/LoremIpsumVerb/status/1322853880623935489)
+
+At the very top platform of the tower, there's a lone monolith with six different hand prints on it; four belonging to me, two to women.
+
+One of the hand prints matches exactly with Emilia's hand.
+
+（六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #157(158)](https://twitter.com/LoremIpsumVerb/status/1323241451220799495)
+
+Elsa encountered Capella as she tried to flee from Gusteko. Though she had never seen her before, she quickly realised she was Sithonia's "Mother".
+
+Capella then made Elsa into one of her "daughters" by making her kiss the back of her hand.
+
+（二期BD1特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #158(159)](https://twitter.com/LoremIpsumVerb/status/1323611202019315712)
+
+Capella told Elsa, when they first met, that what she desired was love. A love where her daughters would do everything they could to fulfill her wishes, being a mother.
+
+She desired for them to bring her treasures beyond the reaches of her imagination.
+
+（二期BD1特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #159(160)](https://twitter.com/LoremIpsumVerb/status/1323984725447499778)
+
+Earth Dragons have been mentioned by the author to live only for roughly one hundred years. Back in the times before Earth Dragons, people used to get by with "Grim Oxen".
+
+Despite that, Volcanica spoke out the name: "Patrasche" on seeing her.
+
+【幽牛见四章114，但仅一百年不知出处是哪，感觉应该不是说[#101](#re-zero-daily-trivia-101)提到的地龙寿命……神龙见帕特拉修出自六章】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #160(161)](https://twitter.com/LoremIpsumVerb/status/1324322215672844288)
+
+Tappei has said that he doesn't have exact figures for Anastasia's net worth, but if you include the assets of her Hoshin Company, she could probably buy up a medium-sized city. If not for the Selection, one of her long-term goals was to buy a country.
+
+<details>
+<summary>（18年安娜生日，原推提问者不可见，仅有英肉及老贼回复）</summary>
+https://twitter.com/nezumiironyanko/status/972437801584099328<br/>
+Q: How much is Anastasia's net worth?
+
+A: I haven't decided on an exact value, but if you include the assets of the "Hoshin Company", she could probably buy up a medium-sized city. If not for the Royal Selection, one of her long-range goals was to buy a country.
+
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
