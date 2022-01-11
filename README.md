@@ -2261,7 +2261,23 @@ He even went as far as to give her a love letter, which she promptly rejected.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #592](https://twitter.com/LoremIpsumVerb/status/1480884386820202501)
+
+When asked how much it would cost for Anastasia Hoshin to go out on a date with someone, the author replied that she would probably charge by the hour, at the current market rate, highlighting what a shrewd business woman she is.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：アナスタシアさんはいくらでデートしてくれますか？<br/>
+A：時間給かなぁ……しかも時価だね。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 -->
+
 
 <!-- Other notes:
 首张 fanart 怠惰 https://twitter.com/nanashi111/status/306458580557635584，多死两次？
