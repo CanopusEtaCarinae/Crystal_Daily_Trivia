@@ -2194,6 +2194,8 @@ She was known as the "Gladiator Empress".
 
 #### [Re: Zero Daily Trivia #156(157)](https://twitter.com/LoremIpsumVerb/status/1322853880623935489)
 
+(2020-10-01)
+
 At the very top platform of the tower, there's a lone monolith with six different hand prints on it; four belonging to me, two to women.
 
 One of the hand prints matches exactly with Emilia's hand.
