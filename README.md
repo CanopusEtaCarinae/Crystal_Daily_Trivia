@@ -2262,6 +2262,66 @@ A: I haven't decided on an exact value, but if you include the assets of the "Ho
 
 ---
 
+#### [Re: Zero Daily Trivia #161(162)](https://twitter.com/LoremIpsumVerb/status/1324715994057682945)
+
+Wilhelm started training with the sword at the age of eight. Six years later, he had an argument with his eldest brother about him wanting to become a knight. This made him leave the Trias house and join the Royal Army.
+
+（Ex2剑鬼恋歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #162(163)](https://twitter.com/LoremIpsumVerb/status/1325060417903878144)
+
+When asked about what the approximate percentage would be, in regards to the possibility that Subaru would be able to break through a loop without dying even once, the author responded that it would be "zero".
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルが一回も死なずにループ突破できる可能性は各章何%くらいですか？<br/>
+A：0
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+### [Re: Zero Daily Trivia #163(164)](https://twitter.com/LoremIpsumVerb/status/1325411317071613954)
+
+The gap between the start of Arc 2 and the start of Arc 3 has increased a total of three times in Re: Zero. First it was two weeks in the Web Novel. Then it was one month in Volume 4. And from Volume 5 onward, it was increased to two months.
+
+（Web三章第2节，文库四卷一章2节，五卷一章1节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #164(165)](https://twitter.com/LoremIpsumVerb/status/1325776679520915462)
+
+The Featherrun family of Gusteko was made up of seven individuals. The patriarch and father, Holosseo Featherrun. Then the "sisters": Sithonia, Dorothea, Saria, Hildea, Ornea and finally, Elsa, who became the youngest when she was added to the family.
+
+（二期BD1特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #165(166)](https://twitter.com/LoremIpsumVerb/status/1326148602272632832)
+
+Elsa describes having been turned into a "Curse Doll" by a very wicked man.
+
+That wicked man's name was Holosseo Featherrun.
+
+（二期BD1特典，15卷gamers？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
