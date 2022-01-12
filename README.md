@@ -23,7 +23,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141) &ensp; [150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11)
 
-[160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12)
+[160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2608,6 +2608,83 @@ To summon it, the lives of twenty people who possessed Divine Protections were s
 
 ---
 
+#### [Re: Zero Daily Trivia #187(188)](https://twitter.com/LoremIpsumVerb/status/1334157018794500096)
+
+The Great Rabbit was given the birthday the fifth of June.
+
+This is due to a play on words with the word: "mugoi", which means brutal. The number 6 (for June) can have a reading of "mu", and the number 5 (for the day) can have a reading of "go",
+
+so this is how the author created the play on words with the word: "mugoi".
+
+The author mentioned then that the one who had killed Subaru the most brutal way had been the Great Rabbit, and thus that's how the Great Rabbit's birthday was decided.
+
+https://twitter.com/nezumiironyanko/status/463343540085350401
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #188(189)](https://twitter.com/LoremIpsumVerb/status/1334517004062105602)
+
+Garfiel Tinsel's birthday is October the twelfth.
+
+The author determined his birthday to be the same as the actor, Hugh Jackman, who is renown for playing Wolverine. He mentioned that he felt Garfiel kind of looked like him.
+
+https://twitter.com/nezumiironyanko/status/463343248950296576
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #189(190)](https://twitter.com/LoremIpsumVerb/status/1334876521278955520)
+
+The first ever piece of fanart Tappei received was one of Petelgeuse Romanee-Conti on February 26th of 2013.
+
+The fan-art was quickly supplemented by another one of Rem. The original fanarts can be found here: https://twitpic.com/c722no
+
+(By: nanashi111)
+
+https://twitter.com/nanashi111/status/306458580557635584
+<!--多死两次？
+https://twitter.com/nezumiironyanko/status/316527276785274880
+非官方来源https://frequ.jp/1893
+https://w.atwiki.jp/aniwotawiki/pages/35051.html
+https://wikiwiki.jp/boudai/%E3%83%9A%E3%83%86%E3%83%AB%E3%82%AE%E3%82%A6%E3%82%B9%E3%83%BB%E3%83%AD%E3%83%9E%E3%83%8D%E3%82%B3%E3%83%B3%E3%83%86%E3%82%A3
+过时问答：
+ペテルギウスのファンアートでスバルの死亡回数を増やすほど興奮したといっていましたが、文字だけの感想で同程度の興奮を得たことはありますか。
+
+誰かが２万字ぐらい、びっしりリゼロの考察としかしてくれたらいけるかもしんない
+https://twitter.com/nezumiironyanko/status/306770729557430272-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #190(191)](https://twitter.com/LoremIpsumVerb/status/1335239064820338688)
+
+Tappei has ranked the Witches in terms of common sense before, ranking them in this order: Sekhmet > Carmilla > Daphne > Echidna > Minerva > Typhon
+
+Meanwhile, Satella wasn't included because she doesn't even have a word like that in her dictionary.
+
+[感想板](https://rezero.fandom.com/zh/wiki/%E8%8E%8E%E7%BC%87%E6%8B%89#cite_note-2)老贼2013-06-01 18:45 回复2013-06-01 02:39
+<details>
+<summary>（点击展开）</summary>
+セクメトさんの常識力は魔女の中で一番上です。<br/>
+常識力で比較した場合、<br/>
+セクメト＞カーミラ＞ダフネ＞エキドナ＞ミネルヴァ＞テュフォンの順番になります。<br/>
+今回は下二人が見事に選ばれた形ですね！<br/>
+<br/>
+サテラに関してはそもそもこの常識力検定の比較対象に入りません。<br/>
+彼女の辞書にそんな言葉がないからです。<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -2697,20 +2774,6 @@ A：時間給かなぁ……しかも時価だね。
 
 
 <!-- Other notes:
-首张 fanart 怠惰 https://twitter.com/nanashi111/status/306458580557635584，多死两次？
-https://twitter.com/nezumiironyanko/status/316527276785274880
-非官方来源https://frequ.jp/1893
-https://w.atwiki.jp/aniwotawiki/pages/35051.html
-https://wikiwiki.jp/boudai/%E3%83%9A%E3%83%86%E3%83%AB%E3%82%AE%E3%82%A6%E3%82%B9%E3%83%BB%E3%83%AD%E3%83%9E%E3%83%8D%E3%82%B3%E3%83%B3%E3%83%86%E3%82%A3
-过时问答：
-ペテルギウスのファンアートでスバルの死亡回数を増やすほど興奮したといっていましたが、文字だけの感想で同程度の興奮を得たことはありますか。
-
-1 年多前
-
-誰かが２万字ぐらい、びっしりリゼロの考察としかしてくれたらいけるかもしんない
-https://twitter.com/nezumiironyanko/status/306770729557430272
-
-
 
 莱傲天视角避免
 >どんな話が読みたいかラインハルト視点からの一章の成功ルートも読んでみたいです。
