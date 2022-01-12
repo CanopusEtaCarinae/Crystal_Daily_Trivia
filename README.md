@@ -2290,7 +2290,7 @@ A：0
 
 ---
 
-### [Re: Zero Daily Trivia #163(164)](https://twitter.com/LoremIpsumVerb/status/1325411317071613954)
+#### [Re: Zero Daily Trivia #163(164)](https://twitter.com/LoremIpsumVerb/status/1325411317071613954)
 
 The gap between the start of Arc 2 and the start of Arc 3 has increased a total of three times in Re: Zero. First it was two weeks in the Web Novel. Then it was one month in Volume 4. And from Volume 5 onward, it was increased to two months.
 
