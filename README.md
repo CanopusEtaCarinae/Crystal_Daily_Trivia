@@ -21,9 +21,9 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
 
-[101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141)
+[101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141) &ensp; [150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11)
 
-[150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11) &ensp; [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181)
+[160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2533,6 +2533,81 @@ Ram and Rem's father and mother were called Quark and Temae respectively.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #182(183)](https://twitter.com/LoremIpsumVerb/status/1332329495005630465)
+
+Not many people know that "Nagatsuki Tappei" is also a pen name, just like his pseudonym: "Mouse-Coloured Cat".
+
+"Nagatsuki" comes from an old way of calling the month September, whereas "Tappei" comes from taking some characters from a friend's name.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：長月達平っていうほうの名前ってなんか由来とかあるんですか？ 鼠色猫の由来は見た気がするんですけど<br/>
+A：達平は友人の名前を一文字ずつもらったのと、長月は旧暦の九月でＢ’ｚの稲葉の誕生月です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #183(184)](https://twitter.com/LoremIpsumVerb/status/1332694748977618945)
+
+Regulus' first wife also happened to be his childhood friend. After getting his authority he killed her family and made her his wife.
+
+After her death, she was the only wife Regulus ever made a grave for.
+
+https://twitter.com/iloveritukawai/status/907917531599454209 <br/>
+https://twitter.com/nezumiironyanko/status/907956500714340353
+
+<!--https://twitter.com/nezumiironyanko/status/907960942440280064 儿时朋友自杀？-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #184(185)](https://twitter.com/LoremIpsumVerb/status/1333048950815854593)
+
+The author has mentioned that there was one book that was unusually important to Echidna, to the point it could be said to have changed her fate.
+
+However, being a spoiler, he has decided to keep it secret for now.
+
+（18年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #185(186)](https://twitter.com/LoremIpsumVerb/status/1333429842700800000)
+
+In the Light Novel, Garfiel is known to have hallucinations occasionally where he sees Elsa alive in his field of vision.
+
+The hallucinations first started around two months after he left the Sanctuary; they reflect the weakness of Garfiel's own heart.
+
+（17卷四章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #186(187)](https://twitter.com/LoremIpsumVerb/status/1333783282169724929)
+
+(2020-12-01)
+
+The black dragon Valgren was an evil dragon with three heads which Stride Vollachia summoned in Picoutatte.
+
+To summon it, the lives of twenty people who possessed Divine Protections were sacrificed using the Dragon's Fang dagger.
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
