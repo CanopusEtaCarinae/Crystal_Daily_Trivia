@@ -2401,6 +2401,69 @@ Elsa was able to whittle her body down to merely her head and an arm to escape t
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #171(172)](https://twitter.com/LoremIpsumVerb/status/1328325638399332352)
+
+Curse Dolls who end up losing their maker are regarded as dangerous elements by the Gustekan Holy Church. Great efforts are made to track them down, where they will typically be put to eternal sleep inside the "Sacrament Vault".
+
+（二期BD1特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #172(173)](https://twitter.com/LoremIpsumVerb/status/1328692717812060160)
+
+After faking her death and losing the Imperial Selection, Priscilla married Jorah Pendleton. She didn't hide her true identity when they were about to marry; of course, had Jorah refused her proposal knowing this, Priscilla wouldn't have let him live.
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #173(174)](https://twitter.com/LoremIpsumVerb/status/1329062986657521665)
+
+Ram's ability of Clairvoyance is described as a Divine Protection in the Web Novel version. However, in the Light Novel version, Ram's ability is only referred to as a secret art  that can be inherited within the Oni clan.
+
+https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/629900/ （『千里眼の加護』）
+https://twitter.com/nezumiironyanko/status/791535430839652352 （和[#134(135)](#re-zero-daily-trivia-134135)引用出处一样，不过老贼好像自己也忘了自己在二章Web设定把千里眼写成加护了）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #174(175)](https://twitter.com/LoremIpsumVerb/status/1329433038858629124)
+
+By the time Reinhard was 8 years old, the Kingdom had already issued the "Reinhard law", preventing him from visiting other countries freely.
+
+In the cases where he needs to visit one, he needs explicit permission from their respective head of state
+
+（19年莱傲天生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #175(176)](https://twitter.com/LoremIpsumVerb/status/1329771045889454081)
+
+The author has mentioned that the next time the Witches will show up will be Arc 11.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：魔女たちがみんな可愛くて辛いです。シナリオの展開上４章ではもう出番が無いかもしれませんが、次出るとすれば何章くらいでしょうか？ 差し支えなければ教えていただきたいです。<br/>
+A：最終章
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
