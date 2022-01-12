@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 <!--
-&nbsp; [589](#re-zero-daily-trivia-589)
+&nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
 
 
@@ -2685,6 +2685,103 @@ Meanwhile, Satella wasn't included because she doesn't even have a word like tha
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #191(192)](https://twitter.com/LoremIpsumVerb/status/1335620458448887821
+
+When asked about how the relationship was between the first Sword Saint, Reid Astrea, and the Sage, Flugel, Tappei responded that it was sort of like Gian and Suneo from Doraemon.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：初代剣聖と賢者ってどんな関係だったんですか？<br/>
+A：ジャイアンとスネ夫みたいな関係です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #192(193)](https://twitter.com/LoremIpsumVerb/status/1335948693556572160)
+
+The longest chapters in the Re: Zero Web Novel are as follows:
+
+1. A4 C120: Elior Forest, Glaciated Evermore
+
+2. A4 C129: Choose Me
+
+3. A5 C73: Theresia van Astrea
+
+4. A6 C90: Hero
+
+5. A4 Interlude, Emilia Faction • Warlock • Spirit • Spiritualist
+
+（Web）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #193(194)](https://twitter.com/LoremIpsumVerb/status/1336325781748781060)
+
+The author ranks Reid Astrea, the First Sword Saint, extremely high in terms of power rankings. He is second only to Reinhard van Astrea, beating the likes of Ram (with horn), Regulus, Sekhmet and Puck in his true form.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：初代剣聖のレイドってどれくらい強いんですか？(主にラインハルト基準で)<br/>
+A：昨日、現在の登場人物の強さランキングで５人上げたけど、ラインハルト以外の首を落とせる<br>
+<br>
+https://twitter.com/nezumiironyanko/status/473455745506476032 <br/>
+https://twitter.com/nezumiironyanko/status/473616808612999168
+（从推文日期看问答中提到昨日排名应该是指[#58](#re-zero-daily-trivia-21)引用的问答没错）
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #194(195)](https://twitter.com/LoremIpsumVerb/status/1336705747900575747)
+
+When asked about whether there would be a development involving "Emilia-tan and tentacles" Tappei responded with: "Sure, why not"
+
+And when pressed about if there was a plan to bring out a tentacle-type enemy, the author confirmed that there really was
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：触手型の敵を出す予定はありますか？<br/>
+A：実はあるよ！
+
+Q：エミリアたんが触手に……な展開を期待してもいいですか<br/>
+A：いいよー
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #195(196)](https://twitter.com/LoremIpsumVerb/status/1337058839934414849)
+
+The chapters (on the day itself) that brought the most comments on the "Let's become Novelists" impressions for Re: Zero are:
+
+An Act in the Dragon Carriage / Natsuki Rem - 201
+
+Hero - 192
+
+Natsuki Subaru - 158
+
+■■■ ■■■ - 129
+
+Tower of the Dead - 124
+
+【感想板也能统计么没了解过……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -2765,6 +2862,19 @@ When asked how much it would cost for Anastasia Hoshin to go out on a date with 
 Q：アナスタシアさんはいくらでデートしてくれますか？<br/>
 A：時間給かなぁ……しかも時価だね。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #593](https://twitter.com/LoremIpsumVerb/status/1481289895880667142)
+
+In the world of Re: Zero, there is a lot of Magic that has been lost to antiquity, because people forgot to pass it down or write it down.
+
+However, according to the author, Echidna still remembers them all.
+
+【18年生日问答有条多娜可用世上所有魔法，但感觉和此条强调的点不完全重合，等大佬补充】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
