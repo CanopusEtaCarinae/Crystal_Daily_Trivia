@@ -23,7 +23,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141)
 
-[150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11) &ensp; [160(161)-170(171)](#re-zero-daily-trivia-160161)
+[150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11) &ensp; [160(161)-170(171)](#re-zero-daily-trivia-160161) &ensp; [170(171)-180(181)](#re-zero-daily-trivia-170171)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2319,6 +2319,81 @@ Elsa describes having been turned into a "Curse Doll" by a very wicked man.
 That wicked man's name was Holosseo Featherrun.
 
 （二期BD1特典，15卷gamers？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #166(167)](https://twitter.com/LoremIpsumVerb/status/1326510916909805568)
+
+In Gusteko, there exist special tracts of land known as "Hallowed Lands".
+
+These Hallowed Lands aren't affected by the ice and snow that covers Gusteko, and are where cities are usually built.
+
+The Featherrun estate was built on one such Hallowed Land.
+
+（二期BD1特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #167(168)](https://twitter.com/LoremIpsumVerb/status/1326882452242128896)
+
+Gluttony's surnames are all based off stars.
+
+Rui Arneb → Alpha Leporis in the constellation of Lepus (Hare)
+
+Rai Batenkaitos → Zeta Ceti in the constellation of Cetus (Whale)
+
+Roi Alphard → Alpha Hydrae in the constellation of Hydra (Water Snake)
+
+（[个人私货(https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E9%B2%B8%E9%B1%BC%E5%BA%A7)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #168(169)](https://twitter.com/LoremIpsumVerb/status/1327223002660999168)
+
+Joshua Euculius was eaten by Roi Alphard during the battle for Pristella, entrusting a letter to Schult before the deed was done.
+
+However, in the Side Story depicting this, Otsuka accidentally drew Rai Batenkaitos in the illustration instead of Roi.
+
+（18卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #169(170)](https://twitter.com/LoremIpsumVerb/status/1327594634479071236)
+
+Containing most of Lugunica's population are the capital and the 5 great cities that surround it in the form a 5-pointed star.
+
+The capital has been given a population of 300,000 while the great cities range from having populations of 200,000 - 300,000
+
+<details>
+<summary>（感觉跟[#46](#re-zero-daily-trivia-46)很像：）</summary>
+Q：ルグニカの、王都以外の都市や村ってどんな感じですか？<br/>
+A：王都を中心に、六茫星を描くように人口２０万から３０万クラスの大都市が六つ配置されています。それ以外にも小規模都市が点在、町、村落、集落レベルで下がっていきますね。人間族に限れば大体が村落レベルに住んでますが、亜人は集落レベルを山や森に作って暮らしているケースもあります。仲は積極的にはよくありません。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #170(171)](https://twitter.com/LoremIpsumVerb/status/1327963529517953024)
+
+Curse Dolls show immense regenerative abilities, though some, like Elsa and Ornea, are more naturally suited to being one than others.
+
+Elsa was able to whittle her body down to merely her head and an arm to escape the Featherrun Estate down their well
+
+（二期BD1特典）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
