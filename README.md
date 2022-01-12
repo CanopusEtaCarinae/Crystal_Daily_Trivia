@@ -2686,7 +2686,7 @@ Meanwhile, Satella wasn't included because she doesn't even have a word like tha
 
 ---
 
-#### [Re: Zero Daily Trivia #191(192)](https://twitter.com/LoremIpsumVerb/status/1335620458448887821
+#### [Re: Zero Daily Trivia #191(192)](https://twitter.com/LoremIpsumVerb/status/1335620458448887821)
 
 When asked about how the relationship was between the first Sword Saint, Reid Astrea, and the Sage, Flugel, Tappei responded that it was sort of like Gian and Suneo from Doraemon.
 
@@ -2734,6 +2734,7 @@ A：昨日、現在の登場人物の強さランキングで５人上げたけ�
 https://twitter.com/nezumiironyanko/status/473455745506476032 <br/>
 https://twitter.com/nezumiironyanko/status/473616808612999168
 （从推文日期看问答中提到昨日排名应该是指[#58](#re-zero-daily-trivia-21)引用的问答没错）
+
 </details>
 
 [Return to Content](#Content)<br/>
