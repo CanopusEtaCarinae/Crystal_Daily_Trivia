@@ -2429,7 +2429,7 @@ After faking her death and losing the Imperial Selection, Priscilla married Jora
 Ram's ability of Clairvoyance is described as a Divine Protection in the Web Novel version. However, in the Light Novel version, Ram's ability is only referred to as a secret art  that can be inherited within the Oni clan.
 
 https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/629900/ （『千里眼の加護』）
-https://twitter.com/nezumiironyanko/status/791535430839652352 （和[#134(135)](#re-zero-daily-trivia-134135)引用出处一样，不过老贼好像自己也忘了自己在二章Web设定把千里眼写成加护了）
+https://twitter.com/nezumiironyanko/status/791535430839652352 （和[#133(134)](#re-zero-daily-trivia-133134)引用出处一样，不过老贼好像自己也忘了自己在二章Web设定把千里眼写成加护了）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
