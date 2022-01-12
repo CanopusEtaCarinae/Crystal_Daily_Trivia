@@ -9,7 +9,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95) &nbsp; [99](#re-zero-daily-trivia-99)
 
-[105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160)
+[105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589)
 -->
@@ -23,7 +23,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141)
 
-[150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11) &ensp; [160(161)-170(171)](#re-zero-daily-trivia-160161) &ensp; [170(171)-180(181)](#re-zero-daily-trivia-170171)
+[150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11) &ensp; [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2379,8 +2379,8 @@ The capital has been given a population of 300,000 while the great cities range 
 <details>
 <summary>（王都人口见1卷、EMT王都观光记，大都市人口见ask.fm）</summary>
 Q：ルグニカの、王都以外の都市や村ってどんな感じですか？<br/>
-A：王都を中心に、六茫星を描くように人口２０万から３０万クラスの大都市が六つ配置されています。それ以外にも小規模都市が点在、町、村落、集落レベルで下がっていきますね。人間族に限れば大体が村落レベルに住んでますが、亜人は集落レベルを山や森に作って暮らしているケースもあります。仲は積極的にはよくありません。
-
+A：王都を中心に、六茫星を描くように人口２０万から３０万クラスの大都市が六つ配置されています。それ以外にも小規模都市が点在、町、村落、集落レベルで下がっていきますね。人間族に限れば大体が村落レベルに住んでますが、亜人は集落レベルを山や森に作って暮らしているケースもあります。仲は積極的にはよくありません。<br/>
+<br/>
 （跟[#46](#re-zero-daily-trivia-46)用的ask感觉一样？）
 </details>
 
@@ -2464,6 +2464,75 @@ A：最終章
 
 ---
 
+#### [Re: Zero Daily Trivia #176(177)](https://twitter.com/LoremIpsumVerb/status/1330151333303869449)
+
+The surname "Romanée Conti" comes from the famously expensive wine with the same name, originating originally as a joke. The author was planning on buying a bottle of the wine but immediately stopped when he realised they started from 160,000 Yen.
+
+https://twitter.com/nezumiironyanko/status/907952907185569793
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #177(178)](https://twitter.com/LoremIpsumVerb/status/1330515208813547529)
+
+The author has mentioned that the White Whale, when it wasn't making an appearance, made its home in the Great Waterfall.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：白鯨は神出鬼没で、いつあらわれるかわからないとありましたが、出現していない間はどこにいたのでしょうか。<br/>
+A：大瀑布にいます
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #178(179)](https://twitter.com/LoremIpsumVerb/status/1330858357008310273)
+
+Otto Suwen's characteristic green hat is something his older brother, Oslo Suwen, gave him when he started out as an independent merchant.
+
+（19年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #179(180)](https://twitter.com/LoremIpsumVerb/status/1331247671034728456)
+
+The current head of the Mathers family, Roswaal L. Mathers, does not possess a sense of taste. This is in stark contrast to previous incarnations of his, such as Roswaal J., who had a fondness for fine liquor.
+
+（酒精之乱，剑鬼战歌，[各种味觉相关QA](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E7%BD%97%E5%85%B9%E7%93%A6%E5%B0%94/%E7%8C%AB%E8%AF%AD)，19卷密瓜等）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #180(181)](https://twitter.com/LoremIpsumVerb/status/1331609488743391232)
+
+Leip's chosen knight for Priscilla was Leslie Gabbat, but since she chose Al before the tournament was over, he decided to take revenge. His plans were unsuccessful because Ricardo killed him before he could set his scheme into action.
+
+【据说是一期BD9特典？待验证】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #181(182)](https://twitter.com/LoremIpsumVerb/status/1331982843724111874)
+
+Ram and Rem's father and mother were called Quark and Temae respectively.
+
+（一期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
