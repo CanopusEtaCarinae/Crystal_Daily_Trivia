@@ -2377,9 +2377,11 @@ Containing most of Lugunica's population are the capital and the 5 great cities 
 The capital has been given a population of 300,000 while the great cities range from having populations of 200,000 - 300,000
 
 <details>
-<summary>（感觉跟[#46](#re-zero-daily-trivia-46)很像：）</summary>
+<summary>（王都人口见1卷、EMT王都观光记，大都市人口见ask.fm）</summary>
 Q：ルグニカの、王都以外の都市や村ってどんな感じですか？<br/>
 A：王都を中心に、六茫星を描くように人口２０万から３０万クラスの大都市が六つ配置されています。それ以外にも小規模都市が点在、町、村落、集落レベルで下がっていきますね。人間族に限れば大体が村落レベルに住んでますが、亜人は集落レベルを山や森に作って暮らしているケースもあります。仲は積極的にはよくありません。
+
+（跟[#46](#re-zero-daily-trivia-46)用的ask感觉一样？）
 </details>
 
 [Return to Content](#Content)<br/>
