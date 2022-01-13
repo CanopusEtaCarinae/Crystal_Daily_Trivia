@@ -2783,6 +2783,64 @@ Tower of the Dead - 124
 
 ---
 
+#### [Re: Zero Daily Trivia #196(197)](https://twitter.com/LoremIpsumVerb/status/1337423252969431046)
+
+When asked about where Subaru came from, Tappei mentioned that it was sort of like the last train stop of a train line in the Saitama prefecture (which is located north of Tokyo).
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルの生家は、どちらかというと田舎ですか？都会ですか？<br/>
+A：埼玉県の電車の終点ぐらいの感じ
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #197(198)](https://twitter.com/LoremIpsumVerb/status/1337788337856405504)
+
+In the WN version of Arc 2, Roswaal is shown to have a planner which he frequently jots down stuff in.
+
+When Subaru asked him about it, Roswaal replied that his questions were related to a sacrament of the House Mathers, so he wasn't going to tell him.
+
+（Web二章8节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #198(199)](https://twitter.com/LoremIpsumVerb/status/1338150839035293697)
+
+Aldebaran was specifically allowed by a guard to escape from the Gladiator Island Ginunhive.
+
+The guard let him flee because he saw there was purpose in his eyes, and even went as far as gifting him the custom-made helmet, to aid him with travel funds.
+
+（[特典人物简评](https://tieba.baidu.com/p/5714739713)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #199(200)](https://twitter.com/LoremIpsumVerb/status/1338458693717864451)
+
+The one who typically handles changing Priscilla Barielle's clothing is Schult rather than the maids at the estate. He does so while blushing beet-red.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：プリシラさんの着替えはバーリエル邸の侍女がやってるんですか？
+A：大体はシュルト君が真っ赤になりながらやっています。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+[#200(201)（伪）二百条纪念](https://twitter.com/LoremIpsumVerb/status/1338884650664652803)
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -2893,4 +2951,6 @@ However, according to the author, Echidna still remembers them all.
 
 18年莱傲天生日——男女颜值最高
 魔法强度 无印--…… https://twitter.com/nezumiironyanko/status/1225074727980417025
+
+残香 瘴气 三卷 四章27
 -->
