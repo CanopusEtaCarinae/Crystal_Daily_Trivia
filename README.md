@@ -25,6 +25,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
+[200(201)-205](#200201伪二百条纪念)
+
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -1427,7 +1429,7 @@ Though, if one of them were to die with it in effect, the rest would too.
 
 ---
 
-[#100 百条纪念](https://twitter.com/LoremIpsumVerb/status/1302179903069130753)
+#### [#100 百条纪念](https://twitter.com/LoremIpsumVerb/status/1302179903069130753)
 
 ---
 
@@ -2839,8 +2841,70 @@ A：大体はシュルト君が真っ赤になりながらやっています。
 
 ---
 
-[#200(201)（伪）二百条纪念](https://twitter.com/LoremIpsumVerb/status/1338884650664652803)
+#### [#200(201)（伪）二百条纪念](https://twitter.com/LoremIpsumVerb/status/1338884650664652803)
 
+---
+
+#### [Re: Zero Daily Trivia #202](https://twitter.com/LoremIpsumVerb/status/1339248718097260545)
+
+Valga Cromwell was born a Giant, a race on the verge of extinction. He was born and raised as the slave of a detestable noble, but he was saved from that environment by his benefactor Libre Fermi, fostering a hatred for humans.
+
+（18年罗姆爷生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #203](https://twitter.com/LoremIpsumVerb/status/1339602812569731072)
+
+Because of his Divine Protection, Otto didn't understand the difference between people, animals and bugs; so much so that Tappei mentioned the sort of reaction he has when finding a cockroach is "Isn't it cold there? I think you'd be warmer over here."
+
+（19年年奥托生日）<br/>
+https://twitter.com/nezumiironyanko/status/844951390132756480
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #204](https://twitter.com/LoremIpsumVerb/status/1339982799772807170)
+
+In Volume 25 of the Light Novel, the scene where Reid smacked Roi Alphard's own body against Subaru was removed in favour of Subaru trying to attack him with his whip, getting it grabbed by him and flung up into the air as a result.
+
+（文库25卷改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #205](https://twitter.com/LoremIpsumVerb/status/1340334661239750661)
+
+When compared to animals, Subaru and the Royal Candidates are described as such:
+
+Subaru - A Monkey.
+
+Emilia - A Bunny.
+
+Felt - A Cat.
+
+Crusch  - A Swan.
+
+Anastasia - A Fox.
+
+Priscilla - A Lioness.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルと王候補者を動物に例えると？<br/>
+A：スバル：猿エミリア：兎フェルト：猫クルシュ：白鳥アナスタシア：狐プリシラ：雌ライオン
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -2934,6 +2998,19 @@ In the world of Re: Zero, there is a lot of Magic that has been lost to antiquit
 However, according to the author, Echidna still remembers them all.
 
 【18年生日问答有条多娜可用世上所有魔法，但感觉和此条强调的点不完全重合，等大佬补充】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #594](https://twitter.com/LoremIpsumVerb/status/1481625207563603971)
+
+At the end of Oboreru IF, Ram is shown to be about to kill Subaru out of hatred.
+
+However, according to the author in his notes about the IF, he wasn't so sure whether the reason Ram killed him was out of her own hatred, or some other reason.
+
+（溺水+补充）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
