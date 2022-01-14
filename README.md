@@ -10,6 +10,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [21](#re-zero-daily-trivia-21) &nbsp; [23](#re-zero-daily-trivia-23) &nbsp; [27](#re-zero-daily-trivia-27) &nbsp; [30](#re-zero-daily-trivia-30) &nbsp; [33](#re-zero-daily-trivia-33) &nbsp; [39](#re-zero-daily-trivia-39) &nbsp; [46](#re-zero-daily-trivia-46) &nbsp; [69](#re-zero-daily-trivia-69) &nbsp; [72](#re-zero-daily-trivia-72) &nbsp; [74](#re-zero-daily-trivia-74) &nbsp; [95](#re-zero-daily-trivia-95) &nbsp; [99](#re-zero-daily-trivia-99)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
+
+[206](#re-zero-daily-trivia-206)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -2860,7 +2862,7 @@ Valga Cromwell was born a Giant, a race on the verge of extinction. He was born 
 
 Because of his Divine Protection, Otto didn't understand the difference between people, animals and bugs; so much so that Tappei mentioned the sort of reaction he has when finding a cockroach is "Isn't it cold there? I think you'd be warmer over here."
 
-（19年年奥托生日）<br/>
+（19年奥托生日）<br/>
 https://twitter.com/nezumiironyanko/status/844951390132756480
 
 [Return to Content](#Content)<br/>
@@ -2900,6 +2902,63 @@ Priscilla - A Lioness.
 Q：スバルと王候補者を動物に例えると？<br/>
 A：スバル：猿エミリア：兎フェルト：猫クルシュ：白鳥アナスタシア：狐プリシラ：雌ライオン
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #206](https://twitter.com/LoremIpsumVerb/status/1340704319461572608)
+
+In terms of timing, the author has confirmed that the Sanctuary was created before the Witch of Envy drank in the world.
+
+【12、14卷？感觉应该有更确证的来源】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #207](https://twitter.com/LoremIpsumVerb/status/1341052407795609600)
+
+According to Regulus' named chapter, Regulus is one hundred and some decades old. Putting his age to be likely between 110 and 190 years old.
+
+（19卷强欲名前回）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #208](https://twitter.com/LoremIpsumVerb/status/1341430835380178951)
+
+The first Sword Saint, Reid Astrea, came about 400 years ago; meanwhile, Tappei estimated that if each Sword Saint came about every 50 years, Reinhard would perhaps be the seventh or eighth in line.
+
+Q：ラインハルトって、剣聖何代目なんですか？
+A：初代が４００年前だから、単純に５０年ずつでも、７か８代目ってとこかな。
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #209](https://twitter.com/LoremIpsumVerb/status/1341808923385491457)
+
+When asked about what the heck a Sage was, the author replied that one of its factors was to have the qualifications to attend the tea party, for one.
+
+Q：賢人ってなんなのよ！！！
+A：茶会に出る資格その１。
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #210](https://twitter.com/LoremIpsumVerb/status/1342110822437441537)
+
+Puck's confirmed age is 420 years of age. It's unknown if this includes the time he wasn't a Spirit as well.
+
+（zeropedia，https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/626391）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
