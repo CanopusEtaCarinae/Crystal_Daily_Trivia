@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2834,7 +2834,7 @@ The one who typically handles changing Priscilla Barielle's clothing is Schult r
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：プリシラさんの着替えはバーリエル邸の侍女がやってるんですか？
+Q：プリシラさんの着替えはバーリエル邸の侍女がやってるんですか？<br/>
 A：大体はシュルト君が真っ赤になりながらやっています。
 </details>
 
@@ -2934,8 +2934,11 @@ According to Regulus' named chapter, Regulus is one hundred and some decades old
 
 The first Sword Saint, Reid Astrea, came about 400 years ago; meanwhile, Tappei estimated that if each Sword Saint came about every 50 years, Reinhard would perhaps be the seventh or eighth in line.
 
-Q：ラインハルトって、剣聖何代目なんですか？
+<details>
+<summary>（ask.fm：）</summary>
+Q：ラインハルトって、剣聖何代目なんですか？<br/>
 A：初代が４００年前だから、単純に５０年ずつでも、７か８代目ってとこかな。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -2946,8 +2949,11 @@ A：初代が４００年前だから、単純に５０年ずつでも、７か�
 
 When asked about what the heck a Sage was, the author replied that one of its factors was to have the qualifications to attend the tea party, for one.
 
-Q：賢人ってなんなのよ！！！
+<details>
+<summary>（ask.fm：）</summary>
+Q：賢人ってなんなのよ！！！<br/>
 A：茶会に出る資格その１。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -3026,6 +3032,70 @@ So far, it's unknown which position they hold and whether they are still alive t
 
 ---
 
+#### [Re: Zero Daily Trivia #216](https://twitter.com/LoremIpsumVerb/status/1344287133830414344)
+
+Though rare, "Sky Dragon Ships", which are airship-like devices suspended by chains from Sky Dragons, exist in the Vollachian Empire. They can be set up by those who can control Sky Dragons like Balroy Temeglyph and Miles.
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #217](https://twitter.com/LoremIpsumVerb/status/1344613222024884230)
+
+When eating a Spirit, Arakiya absorbs their properties and can make use of their powers until she digests them. For instance, after eating a water Spirit, she can half-assimilate with water itself, becoming undetectable to aquatic Witchbeasts.
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #218](https://twitter.com/LoremIpsumVerb/status/1344969266957791234)
+
+(2021-01-01)
+
+From Reid Astrea onwards, all direct descendants of the lineage of the Sword Saint have had red hair.
+
+In addition, the author has mentioned he made the Astrea Family redhairs because he likes red hair.
+
+（19、18年莱傲天生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #219](https://twitter.com/LoremIpsumVerb/status/1345367464272670722)
+
+In the olden days, it was common for Giants to reach four or five meters, but Sekhmet killed most of them, and other bloodlines began to mix in, so they have gradually become smaller.
+
+The average height of a giant nowadays is a bit over two meters.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：巨人族は最大サイズでどれくらいまで大きくなるのですか？<br/>
+A：かつては4、5メートルくらいになることも多かったですが、セクメトに種族の大半が殺されて、他の血が混ざり始めてからは徐々に小さくなってます。今は3メートルいったらかなりでかい。平均して2メートルちょい、ロム爺が平均です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #220](https://twitter.com/LoremIpsumVerb/status/1345702939801907200)
+
+Priscilla, Schult, Heinkel and Aldebaran are currently in the Vollachian Empire after the Countess Selena Dracroy helped them in.
+
+（25卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
