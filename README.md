@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -2958,12 +2958,74 @@ A：茶会に出る資格その１。
 
 Puck's confirmed age is 420 years of age. It's unknown if this includes the time he wasn't a Spirit as well.
 
-（zeropedia，https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/626391）
+（Zeropedia，https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/626391 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #211](https://twitter.com/LoremIpsumVerb/status/1342532161916841984)
+
+Petelgeuse Romanee-Conti was confirmed to have an age of 402; however it's unknown if this counts from the moment he was a lesser spirit, or from the moment when he was a spirit.
+
+（Zeropedia，https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949 ）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #212](https://twitter.com/LoremIpsumVerb/status/1342882291400503298)
+
+In the Light Novel, the audience Emilia, Julius, Anastasia & Eridna, and Beatrice had with the Divine Dragon Volcanica has been off-screened from the actual Volume.
+
+（文库25卷改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #213](https://twitter.com/LoremIpsumVerb/status/1343116423179202560)
+
+From all of the people Roswaal has encountered, there have only been a few which he has truly respected for their way of living and convictions rather than their fighting strength.
+
+Wilhelm is one of them.
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #214](https://twitter.com/LoremIpsumVerb/status/1343433074676215808)
+
+The remains of the Witch Typhon held underneath Pristella, which Liliana, Ricardo, Ezzo and Garfiel set out to recover turned out to be the bones from one of her arms.
+
+The group noted that the arm looked small, as if it were a child's
+
+（水门复兴日志〔25卷gamers〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #215](https://twitter.com/LoremIpsumVerb/status/1343879193747218432)
+
+A new Divine General was confirmed in the "Crimson Countess and the Gladiator", Part Two Comic Alive Side Story, called "Olbart Dunkelkenn".
+
+So far, it's unknown which position they hold and whether they are still alive to date.
+
+（赫炎的剑狼，trivia发布时〔2020-12-29〕仍更新中，正篇入七章后已过时）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
