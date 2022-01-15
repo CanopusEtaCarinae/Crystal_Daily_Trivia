@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3341,6 +3341,76 @@ https://twitter.com/nezumiironyanko/status/922798309265125378
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #241](https://twitter.com/LoremIpsumVerb/status/1353333009211138048)
+
+According to the author, none of the Sin Archbishops like killing people, so in a sense, Elsa Granhiert is much more of a dangerous person.
+
+https://twitter.com/nezumiironyanko/status/875306596988968960
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #242](https://twitter.com/LoremIpsumVerb/status/1353702625527681024)
+
+An arm-wrestle between Frederica and Emilia would be pretty evenly matched. The former would win if she transformed into her beast form, while the latter would if otherwise.
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #243](https://twitter.com/LoremIpsumVerb/status/1354069660300410880)
+
+Otto Suwen's Divine Protection of Kotodama allows him to understand the nuance of words or phrases, even when they don't exist in the world.
+
+For example, were Subaru to mention the word "gasoline", he would hear "special oil".
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：オットーの言霊の加護ってスバルの元の世界でしかない言葉の意味も分かりますか?<br/>
+A：ニュアンスだけ伝わります。たとえばスバルが「ガソリンの値上げが最近マジでヤバい。今年中にレギュラー１９０円台にいくかもしんない」と話すと、オットーは「よく燃える特殊な油の値段が近頃高騰していて、購入者は非常に困っている。今年中に通常規格の特殊油の値段は大台に達しそうで恐い」みたいに受け取ります。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #244](https://twitter.com/LoremIpsumVerb/status/1354398869413629954)
+
+When asked about whether a story, whereupon learning the king is absent, spies sent by other countries begin stirring up the people and causing trouble, would occur, the author replied with "Arc 7".
+
+It's \*possible\* this could be adapted to "Emperor".
+
+- Keep in mind, my last sentence is entirely speculation, and the factual information of the trivia is the first one.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：>どんな話が読みたいか 国王がいないと知った他国が送り込んだすぱいが国民を扇動してなんやかんやする話<br/>
+A：７章。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #245](https://twitter.com/LoremIpsumVerb/status/1354756847090204673)
+
+According to the author yesterday, we will find out more about Puck and Emilia, in the context of the beginning of Bond of Ice, when the story reaches around Arc Ten.
+
+（42集实况解说。此Trivia刚好是此集放送第二天〔2021-01-28〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
