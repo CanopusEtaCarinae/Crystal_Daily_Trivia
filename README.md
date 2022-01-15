@@ -3158,6 +3158,69 @@ The author has mentioned that Felt's Divine Protection is "seriously related" to
 
 ---
 
+#### [Re: Zero Daily Trivia #226](https://twitter.com/LoremIpsumVerb/status/1347903461472555009)
+
+The order the Royal Candidates were found in is as follows:
+
+Crusch > Priscilla > Anastasia > Emilia > Felt.
+
+（18年库珥修生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #227](https://twitter.com/LoremIpsumVerb/status/1348278934920687616)
+
+When giving her rant to Subaru in the City Hall about "Admitting his Lust directly", Capella transformed into Emilia in the Light Novel version as she recited her spiel.
+
+（文库17卷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #228](https://twitter.com/LoremIpsumVerb/status/1348608868964835332)
+
+Otto is described to be a bit shorter than Subaru in both the Light Novel & Web Novel versions of the story.
+
+However, the author inadvertently contradicted that in Otto's Character Settings in the Web Novel by making him 177 centimetres tall.
+
+（文库五卷“……顶着一头灰发，看上去比昴还要大一两岁的青年。身高比起昴还要矮一些……”）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #229](https://twitter.com/LoremIpsumVerb/status/1348949268246224896)
+
+Due to Otto's nature, both of his parents developed the ability to stop worrying about him by temporarily forgetting he exists. Otherwise if they worried about him it would never end.
+
+If you were to ask if they're worried, they are, and vice-versa.
+
+（18年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #230](https://twitter.com/LoremIpsumVerb/status/1349315820040683522)
+
+Back when Puck was still with Emilia, he had forbidden her from eating more than two bowls of rice in order to maintain her figure.
+
+However, when stressed, Emilia vented her emotions by eating three bowls and then apologising to Puck.
+
+（17年EMT生日会）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
