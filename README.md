@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3140,7 +3140,7 @@ In all, Aldebaran spent eighteen years in Vollachia, far longer than the time he
 
 Most of his years there were presumably spent fighting in the Gladiator Island Ginunhive.
 
-（放弃追随者之日，刚脱离剑奴身份？）
+（放弃追随者之日，刚脱离剑奴身份？四卷，十八年）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -3221,6 +3221,63 @@ However, when stressed, Emilia vented her emotions by eating three bowls and the
 
 ---
 
+#### [Re: Zero Daily Trivia #231](https://twitter.com/LoremIpsumVerb/status/1349666744911192066)
+
+When transcribed, the title of the book Beatrice threw at Subaru in Episode 7 of the Anime is: "The Four Great Spirits", with the subtitles reading as: "The Beast of the End", "The Dear Mother of the Sacred Teachings" and "The Most Beautiful Shinigami"
+
+（[异世界文字](https://tieba.baidu.com/p/4536936837?see_lz=1)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #232](https://twitter.com/LoremIpsumVerb/status/1350071212400062471)
+
+The van in "van Astrea" is something like an honour bestowed on those of the family who have demonstrated a certain level of accomplishment and skill with the sword.
+
+（Ex3）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #233](https://twitter.com/LoremIpsumVerb/status/1350410392934219776)
+
+Theresia van Astrea never bothered to study magic, thus she never ended up becoming able to use it.
+
+However, the author has confirmed that her affinity would probably be Yang Magic if she could.
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #234](https://twitter.com/LoremIpsumVerb/status/1350790971018113027)
+
+According to the author in an online signing session, broadcasted on NicoNico in 2017, he prefers the Emilia Route in comparison to the "harem" route.
+
+（2017Nico生放送）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #235](https://twitter.com/LoremIpsumVerb/status/1351142624422461441)
+
+There were plans to give Mimi's personal Liger a custom design in Episode 19 of the Re: Zero Anime, however, since it was deemed too cute to send into battle where it could potentially die, it ended up being discarded.
+
+（一期19集实况解说）
+<!--https://twitter.com/nezumiironyanko/status/762323781117288449-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
