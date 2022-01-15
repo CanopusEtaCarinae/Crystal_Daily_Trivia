@@ -3278,6 +3278,69 @@ There were plans to give Mimi's personal Liger a custom design in Episode 19 of 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #236](https://twitter.com/LoremIpsumVerb/status/1351511038391414784)
+
+According to Tappei, had Subaru insulted the Sword Saint and not just the Knights at the Royal Selection, he wouldn't be too sure if Reinhard would have let it pass.
+
+Meanwhile, had Wilhelm been there, he'd have dismissed it as the ramblings of a youth
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：万が一スバル君が王選の場で騎士だけでなく剣聖もバカにしていたら、ラインハルトはともかくヴィル爺にどんな制裁をくらっていましたかね。<br/>
+A：ヴィルヘルムさんはあの場にいなかったのでなんとも。まあ、若造の戯言ぐらい笑って聞き逃しましたし、そもそもラインハルトがそれを聞き逃すとも限りません。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #237](https://twitter.com/LoremIpsumVerb/status/1351868123377528832)
+
+According to the author, Stride Vollachia never once said "I love you", presumably to his wife, Melinda.
+
+【剑鬼战歌 六幕？感觉找得不太准】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #238](https://twitter.com/LoremIpsumVerb/status/1352249557439164418)
+
+When Liliana stayed at the Roswaal Mansion between Arc 2 and 3, Roswaal secretly requested the "Sword Demon Love Song" for himself, to which she obliged and sung it only for him.
+
+Incredibly, Liliana didn't tell anyone about it, despite it being her.
+
+https://twitter.com/nezumiironyanko/status/963010793204678657
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #239](https://twitter.com/LoremIpsumVerb/status/1352595292378558466)
+
+The happy time Roswaal spent obsessed didn't last even more than a few years. However, had it even lasted for a second, he would probably do the same thing.
+
+https://twitter.com/nezumiironyanko/status/961565378957656064
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #240](https://twitter.com/LoremIpsumVerb/status/1352957545812549636)
+
+Heinkel and Louanna's marriage was a political one, due to her stealing Heinkel's heart at first sight. Louanna was gentle of heart and easygoing, and believed, even more than Heinkel himself, that he'd inherit the title of Sword Saint
+
+https://twitter.com/nezumiironyanko/status/922798309265125378
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
