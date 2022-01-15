@@ -3540,6 +3540,19 @@ A：マジ最大のピンチ。歌唱力だとペトラ＞スバル＞ラム＞�
 
 ---
 
+#### [Re: Zero Daily Trivia #596](https://twitter.com/LoremIpsumVerb/status/1482343360845258755)
+
+According to Tappei, there might be a case where the Great Waterfall is visited in the main story sometime in the future.
+
+Though these statements come from 2014, this situation is yet to manifest, thus pegging this scenario for later content.
+
+与[#115](#re-zero-daily-trivia-115)出处相同
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 -->
 
 
