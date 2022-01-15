@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3025,7 +3025,7 @@ A new Divine General was confirmed in the "Crimson Countess and the Gladiator", 
 
 So far, it's unknown which position they hold and whether they are still alive to date.
 
-（赫炎的剑狼，trivia发布时〔2020-12-29〕仍更新中，正篇入七章后已过时）
+（赫炎的剑狼，trivia发布时〔2020-12-29〕进度仅为中篇1。主线七章更新后已过时）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -3096,6 +3096,68 @@ Priscilla, Schult, Heinkel and Aldebaran are currently in the Vollachian Empire 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #221](https://twitter.com/LoremIpsumVerb/status/1346062003773857792)
+
+Tappei Nagatsuki wrote Arcs 1 to 3 of the Re: Zero Web Novel in just under one year.
+
+Meanwhile, it took him over a year to write the entirety of Arc 4, under a year to write Arc 5 and over five years to write Arc 6.
+
+（Web）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #222](https://twitter.com/LoremIpsumVerb/status/1346452727635865600)
+
+Due to being so sickly Joshua Euculius was passed up on becoming a Knight in favor of Julius
+
+However, Joshua wasn't discouraged and began, in conjunction with Julius' ideals, to guide him onto the path of becoming a hero so they could walk it together
+
+（19卷、20卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #223](https://twitter.com/LoremIpsumVerb/status/1346806536946003969)
+
+Otto Suwen typically keeps a small amount of money hidden inside his hat, in case he gets robbed.
+
+（17年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #224](https://twitter.com/LoremIpsumVerb/status/1347133040494051328)
+
+In all, Aldebaran spent eighteen years in Vollachia, far longer than the time he has spent in Lugunica to date.
+
+Most of his years there were presumably spent fighting in the Gladiator Island Ginunhive.
+
+（放弃追随者之日，刚脱离剑奴身份？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #225](https://twitter.com/LoremIpsumVerb/status/1347592142177398785)
+
+The author has mentioned that Felt's Divine Protection is "seriously related" to her parents. As for its true nature, neither she, Old Man Rom or Reinhard are truly aware of it, despite knowing it exists.
+
+（18年菲鲁特生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -3207,6 +3269,24 @@ However, according to the author in his notes about the IF, he wasn't so sure wh
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #595](https://twitter.com/LoremIpsumVerb/status/1482003174533869570)
+
+The Emilia Camp, when ranked in terms of how skilled they are at singing, is as follows according to the author:
+
+Petra > Subaru > Ram > Garfiel > Roswaal > Rem > Otto >> Frederica >> Beatrice >>> Emilia.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：>どんな話を読みたいか国歌斉唱の練習。エミリア陣営最大の危機到来。<br/>
+A：マジ最大のピンチ。歌唱力だとペトラ＞スバル＞ラム＞ガーフィール＞ロズワール＞レム＞オットー＞＞フレデリカ＞＞ベア子＞＞＞エミリア
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 -->
 
 
