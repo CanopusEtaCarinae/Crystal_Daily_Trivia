@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3404,7 +3404,7 @@ A：７章。
 
 According to the author yesterday, we will find out more about Puck and Emilia, in the context of the beginning of Bond of Ice, when the story reaches around Arc Ten.
 
-（42集实况解说。此Trivia刚好是此集放送第二天〔2021-01-28〕）
+（42集实况解说。此Trivia正于此集放送第二天发布〔2021-01-28〕）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -3465,11 +3465,74 @@ Theresia's first words when she first met Reinhard were: "You are Reinhard, a ch
 Despite being the strongest Archbishop in the Witch Cult, Regulus Corneas never once killed Subaru.
 
 （[死亡统计](https://tieba.baidu.com/p/6276813888)）
+<!--43集实况 顺便一提，大罪司教中最强的就是如你所见的『雷古勒斯・柯尔尼亚斯』。其他大罪司教联手也打不过他。虽说大罪司教是绝对不可能联手的就是了。-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #251](https://twitter.com/LoremIpsumVerb/status/1356933346853593088)
+
+The affinities of magic which Mimi, Hetaro and Tivey Pearlbaton are good at are: earth magic, water magic and fire magic respectively.
+
+（18年三姐弟生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #252](https://twitter.com/LoremIpsumVerb/status/1357309487892283398)
+
+According to the author, within the Emilia Camp, only Ram would be sorted into Gryffindor by the sorting hat, whilst the others would be Hufflepuffs.
+
+Whereas, Felt and Reinhard would both be Gryffindors.
+
+https://twitter.com/nezumiironyanko/status/927112855375118336
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #253](https://twitter.com/LoremIpsumVerb/status/1357680438949654529)
+
+Cecilus Segmunt has two of the ten ridiculously powerful swords of Re: Zero in his possession.
+
+He owns the Dream Sword, "Masayume" and the Fiend Sword, ""Murasame".
+
+（Ex4，愤怒IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #254](https://twitter.com/LoremIpsumVerb/status/1358049320902262786)
+
+Pandora wears only that single cloth, likely because she loves keeping things "au naturel".
+
+Even so, wearing that cloth despite that is done out of consideration for the others she holds dear.
+
+（43集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #255](https://twitter.com/LoremIpsumVerb/status/1358407774170996737)
+
+In a one on one fight between Crusch Karsten and Priscilla Barielle, the most likely winner would be the latter, even though it would be a good fight depending on the conditions, according to the author.
+
+（18年库珥修生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -3575,7 +3638,7 @@ At the end of Oboreru IF, Ram is shown to be about to kill Subaru out of hatred.
 
 However, according to the author in his notes about the IF, he wasn't so sure whether the reason Ram killed him was out of her own hatred, or some other reason.
 
-（溺水+补充）
+（愤怒IF+补充）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -3612,6 +3675,18 @@ Though these statements come from 2014, this situation is yet to manifest, thus 
 
 ---
 
+#### [Re: Zero Daily Trivia #597](https://twitter.com/LoremIpsumVerb/status/1482686371903029255)
+
+Garfiel is renown for using the arrogant, masculine pronoun "ore-sama" when referring to himself, which translates to "my amazin' self".
+
+When he cross-dressed as Garnet, he switched to using the more feminine form, "watakushi-sama".
+
+（三马鹿女神像篇）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 -->
 
 
