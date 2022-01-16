@@ -3657,6 +3657,70 @@ The favourite character of the Mangaka of "The Frozen Bond", Tsukahara Minori, i
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #266](https://twitter.com/LoremIpsumVerb/status/1362382172917817346)
+
+The author has confirmed in the past that Echidna is scared of Emilia.
+
+（18年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #267](https://twitter.com/LoremIpsumVerb/status/1362758712868356112)
+
+According to the author, Hector, the Warlock of Tristitia, is among the strongest in the series.
+
+（34集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #268](https://twitter.com/LoremIpsumVerb/status/1363128372273045506)
+
+According to the author in 2014, the character with the highest IQ in Re: Zero is probably Echidna, or possibly a character that has yet to appear.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：リゼロの登場人物の中で一番IQ高いのは誰ですか？<br/>
+A：多分エキドナ。あるいはまだ未登場のキャラの一人。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #269](https://twitter.com/LoremIpsumVerb/status/1363455246815670273)
+
+Despite Anastasia Hoshin being renown for speaking in Kansai Dialect, the one she uses is not actually a specific Kansai Dialect, such as one used in Osaka, Kyoto or such. It's actually a faux-Kansai Dialect.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：アナさんの使う関西弁は、大阪ですか、京都ですか、神戸ですか？<br/>
+A：エセ関西弁です。これもネタバレ。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #270](https://twitter.com/LoremIpsumVerb/status/1363864387765813248)
+
+Out of the three thugs, the one Felt gets on the best with is Rachins (Chin), because he challenges her often to games of Shatranj.
+
+（18年菲鲁特生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
