@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
-[206](#re-zero-daily-trivia-206)
+[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -3533,6 +3533,66 @@ In a one on one fight between Crusch Karsten and Priscilla Barielle, the most li
 
 ---
 
+#### [Re: Zero Daily Trivia #256](https://twitter.com/LoremIpsumVerb/status/1358765115420663810)
+
+Currently, the confirmed "children" that Capella has had under her command are as follows: Elsa Granhiert, Meili Portroute, Sithonia Featherrun, Sakura Element and Reizel.
+
+（二期BD1特典，伪王选候补，Kararagi Girl & Cats' Eye）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #257](https://twitter.com/LoremIpsumVerb/status/1359140240674455553)
+
+Witchbeasts are not as common in The Sacred Vollachian Empire compared to the Kingdom of Lugunica, which is renown in the former land as being a country teeming with them.
+
+（七章第8节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #258](https://twitter.com/LoremIpsumVerb/status/1359477355367006210)
+
+In-world legends say that only dragons know what lie beyond the Great Cascade. It's said that they have a paradise all to themselves on the other side of the cascade, occasionally coming to the continent to stretch their wings.
+
+【有印象这个说法但想不起确切出处了……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #259](https://twitter.com/LoremIpsumVerb/status/1359862359821611010)
+
+According to the author, if Anastasia was managing a restaurant, and ended up in charge of the cooking, it would turn out to be a problem for the public health center.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：アナスタシアさんが飲食店経営したらどうなりますかね？<br/>
+A：調理担当にならなきゃ大丈夫。なるなら保健所案件だ。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #260](https://twitter.com/LoremIpsumVerb/status/1360215220912873473)
+
+Otto Suwen is renown for being followed by bad luck all throughout his life.
+
+According to the author, the reason behind why he's so unlucky, and why he is such a goofy charter, are things that will be explained later on in the story.
+
+【作者说以后会解释奥托霉运？这个原话我确实没找到……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
