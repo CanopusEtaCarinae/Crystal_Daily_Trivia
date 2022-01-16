@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
-[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260)
+[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3588,6 +3588,70 @@ Otto Suwen is renown for being followed by bad luck all throughout his life.
 According to the author, the reason behind why he's so unlucky, and why he is such a goofy charter, are things that will be explained later on in the story.
 
 【作者说以后会解释奥托霉运？这个原话我确实没找到……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #261](https://twitter.com/LoremIpsumVerb/status/1360581909479378945)
+
+Vincent Vollachia was the 77th Emperor of Vollachia. He succeeded from Drizen Vollachia after he defeated Prisca Benedict and the rest of his siblings in the Imperial Selection Ceremony around eight years ago from now.
+
+（红莲的残影）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #262](https://twitter.com/LoremIpsumVerb/status/1360927058625507330)
+
+Tiga Rauleon has the Divine Protection of Insensitivity which protects his body from being interfered with by any outside influences, thus also granting him immunity from Melty Pristis' Evil Eye of Indoctrination.
+
+（伪王选候补）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #263](https://twitter.com/LoremIpsumVerb/status/1361300811008122881)
+
+The Evil Eye Tribe settlement in Faradar had an exam, where once every few years, the children of tribe would test the strength of their Evil Eyes.
+
+It's there where Melty Pristis' extremely powerful Evil Eye of Indoctrination was discovered.
+
+（伪王选候补）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #264](https://twitter.com/LoremIpsumVerb/status/1361677142283722752)
+
+Reinhard van Astrea's name was inspired by Reinhard from "The Legend of the Galactic Heroes".
+
+The author is fond of Kaiser Reinhard, thus that's why he ended up using Reinhard as the name for the strongest character in Re: Zero.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ラインハルトのネタが多いので一つ。ラインハルトの名前の由来ってどこから来てるんですか？<br/>
+A：銀河英雄伝説のカイザーラインハルトです。彼が好きなので最強キャラにはラインハルトと付けようと思っていました。
+<!--https://twitter.com/search?q=%E9%8A%80%E6%B2%B3%E8%8B%B1%E9%9B%84%E4%BC%9D%E8%AA%AC%20(from%3Anezumiironyanko)&src=typed_query&f=top-->
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #265](https://twitter.com/LoremIpsumVerb/status/1361996154368634883)
+
+The favourite character of the Mangaka of "The Frozen Bond", Tsukahara Minori, is: Natsuki Subaru.
+
+【没关注过冰结漫画相关的信息，也没注意过画师推特，等大佬考证……】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
