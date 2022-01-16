@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
-[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265)
+[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3715,6 +3715,72 @@ A：エセ関西弁です。これもネタバレ。
 Out of the three thugs, the one Felt gets on the best with is Rachins (Chin), because he challenges her often to games of Shatranj.
 
 （18年菲鲁特生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #271](https://twitter.com/LoremIpsumVerb/status/1364192388328140801)
+
+Aldebaran, although from Earth, does not remember any of his time on it, or who he was before he came to the world of Re: Zero. He possesses no episodic memories about it.
+
+【Web三章13节或有部分依据，以及ask.fm上有Al完全忘了蛋黄酱的问答，感觉应该还有其他佐证，等大佬补充】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #272](https://twitter.com/LoremIpsumVerb/status/1364557833405104131)
+
+Subaru has cross-dressed on at least three separate occasions.
+
+First of all, when he was in high school, where he decided to debut in drag. Second of all, in "My Fair Bad Lady". And finally, in "Cursed Goddess Statue" along with Otto and Garfiel.
+
+（短篇集3、6。此时〔2021-02-24〕七章未进入女装剧情）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #273](https://twitter.com/LoremIpsumVerb/status/1364921893002874883)
+
+The reason why Priscilla Barielle picked Schult up from near-certain death was because of the colour of his red eyes.
+
+She was also the one who gave him his name.
+
+（Another Memory Snow 寡妇阵营）
+<!--https://twitter.com/nezumiironyanko/status/817732658398535680-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #274](https://twitter.com/LoremIpsumVerb/status/1365268377313431553)
+
+Ram and Rem, despite being introduced as being 17 years of age in Arc 2, had their birthday between Arc 2 and 3.
+
+Meaning that currently the twin sisters are 19 years of age. Although, Rem's body has aged over a year less than Ram, due to being eaten.
+
+（时间黑洞，[#97](#re-zero-daily-trivia-97)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #275](https://twitter.com/LoremIpsumVerb/status/1365638976695058434)
+
+The author has mentioned in the past that there are no cannibals in the world of Re: Zero because he finds them gross.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：リゼロに食人主義者っていますか？<br/>
+A：気持ち悪いからいません。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
