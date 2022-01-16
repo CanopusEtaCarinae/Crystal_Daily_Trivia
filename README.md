@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3411,6 +3411,65 @@ According to the author yesterday, we will find out more about Puck and Emilia, 
 
 ---
 
+#### [Re: Zero Daily Trivia #246](https://twitter.com/LoremIpsumVerb/status/1355118500822577153)
+
+Emilia is a half-elf of unknown age, whose father was an elf, and mother a human.
+
+（42集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #247](https://twitter.com/LoremIpsumVerb/status/1355506528091041800)
+
+Faradar was a settlement in the Vollachian Empire where members of the Evil Eye Tribe lived until the settlement was destroyed some years ago.
+
+（伪王选候补）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #248](https://twitter.com/LoremIpsumVerb/status/1355860105263276032)
+
+Garfiel's canine teeth will keep growing therefore he chews on hard objects to maintain their length and sharpness.
+
+It's not uncommon for Ram or Frederica to flip out at him catching him chewing on one of the mansion's banisters or such.
+
+（Web五章1节）
+<!--https://twitter.com/nezumiironyanko/status/1050866010343976960-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #249](https://twitter.com/LoremIpsumVerb/status/1356224993437376512)
+
+(2021-02-01)
+
+Theresia's first words when she first met Reinhard were: "You are Reinhard, a child that's been blessed by your family. Please remember that before you learn about the world."
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #250](https://twitter.com/LoremIpsumVerb/status/1356594765857509378)
+
+Despite being the strongest Archbishop in the Witch Cult, Regulus Corneas never once killed Subaru.
+
+（[死亡统计](https://tieba.baidu.com/p/6276813888)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
