@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191) &ensp; [200(201)-205](#200201伪二百条纪念)
 
-[211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
+[211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -4072,6 +4072,68 @@ A：俺が眼鏡かけてる人間だからかもしれないけど、眼鏡に�
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #296](https://twitter.com/LoremIpsumVerb/status/1373258807992852487)
+
+According to the author, the following characters would have these vocations if they were in the video game: Dragon Quest.
+
+Garfiel: Warrior
+
+Emilia: Hero
+
+Roswaal: Sage
+
+Subaru: Gadabout
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #297](https://twitter.com/LoremIpsumVerb/status/1373635178371952640)
+
+The Re: Zero Web Novel currently holds the rank of fifth overall on "Let's Become Novelists", the site which Tappei publishes it on.
+
+Only "Slime", "Mushoku Tensei", "Tondemo Skill de Isekai Hourou Meshi" and "Arifureta" are above it.
+
+（2021-03-21，小说排名？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #298](https://twitter.com/LoremIpsumVerb/status/1373970427010224130)
+
+In Volume 19 of the Light Novel, Regulus threw Reinhard so high up in the sky, that he ended up reaching the moon.
+
+Had Regulus not thrown Reinhard towards the moon itself, even Reinhard claimed that things would have been bad for him.
+
+（19卷文库改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #299](https://twitter.com/LoremIpsumVerb/status/1374311022283083776)
+
+Emilia has only ever used "愛してる" (Aishiteru - the strong form of declaring you love someone) with Fortuna.
+
+She is yet, to this date, to use it with Puck, Subaru or any of the others.
+
+（2021-03-23，不知未来会不会变）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [#300 三百条纪念](https://twitter.com/LoremIpsumVerb/status/1374682693913481220)
 
 ---
 
