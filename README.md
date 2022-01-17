@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
-[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271)
+[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271)
+[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3465,7 +3465,9 @@ Theresia's first words when she first met Reinhard were: "You are Reinhard, a ch
 Despite being the strongest Archbishop in the Witch Cult, Regulus Corneas never once killed Subaru.
 
 （[死亡统计](https://tieba.baidu.com/p/6276813888)）
-<!--43集实况 顺便一提，大罪司教中最强的就是如你所见的『雷古勒斯・柯尔尼亚斯』。其他大罪司教联手也打不过他。虽说大罪司教是绝对不可能联手的就是了。-->
+<!--43集实况 顺便一提，大罪司教中最强的就是如你所见的『雷古勒斯・柯尔尼亚斯』。其他大罪司教联手也打不过他。虽说大罪司教是绝对不可能联手的就是了
+Q：今までで出てきた加護、権能の中で一番強いのってなんですか? 相性の問題とかありそうですが。
+A：純粋に戦闘だけで考えるなら、レグルスの権能です。。-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -3787,6 +3789,78 @@ A：気持ち悪いからいません。
 
 ---
 
+#### [Re: Zero Daily Trivia #276](https://twitter.com/LoremIpsumVerb/status/1366008606861254661)
+
+Other than her husband, Wilhelm, the person Theresia van Astrea got on the best with was Carol Remendis. In fact, she found it unfair that Grimm ended up getting to hog Carol all to herself.
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #277](https://twitter.com/LoremIpsumVerb/status/1366381734691037184)
+
+(2021-03-01)
+
+According to the author, if the Royal Candidates were to regress back to childhood, into young girls, they'd probably all get attached to Subaru.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：王選候補者たちが幼児退行……幼女であったとして、どの程度スバル君に懐きますか？<br/>
+A：これが恐ろしいことにたぶん全員なつく。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #278](https://twitter.com/LoremIpsumVerb/status/1366738762307371008)
+
+Despite gathering so many wives, Regulus Corneas was someone who was appaled by the idea of having sex with them.
+
+【这个有没有完全一样的原文或者问答依据……？还是说是读者总结……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #279](https://twitter.com/LoremIpsumVerb/status/1367100106131050498)
+
+Regulus Corneas is the pettiest character in Re: Zero according to the author.
+
+【没太理解这个问题的意思……好像也没有找到哪个问答和这个相似的】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #280](https://twitter.com/LoremIpsumVerb/status/1367456473375248385)
+
+The author once stated he revealed the details of the story to one of his friends, in case anything unfortunate were to happen to him.
+
+Said friend would make the story clear in the event of such an unfortunate tragedy (God forbid of course!)
+
+<details>
+<summary>（好像不止一个问答与此有关……？）</summary>
+Q：お友達が設定を知っているとのことですが、Reゼロの設定を知っている人は何人ぐらいいるのですか？誰か一人くらい書けるようにしておいてください。<br/>
+A：俺の友達にラノベ書ける奴はいないよ。書けたら友達じゃなくなるからね、敵だからね。俺が死んだら素直に諦めてくれい。死後の名声なんて求めてないよ。俺が死んだら俺の話は二度としなくていい。
+
+Q：猫さんがもしもの時は、お友達が完結させてくれるのでしょうか？<br/>
+A：いや、彼に書く能力はないと思う。設定が披露されるだけ。
+
+Q：不慮の事故などでエタったときのためにどこかにプロットだけ残しておいてください<br/>
+A：俺が死んだら友達が全貌を明らかにしてくれる手筈。心配ご無用。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
