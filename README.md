@@ -27,7 +27,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191) &ensp; [200(201)-205](#200201伪二百条纪念)
 
-[211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281)
+[211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -4010,7 +4010,7 @@ However, it wasn't until Re: Zero was novelised that he decided to take up his c
 
 ---
 
-[Re: Zero Daily Trivia #291](https://twitter.com/LoremIpsumVerb/status/1371469224640663554)
+#### [Re: Zero Daily Trivia #291](https://twitter.com/LoremIpsumVerb/status/1371469224640663554)
 
 According to the author, Felix Argyle's three sizes (bust, waist and hip measurements) are "Flat, Slender and Tiny!"
 
@@ -4059,7 +4059,7 @@ https://twitter.com/nezumiironyanko/status/451028236835635202
 Regin Suwen was the first character introduced to canonically wear glasses (as opposed to monocles), despite the author's dislike for them.
 
 <details>
-<summary>【不喜欢眼镜不太确实是不是出自下面这些……：】</summary>
+<summary>【不喜欢眼镜不太确定是不是出自下面这些……：】</summary>
 Q：リゼロのキャラで眼鏡キャラってまだいなかったと思うんですが、今後メガネっ娘が登場する予定とかってありますか？（片眼鏡とかは除いて）<br/>
 A：最近、やたら眼鏡の話が振られるんだけど、これまでの回答で察してください。俺は、眼鏡が、好きでは、ありません。<br/>
 <br/>
