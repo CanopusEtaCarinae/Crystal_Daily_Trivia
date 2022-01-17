@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
-[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279)
+[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -25,9 +25,9 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141) &ensp; [150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11)
 
-[160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191)
+[160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191) &ensp; [200(201)-205](#200201伪二百条纪念)
 
-[200(201)-205](#200201伪二百条纪念) &zwnj; [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03)
+[211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281)
 
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
@@ -3849,10 +3849,10 @@ Said friend would make the story clear in the event of such an unfortunate trage
 <summary>（好像不止一个问答与此有关……？）</summary>
 Q：お友達が設定を知っているとのことですが、Reゼロの設定を知っている人は何人ぐらいいるのですか？誰か一人くらい書けるようにしておいてください。<br/>
 A：俺の友達にラノベ書ける奴はいないよ。書けたら友達じゃなくなるからね、敵だからね。俺が死んだら素直に諦めてくれい。死後の名声なんて求めてないよ。俺が死んだら俺の話は二度としなくていい。
-
+<br/>
 Q：猫さんがもしもの時は、お友達が完結させてくれるのでしょうか？<br/>
 A：いや、彼に書く能力はないと思う。設定が披露されるだけ。
-
+<br/>
 Q：不慮の事故などでエタったときのためにどこかにプロットだけ残しておいてください<br/>
 A：俺が死んだら友達が全貌を明らかにしてくれる手筈。心配ご無用。
 </details>
@@ -3861,6 +3861,71 @@ A：俺が死んだら友達が全貌を明らかにしてくれる手筈。心�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #281（17年问答）](https://twitter.com/LoremIpsumVerb/status/1367825404992569344)
+
+According to the author, Frederica Baumann will likely show up just as normal in the current Arc, Arc Seven. However, her main Arc will be the final Arc: Arc Eleven.
+
+（17年芙蕾生日〔实际问答推迟至次年1月2日〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #282](https://twitter.com/LoremIpsumVerb/status/1368191302261760003)
+
+In the upcoming game, "The Forbidden Book and the Mysterious Spirit", Subaru ends up forming a contract with Fenne, a mysterious Spirit that was sealed in one of the books in the forbidden library. They are mentioned to be a Sage.
+
+【禁书与谜之精灵的剧情确实完全没了解过……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #283](https://twitter.com/LoremIpsumVerb/status/1368559840189161475)
+
+The Witches ordered from tallest to shortest are as follows: Sekhmet > Satella > Echidna > Carmilla > Minerva > Daphne > Pandora > Typhon
+
+<details>
+<summary>【虽然排序可以在ask.fm找到问答，但一直有个疑问：在Re：BOX 2nd 出版前很久就有说法讲Minerva身高152，这个数在以前出自哪我一直没找到……】</summary>
+魔女７人とパンドラちゃんを合わせた８人を背の順で並べてみてください。<br/>
+セクメト＞サテラ＞エキドナ＞カーミラ＞ミネルヴァ＞ダフネ＞パンドラ＞テュフォンですかね。
+<!--https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949/-->
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+##### [Re: Zero Daily Trivia #284](https://twitter.com/LoremIpsumVerb/status/1368938012135014405)
+
+Otto sometimes mentions while drunk that he had quite a reputation of being a playboy, but pretty much everyone dismisses what he says as being lies and for show.
+
+【水平不够实在没翻到出处……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #285](https://twitter.com/LoremIpsumVerb/status/1369261279974686722)
+
+In terms of favourability among the people of their territories, the below characters rank as such, from highest to lowest:
+
+Priscilla > Crusch (with memories) > Roswaal > Felt > Crusch (without memories) > Heinkel > Leip
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ロズっち、クルシュ様、クルシュさま、プリシラ、フェルト、ライプ・バーリエル、ハインケル・アストレア。自領の民からの好感度の高い順は？<br/>
+A：プリシラ、クルシュ様、ロズワール、フェルト、クルシュさま、ハインケル、ライプ
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
