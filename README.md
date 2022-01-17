@@ -3848,10 +3848,10 @@ Said friend would make the story clear in the event of such an unfortunate trage
 <details>
 <summary>（好像不止一个问答与此有关……？）</summary>
 Q：お友達が設定を知っているとのことですが、Reゼロの設定を知っている人は何人ぐらいいるのですか？誰か一人くらい書けるようにしておいてください。<br/>
-A：俺の友達にラノベ書ける奴はいないよ。書けたら友達じゃなくなるからね、敵だからね。俺が死んだら素直に諦めてくれい。死後の名声なんて求めてないよ。俺が死んだら俺の話は二度としなくていい。
+A：俺の友達にラノベ書ける奴はいないよ。書けたら友達じゃなくなるからね、敵だからね。俺が死んだら素直に諦めてくれい。死後の名声なんて求めてないよ。俺が死んだら俺の話は二度としなくていい。<br/>
 <br/>
 Q：猫さんがもしもの時は、お友達が完結させてくれるのでしょうか？<br/>
-A：いや、彼に書く能力はないと思う。設定が披露されるだけ。
+A：いや、彼に書く能力はないと思う。設定が披露されるだけ。<br/>
 <br/>
 Q：不慮の事故などでエタったときのためにどこかにプロットだけ残しておいてください<br/>
 A：俺が死んだら友達が全貌を明らかにしてくれる手筈。心配ご無用。
@@ -3862,7 +3862,7 @@ A：俺が死んだら友達が全貌を明らかにしてくれる手筈。心�
 
 ---
 
-#### [Re: Zero Daily Trivia #281（17年问答）](https://twitter.com/LoremIpsumVerb/status/1367825404992569344)
+#### [Re: Zero Daily Trivia #281](https://twitter.com/LoremIpsumVerb/status/1367825404992569344)
 
 According to the author, Frederica Baumann will likely show up just as normal in the current Arc, Arc Seven. However, her main Arc will be the final Arc: Arc Eleven.
 
@@ -3890,8 +3890,8 @@ The Witches ordered from tallest to shortest are as follows: Sekhmet > Satella >
 
 <details>
 <summary>【虽然排序可以在ask.fm找到问答，但一直有个疑问：在Re：BOX 2nd 出版前很久就有说法讲Minerva身高152，这个数在以前出自哪我一直没找到……】</summary>
-魔女７人とパンドラちゃんを合わせた８人を背の順で並べてみてください。<br/>
-セクメト＞サテラ＞エキドナ＞カーミラ＞ミネルヴァ＞ダフネ＞パンドラ＞テュフォンですかね。
+Q：魔女７人とパンドラちゃんを合わせた８人を背の順で並べてみてください。<br/>
+A：セクメト＞サテラ＞エキドナ＞カーミラ＞ミネルヴァ＞ダフネ＞パンドラ＞テュフォンですかね。
 <!--https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949/-->
 </details>
 
