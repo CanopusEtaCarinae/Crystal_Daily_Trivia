@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
-[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284)
+[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -3926,6 +3926,89 @@ A：プリシラ、クルシュ様、ロズワール、フェルト、クルシ�
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
+---
+
+#### [Re: Zero Daily Trivia #286](https://twitter.com/LoremIpsumVerb/status/1369622168582184962)
+
+Sometime after losing her memories, Crusch Karsten decided she wanted to pick out Ferris' outfit. The one she picked out was something she'd chosen before and given to him. And although Ferris tried to resist, he ended up crying.
+
+（18年库珥修生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #287](https://twitter.com/LoremIpsumVerb/status/1370000692300156930)
+
+Out of a rating from 1-10, Garfiel's friendship levels with these characters are as follows:
+
+Subaru: 10
+
+Otto: 10
+
+Ram: 10
+
+Frederica: 10
+
+Ryuzu: 10
+
+Petra: 8
+
+Emilia: 7
+
+Beatrice: 6
+
+Roswaal: 4
+
+（17年加菲猫生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #288](https://twitter.com/LoremIpsumVerb/status/1370349409280651270)
+
+Contrary to popular belief, Re: Zero was originally planned to have nine arcs, not ten.
+
+Sometime after Arc two was added, Tappei decided to add yet another Arc to the story, pushing the total to eleven. The Arc he decided to add in the end is unknown
+
+
+https://mobile.twitter.com/nezumiironyanko/status/378871937499279361
+
+【看起来是出自 https://mobile.twitter.com/nezumiironyanko/status/378871937499279361 和[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)，不过不太确定……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #289](https://twitter.com/LoremIpsumVerb/status/1370714054587744257)
+
+Contrary to popular belief, Re: Zero is not Tappei's only Web Novel, nor his first publication on "Let's Become Novelists"
+
+He has published six other non-Re: Zero related shorts, with his first one being a short called "Another Little Red Riding Hood"
+
+（https://mypage.syosetu.com/mypage/novellist/userid/235132/ https://tieba.baidu.com/p/6555819474）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #290](https://twitter.com/LoremIpsumVerb/status/1371096035527909377)
+
+The author of Re: Zero's Web Novel pen-name is "Nezumiironeko" otherwise translated as "Grey Cat".
+
+However, it wasn't until Re: Zero was novelised that he decided to take up his current pen-name: "Nagatsuki Tappei".
+
+【也算不上应不应该找什么出处依据，暂且留个详细出处待定了】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
