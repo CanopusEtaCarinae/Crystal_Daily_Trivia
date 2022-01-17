@@ -11,7 +11,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
-[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290)
+[206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -4009,6 +4009,72 @@ However, it wasn't until Re: Zero was novelised that he decided to take up his c
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+[Re: Zero Daily Trivia #291](https://twitter.com/LoremIpsumVerb/status/1371469224640663554)
+
+According to the author, Felix Argyle's three sizes (bust, waist and hip measurements) are "Flat, Slender and Tiny!"
+
+（17年菲利斯生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #292](https://twitter.com/LoremIpsumVerb/status/1371801455041126403)
+
+Although it isn't explained how, for some reason Puck knew about Subaru's love letter to his kindergarten teacher in Volume 13, even though Subaru never told him or anyone else about it.
+
+（13卷，虽然我一直觉得只是486用帕克雷同的回答自爆黑历史……）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #293](https://twitter.com/LoremIpsumVerb/status/1372153063448936450)
+
+Had Subaru and the others brought Reinhard to the tower in Arc Six, the difficulty level would have gone up due to Reid.
+
+（19年莱傲天生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #294](https://twitter.com/LoremIpsumVerb/status/1372513018001641473)
+
+If the author had found the time, according to a Twitter post of his, he would have included: Beatrice, the Witches, the three Pearlbaton triplets, and even the guys in the Harem IF.
+
+https://twitter.com/nezumiironyanko/status/451028236835635202
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #295](https://twitter.com/LoremIpsumVerb/status/1372875783266570241)
+
+Regin Suwen was the first character introduced to canonically wear glasses (as opposed to monocles), despite the author's dislike for them.
+
+<details>
+<summary>【不喜欢眼镜不太确实是不是出自下面这些……：】</summary>
+Q：リゼロのキャラで眼鏡キャラってまだいなかったと思うんですが、今後メガネっ娘が登場する予定とかってありますか？（片眼鏡とかは除いて）<br/>
+A：最近、やたら眼鏡の話が振られるんだけど、これまでの回答で察してください。俺は、眼鏡が、好きでは、ありません。<br/>
+<br/>
+Q：モバマスに眼鏡を布教しまくる上条春奈(通称メガキチ)というアイドルがいるのですが猫さんの天敵でしょうね<br/>
+A：眼鏡の質問ぶつける人が同じ人かどうかわからないけど、ここ二、三日で完全に眼鏡キャラが嫌になったよ。今の俺の天敵は眼鏡キャラより、眼鏡の話題を振ってくる人だ。<br/>
+<br/>
+Q：普段眼鏡をかけていない人の眼鏡にはギャップ萌えというものがあってですね。小鳥遊ぷにゅるちゃんとか。<br/>
+A：俺が眼鏡かけてる人間だからかもしれないけど、眼鏡にはこれといって魅力を感じない。あと、すごい名前のそのキャラは知らないです不勉強ですんまそん。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -4158,6 +4224,17 @@ Garfiel is renown for using the arrogant, masculine pronoun "ore-sama" when refe
 When he cross-dressed as Garnet, he switched to using the more feminine form, "watakushi-sama".
 
 （三马鹿女神像篇）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #598](https://twitter.com/LoremIpsumVerb/status/1483067365613092867)
+
+Otto was originally specified to be right-handed by the author in 2017. However, this changed after the airing of Re: Zero Breaktime, where Otto was shown writing with his left hand. The author then confirmed this change on Twitter.
+
+（17年生日说没意外都惯用右手，二期SP实况：https://twitter.com/nezumiironyanko/status/1281544404721758209）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
