@@ -12,6 +12,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [105](#re-zero-daily-trivia-105) &nbsp; [159(160)](#re-zero-daily-trivia-159160) &nbsp; [180(181)](#re-zero-daily-trivia-180181)
 
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
+
+[205](#re-zero-daily-trivia-205)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -29,6 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
+[301-310](#re-zero-daily-trivia-301)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4137,6 +4140,66 @@ She is yet, to this date, to use it with Puck, Subaru or any of the others.
 
 ---
 
+#### [Re: Zero Daily Trivia #301](https://twitter.com/LoremIpsumVerb/status/1375063632191619079)
+
+According to Beatrice, it's a fact that Dragon Blood has been valued as a catalyst of ma\* since olden times.
+
+
+（26卷文库改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #302](https://twitter.com/LoremIpsumVerb/status/1375418215803785218)
+
+When dressing in women's clothing, Reinhard van Astrea would be very good-looking if he took it seriously; however he still wouldn't be able to beat Subaru at it. According to the author, this may be the only thing Subaru can beat Reinhard at.
+
+（[Nico生放送](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:Nico%E7%94%9F%E6%94%BE%E9%80%81)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #303](https://twitter.com/LoremIpsumVerb/status/1375780971899973636)
+
+Rem and Ram's names were decided on by the author, drawing inspiration from the words "Left" and "Right", in English.
+
+（[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)）
+<!--ttps://twitter.com/______TOS/status/815932060472725504-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #304](https://twitter.com/LoremIpsumVerb/status/1376144815998517251)
+
+The Buddheim Jungle is situated in the far east of Vollachia, bordering right next to the Great Waterfall.
+
+Perched atop a cliff facing it, is a graveyard where the souls of the Emperors of yore are buried.
+
+（26卷gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #305](https://twitter.com/LoremIpsumVerb/status/1376490693322022917)
+
+According to Tappei in a 2014 Nico Nico Live, the Web Novel: "Ikai no Majutsushi" was how he learnt about Narou, the site where he would later publish Re: Zero to.
+
+He considers Ikai no Majutsushi to be one of the most memorable works he's read to date
+
+【14年Nico生放送咱有资源么……？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
