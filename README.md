@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4290,6 +4290,82 @@ A：上手く、ならロズワール。強力、ならパックです。
 
 ---
 
+#### [Re: Zero Daily Trivia #311](https://twitter.com/LoremIpsumVerb/status/1378680821855453185)
+
+The Beast Protection Bracelet, owned by Colette, is a Meteor that allows her to transform into something bestial to protect against danger.
+
+She gains a rapid influx of mana, strengthening her, in exchange for losing most of her capabilities to reason.
+
+（魔女的条件）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #312](https://twitter.com/LoremIpsumVerb/status/1379030697013358599)
+
+Hornette, the "Empress" of the Gladiator Island Ginunhive seven years ago, was regarded to be as powerful as a Divine General.
+
+According to Al back then, she was either the third or fourth most powerful person he'd ever encountered.
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #313](https://twitter.com/LoremIpsumVerb/status/1379403035101790212)
+
+While often compared, Re: Zero started roughly 7 months before Mushoku Tensei began to be written on Narou.
+
+However, both series were serialised as Light Novels roughly at the same time, with each Volume 1 respectively coming out on: January 23, 2014.
+
+（无职我没了解……反正应该不难查罢）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #314](https://twitter.com/LoremIpsumVerb/status/1379746843823910913)
+
+There have only been six Kings since Farsale Lugunica, 35th King of Lugunica, ascended the throne sometime over 400 years ago.
+
+King Randohal Lugunica, 41st King of Lugunica, was the last one before the Royal Family died to disease.
+
+（六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #315](https://twitter.com/LoremIpsumVerb/status/1380099794887192576)
+
+The Kararagi City States are comprised of ten great cities, which are numbered from one to ten. The ones that have been revealed are as follows:
+
+The First City: Kyo
+
+The Second City: Banan
+
+The Third City: Ivada
+
+The Fourth City: Fusumi
+
+（第一、第二都市：安娜系列短篇，蕾姆IF系列；第四都市见蕾姆IF『fortune·fish head tree』；第三都市见禁书与谜之精灵设定）
+
+https://twitter.com/LoremIpsumVerb/status/1366385576291803137
+
+https://twitter.com/rezeroyumiya/status/1366359095867969543
+
+https://twitter.com/rezeroyumiya/status/1381572004692721665
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -4455,6 +4531,20 @@ Otto was originally specified to be right-handed by the author in 2017. However,
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #599](https://twitter.com/LoremIpsumVerb/status/1483419083253207046)
+
+According to the author, Otto Suwen likes spicy and bitter food the most.
+
+It's to the point where he can easily eat bitter food that would make even Ram scrunch her face up, and say "Blargh".
+
+（18年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 -->
 
 
