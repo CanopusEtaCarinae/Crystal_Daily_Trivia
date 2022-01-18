@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301)
+[301-310](#re-zero-daily-trivia-301) (21-04)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4200,6 +4200,96 @@ He considers Ikai no Majutsushi to be one of the most memorable works he's read 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #306](https://twitter.com/LoremIpsumVerb/status/1376880084531957761)
+
+According to the author, if Aldebaran were to eat mayonnaise, his body would reject it, and he would barf it back up.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：アルデバランがマヨネーズを食べる可能性は・・・食べられた時の反応をば・・・<br/>
+A：体が拒否反応起こしてゲロ吐きます
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #307](https://twitter.com/LoremIpsumVerb/status/1377220769323814913)
+
+The order in which the IFs were published in the Web Novel are as follows:
+
+Fragments: Natsuki Rem (2013)
+
+Butterfly's Dream (2014)
+
+School IF Part 1 & 2 (2015)
+
+Kasaneru (2016)
+
+Ayamatsu (2017)
+
+Oboreru (2018)
+
+Tsugihagu (2019)
+
+School IF Part 3 (2020)
+
+（Web IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #308](https://twitter.com/LoremIpsumVerb/status/1377615373797888000)
+
+(2021-04-01)
+
+According to the author in 2014, the easiest character he finds to write is Otto Suwen, and the hardest Emilia.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：いままでで一番難産or安産だったキャラはなんですか？<br/>
+A：安産はオットー。難産はいつもエミリアたん
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #309](https://twitter.com/LoremIpsumVerb/status/1377960462898372609)
+
+According to the author, there were times where Geuse switched into bodies of women during his long time together with Fortuna. Despite that, Fortuna is a person who judges based on what's on the inside, rather than outward appearances
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エミリヤの母親はジュースに惹かれていましたけど、ジュースの肉体が代わっても愛せるのですかね？<br/>
+A：俺の前でエミリアを『レミリア』だの『エミリヤ』だの間違えるな。どれぐらい失礼なのか考えろ。フォルトナさんは文字通り中身で判断する人です。長い付き合いの中、ジュースの外見が女性だったことだってあります。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #310](https://twitter.com/LoremIpsumVerb/status/1378320559465971715)
+
+According to the author, between Roswaal and Puck, the one who can handle fire mana more skillfully is Roswaal. However, if it's about sheer power, then it's Puck.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：「赤」のロズワールとパックはどちらの方が上手く火のマナを扱えるんでしょうか？<br/>
+A：上手く、ならロズワール。強力、ならパックです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
