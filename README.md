@@ -13,7 +13,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 
-[305](#re-zero-daily-trivia-305)
+[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -4366,6 +4366,63 @@ https://twitter.com/rezeroyumiya/status/1381572004692721665
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+####[Re: Zero Daily Trivia #316](https://twitter.com/LoremIpsumVerb/status/1380472339675152395)
+
+Frederica canonically wears flashy underwear, as a hidden design decision by the author.
+
+According to a Q&A, if she were to wear casual clothing, there would be a vague hope that she'd wear some on the sexy side of things.
+
+（17年芙蕾生日〔实际问答推迟至次年1月2日〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #317](https://twitter.com/LoremIpsumVerb/status/1380833200281415680)
+
+In the WN Version, Aldebaran and Subaru's talk about being from the same homeland took place in a room in the basement of the Royal Castle. They confirmed their homeland by Al saying the first half of a Japanese saying, and Subaru completing the latter
+
+（Web三章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #318](https://twitter.com/LoremIpsumVerb/status/1381197648686936074)
+
+Despite appearances, Liliana Masquerade is in actual fact older than Priscilla Barielle. She is 22 years old, whereas Priscilla is only 19.
+
+（寡妇年龄可能有问题，见推文回复）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #319](https://twitter.com/LoremIpsumVerb/status/1381552640232984576)
+
+According to the author, even if Elsa Granhiert had grown up in a normal home loved by her parents, she would still at some point awaken to the beauty of bowels, throw away all her life up to that point, and become the Bowel Hunter.
+
+（18年猎肠生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #320](https://twitter.com/LoremIpsumVerb/status/1381911592569290754)
+
+The Spirit Julius first contracted with was the Quasi-Spirit of Fire, Ia. And from them, Ia was also the Quasi-Spirit whom the author has stated Julius was best friends with, at least, back when he had his name.
+
+【18年6154生日，不过“at least, back when he had his name”我好像没太理解出处是哪……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -4545,6 +4602,9 @@ It's to the point where he can easily eat bitter food that would make even Ram s
 
 ---
 
+#### [#600 六百条纪念](https://twitter.com/LoremIpsumVerb/status/1483856808116736005)
+
+---
 -->
 
 
