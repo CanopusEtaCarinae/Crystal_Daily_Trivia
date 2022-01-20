@@ -4469,7 +4469,7 @@ In terms of how heavy of a drinker they are, the Royal Candidates rank as follow
 
 Priscilla > Crusch > (Heavy Drinkers) > Anastasia > (Can drink as much as you want without getting drunk) > Felt > (Normal) > (Little Kids) > Emilia
 
-（18年库珥修生日，fandom未收录）
+（18年库珥修生日，fandom未收录）<br/>
 https://twitter.com/nezumiironyanko/status/981563827278901248
 
 [Return to Content](#Content)<br/>
@@ -4484,6 +4484,69 @@ In the Light Novel version of Arc 6, the loop where Subaru first died to the Cen
 Instead, Subaru, Ram, Echidna and Patrasche travel through the right path first, leading to them meeting their end in the "hellcave".
 
 （21卷文库改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #326](https://twitter.com/LoremIpsumVerb/status/1384119734904311820)
+
+According to the author, Echidna's parents were trash, who were also at fault for Echidna's inability to understand emotion, a trait that she was born with.
+
+（19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #327](https://twitter.com/LoremIpsumVerb/status/1384433489446121473)
+
+In the Web Novel version of Arc Two, after returning to his mansion, Roswaal and Subaru end up in a staring contest that culminated in Roswaal accidentally kissing Subaru on the forehead.
+
+This led to Subaru uppercutting Roswaal.
+
+【Web二章？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #328](https://twitter.com/LoremIpsumVerb/status/1384820399725326337)
+
+Though numbers are hard to estimate, Nagatsuki Tappei has published at least over 150 individual pieces of Re: Zero Side Story content that are not part of the main story.
+
+If publications on Narou are counted, then this number shoots up to over 175.
+
+【没具体数过……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #329](https://twitter.com/LoremIpsumVerb/status/1385174689388056577)
+
+Despite having brown skin in the EX Illustration, Arakiya, when first introduced in Part One of Crimson Afterglow, was described to have white skin.
+
+However, this was quickly retconned in Part Three of the same publication to brown after EX4 came out.
+
+（红莲杂志版前篇2节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #330](https://twitter.com/LoremIpsumVerb/status/1385524118527873024)
+
+On June the Second, 2013, the author stated to a fan that Re: Zero would take four years to complete at his current pace.
+
+This was before Re: Zero was novelised or had an Anime.
+
+https://twitter.com/nezumiironyanko/status/341240005617917952
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
