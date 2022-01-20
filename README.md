@@ -13,7 +13,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 
-[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350)
+[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -4930,7 +4930,7 @@ A：自分がその変態の好きな蝿になる。尽くす女だから当然�
 
 Despite being a key piece to Tsugihagu Subaru's plans to patch himself together, Rem was not mentioned even a single time in the story itself.
 
-Since she was eaten by Gluttony, it's supposed that she would not have a Book of the Dead. 
+Since she was eaten by Gluttony, it's supposed that she would not have a Book of the Dead.
 
 【[暴食if补充](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/2282151/)，[不过零大和拉姆前辈说](https://tieba.baidu.com/p/6088307483)是白纸来着？不确定是不是翻译问题】
 
@@ -4938,6 +4938,71 @@ Since she was eaten by Gluttony, it's supposed that she would not have a Book of
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #361](https://twitter.com/LoremIpsumVerb/status/1396808676116246529)
+
+According to the author, if Subaru hadn't been summoned to another world, he'd have been told off by Kenichi around the time he would have graduated High School. He'd then be supported to return to society in Kenichi's Workplace. Subaru would then take ~two years to enter university, graduate (though as a loner), become a proper, full-fledged member of society, and while having a certain amount of composure, plus the merits of those essentials, he would honestly be living life as a full-fledged member of society.
+
+He'd then cling to a kouhai, who has a heart like Rem's, who finds the fact he's a dolt cute. They would enjoy a normal marriage and live reasonably happily ever after.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルがあのまま異世界いかないまま育っていたら無職直行ですかね？無職からはじまる異世界生活とかだったらズバルどうなりますかね？スペック高校生以下のおっさんが異世界突入だったら絶望しかないかな。<br/>
+A：いえ、あのまま残っていたら、高校卒業したあたりで賢一に叱られて引きこもりを離脱させられ、賢一の職場で社会復帰の後押しをされます。その後、二年ほど時間をかけて大学に入り、ボッチながらも卒業してちゃんと社会人になって、そこそこの要領のよさとそれなりの落ち着きを身につけたことでまともに社会人として生活し、ヘタレながらもそれを可愛いと思ってくれるレム的な心を持った後輩の女の子とくっつき、普通に結婚して適当に幸せに生きて没します。あの父ちゃんが息子にそんな無責任し続けるわけないやん？
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #362](https://twitter.com/LoremIpsumVerb/status/1397168030518501377)
+
+According to Tappei in 2014, the reason he posts Web Novel Chapter updates at 1 a.m. JST, is because he doesn't finish writing until a minute before that time, and so to be a pest to everyone who somehow managed to stay awake for it.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：1時更新の理由がみんなの翌日に影響するためだそうですが、場合によっては1時近くまで書き終わらない猫さんの翌日は大丈夫なんですか？<br/>
+A：みんなを苦しませるためだから、我慢します<br/>
+<br/>
+Q：いつも1時まで起きている時に限って更新が無いんですけど、なんでこんなに運が悪いのでしょうか<br/>
+A：悔い改めよ、されば救われん。<br/>
+<br/>
+Q：なぜ午前1時投稿なんですか？<br/>
+A：そらの時間一分前まで書き終わってないのと、ギリギリ起きてられるみんなへの嫌がらせ。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #363【【采访？18年库问答、寡问答？】】](https://twitter.com/LoremIpsumVerb/status/1397526113644163080)
+
+In an interview commemorating the release of Memory Snow, Tappei stated that Emilia was unmistakably his favourite character when asked to state whom.
+
+He mentioned she was his number one, and everyone else was number two, with that being unshakable.
+
+【采访不知道是哪个采访……虽然在[18年库珥修生日](https://twitter.com/nezumiironyanko/status/981565028921823232)和[寡妇生日](https://twitter.com/nezumiironyanko/status/1038426684809043968)都强调过EMT第一的事】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #364](https://twitter.com/LoremIpsumVerb/status/1397900622112952325)
+
+The Dragon News is a newspaper that circulates around the Kingdom of Lugunica. Half a year after the start of the Royal Selection was called, it began to conduct pieces on the candidates, gathering news about them on how the people view them.
+
+（Lugunican Papers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [#365 周年纪念](https://twitter.com/LoremIpsumVerb/status/1398251148440752128)
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
