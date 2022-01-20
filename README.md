@@ -5132,6 +5132,70 @@ Delirious from her burns, she cast herself from the spire window so she could di
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #376](https://twitter.com/LoremIpsumVerb/status/1402237503432802308)
+
+According to the author, the dress Subaru used, the time he dressed up as Natsumi in the mansion, belonged to Frederica.
+
+Surprisingly, the two of them have done stuff like dress-shared, though without getting Frederica's permission.
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #377](https://twitter.com/LoremIpsumVerb/status/1402594724582772740)
+
+Stride bringing Roswaal J Mathers up to the spire rooftop and flashing her his rings was actually instructed to him by a mysterious "deranged criminal" who also gave him his Gospel.
+
+He was only allowed to do as he pleased after carrying out this order
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #378](https://twitter.com/LoremIpsumVerb/status/1402967872004149251)
+
+Garfiel challenging Reinhard to a duel was cut in Volume 16. Instead, Garfiel attacks Reinhard when he first sees him by partially transforming his arm into his beast-form one.
+
+Reinhard easily blocks his claw attack and apologises for surprising him.
+
+（21卷文库改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #379](https://twitter.com/LoremIpsumVerb/status/1403319025380347908)
+
+Heinkel Astrea's name was given to him by Bertol, Theresia's father. He wrote down a series of names on a piece of paper, which was given to Wilhelm after his death, in which he had circled the name "Heinkel" after crossing out several others.
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #380](https://twitter.com/LoremIpsumVerb/status/1403664885565755393)
+
+In Volume 20, the Artificial Spirit Echidna felt like it could be her fate to get them to the Pleiades Watchtower, if she were not to mince her words.
+
+A fate that likely was determined by her creator, the Witch of Greed Echidna.
+
+（文库20卷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
