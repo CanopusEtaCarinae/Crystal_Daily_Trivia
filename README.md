@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -5318,6 +5318,72 @@ Despite having him with Roswaal J. Mathers, the two did not marry.
 
 ---
 
+#### [Re: Zero Daily Trivia #391](https://twitter.com/LoremIpsumVerb/status/1407658005840150531)
+
+Marcos Gildark's father, Razak Gildark, perished during the battle to subjugate the Blight Dragon Valgren.
+
+He gave away his own life there just so he could save Rickert Hoffman, who had been visiting Picoutatte.
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #392](https://twitter.com/LoremIpsumVerb/status/1408018330527666181)
+
+Otto Suwen's known family is as follows:
+
+- Yaktol Suwen : Grandfather
+
+- Mazeran Suwen : Father
+
+- Framir Suwen : Mother
+
+- Oslo Suwen : Elder Brother
+
+- Regin Suwen : Younger Brother
+
+（17年奥托生日〔父母，哥哥〕，文库18卷〔哥哥〕，18年奥托生日〔兄弟〕，土蜘蛛〔弟弟〕，19年奥托生日，Ex3〔祖父〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #393](https://twitter.com/LoremIpsumVerb/status/1408384626738008065)
+
+Todd's full name is "Todd Fang". His surname was revealed in the latest Shop Special Side Story.
+
+（27卷gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #394](https://twitter.com/LoremIpsumVerb/status/1408751431356719106)
+
+According to Beatrice, true Dragons, represented by the Kanji 龍 can be thought to be like beings that resemble a giant clump of mana. Whereas, lesser dragons, represented by the Kanji 竜 are not like that, pinning that as the main difference.
+
+（27卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #395](https://twitter.com/LoremIpsumVerb/status/1409114653444251648)
+
+After entreating the Divine Dragon Volcanica to protect the Watchtower, Emilia was given a fragment of his sharp, jet-black talon to act as a token, to protect them were they to come back to the tower.
+
+（27卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
