@@ -4837,14 +4837,14 @@ This was before his dream of becoming a novelist. Thus, this implies the inciden
 （[七章22节后记](https://ncode.syosetu.com/n2267be/525/)<br/>
 https://twitter.com/nezumiironyanko/status/1392895691597389828<br/>
 https://twitter.com/nezumiironyanko/status/1392897240507637761<br/>
-https://twitter.com/nezumiironyanko/status/1392898803548581891<br/>
+https://twitter.com/nezumiironyanko/status/1392898803548581891 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
 
-#### [Re: Zero Daily Trivia #354（46实况）](https://twitter.com/LoremIpsumVerb/status/1394249563209412608)
+#### [Re: Zero Daily Trivia #354](https://twitter.com/LoremIpsumVerb/status/1394249563209412608)
 
 Though he did not explicitly state it, the author has released a ranking regarding whose intestines Elsa would be most interested in.
 
@@ -4872,6 +4872,72 @@ He was a regular in Flanders' red-light district.
 
 ---
 
+#### [Re: Zero Daily Trivia #356](https://twitter.com/LoremIpsumVerb/status/1394986383798939653)
+
+Rachins, also known as "Chin" from the Tonchinkan trio, is in fact a runaway noble from the distinguished Hoffman family, of which Rickert Hoffman is a part of.
+
+Due to certain events, he left the nobility and started his life in the slums.
+
+（Flanders骚乱）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #357](https://twitter.com/LoremIpsumVerb/status/1395338564230123521)
+
+Falgal, chief of the Silver Dragons ~400 years ago, was defeated by Puck, Beatrice and finally Tosca teaming up, despite its immense strength.
+
+Though Tosca severed half of its neck, Echidna was able to heal it, granting mercy upon its decimated clan.
+
+（二期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #358](https://twitter.com/LoremIpsumVerb/status/1395706658324680710)
+
+The traces of a brick enclosure, once hosting a flowerbed tended to by Theresia, can be found in the unkempt garden of the main Astrea Mansion in Hakchuri.
+
+Felt tasked Reinhard in re-tending to it, to decide whether she'd end up liking flowers or not.
+
+（金狮子与剑圣）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #359](https://twitter.com/LoremIpsumVerb/status/1396067814910332928)
+
+According to the author, Capella would turn herself into a fly if she came across a pervert who adored flies, since after all, she's the sort of women who'd go to any lengths.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：今回カペラが人を蠅に変えてましたけど、蠅を愛する変態性癖が存在していたらどうするんでしょうか？<br/>
+A：自分がその変態の好きな蝿になる。尽くす女だから当然でしょ？
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #360](https://twitter.com/LoremIpsumVerb/status/1396445126197751810)
+
+Despite being a key piece to Tsugihagu Subaru's plans to patch himself together, Rem was not mentioned even a single time in the story itself.
+
+Since she was eaten by Gluttony, it's supposed that she would not have a Book of the Dead. 
+
+【[暴食if补充](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/2282151/)，[不过零大和拉姆前辈说](https://tieba.baidu.com/p/6088307483)是白纸来着？不确定是不是翻译问题】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
