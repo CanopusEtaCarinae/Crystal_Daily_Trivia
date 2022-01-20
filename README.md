@@ -13,7 +13,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 
-[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320)
+[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4671,6 +4671,73 @@ Already, by the time he was Roswaal D. Mathers, he had begun to forget more and 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
+---
+
+#### [Re: Zero Daily Trivia #341](https://twitter.com/LoremIpsumVerb/status/1389558207887122435)
+
+Puck's intrinsic mission as an Artificial Spirit was to find the one he was searching for, even if it meant searching the world from end to end.
+
+He set out shortly after Tosca's village was saved and searched for around 300 years before finding her.
+
+（二期BD5特典，Web四章129节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #342](https://twitter.com/LoremIpsumVerb/status/1389909012850909186)
+
+From the seven witches of sin, Typhon completely fits into Clind's strike zone. Meanwhile, Daphne is a close-call, since she's more mature than you'd expect.
+
+(Trivia today dedicated to Rei-san, to keep the Clind memes going!)
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：クリンドさんから見て、テュフォン、ダフネ辺りはストライクゾーンに入りますか？<br/>
+A：ダフネがあれで意外と老成してるので際どいですが、テュフォンは完全に入りますね。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #343](https://twitter.com/LoremIpsumVerb/status/1390271694342926340)
+
+Tosca, despite having a rocky relationship with his big brother, cried when he heard news of his death. The next time he would cry was after Beatrice refused him in leaving the Library, having not even cried when his wife, children & grandchildren died
+
+（二期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #344](https://twitter.com/LoremIpsumVerb/status/1390633819930308609)
+
+Reading books is a hobby which both Ram and Rem have in common.
+
+Rem likes plays and poetry, while Ram only reads books about magic, and the sort.
+
+（一期17集实况解说）
+<!--https://twitter.com/nezumiironyanko/status/757249068481388544-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #345](https://twitter.com/LoremIpsumVerb/status/1390989771451809792)
+
+Unknown to many, the first time Sirius Romanee-Conti appeared, she was described to have red eyes. It wasn't until after Tappei published the short story, "A Martyr's Death", that he ended up changing her so that she would have amethyst eyes.
+
+【某殉教者的讣告。Web五章24节？不确定愤怒原设红眸除此外还有哪里描写了】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
