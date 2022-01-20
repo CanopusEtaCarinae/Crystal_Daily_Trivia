@@ -13,7 +13,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 
-[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360)
+[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4977,7 +4977,7 @@ A：そらの時間一分前まで書き終わってないのと、ギリギリ�
 
 ---
 
-#### [Re: Zero Daily Trivia #363【【采访？18年库问答、寡问答？】】](https://twitter.com/LoremIpsumVerb/status/1397526113644163080)
+#### [Re: Zero Daily Trivia #363](https://twitter.com/LoremIpsumVerb/status/1397526113644163080)
 
 In an interview commemorating the release of Memory Snow, Tappei stated that Emilia was unmistakably his favourite character when asked to state whom.
 
