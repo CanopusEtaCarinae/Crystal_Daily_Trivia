@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4547,6 +4547,63 @@ On June the Second, 2013, the author stated to a fan that Re: Zero would take fo
 This was before Re: Zero was novelised or had an Anime.
 
 https://twitter.com/nezumiironyanko/status/341240005617917952
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #331](https://twitter.com/LoremIpsumVerb/status/1385907465808711680)
+
+The original Roswaal was said to have dark-grey hair by Echidna, and yellow eyes. However, this was later changed to him having blue hair and blue eyes in the Light Novel version.
+
+（Web四章12节、101节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #332](https://twitter.com/LoremIpsumVerb/status/1386274432805752832)
+
+The longest hiatus the main story of the Re: Zero Web Novel has experienced was back when the first season of the Anime was airing.
+
+Between February of 2016 and 2017 there were no chapters from the main story released, with the hiatus lasting a year.
+
+（动画化Web断更）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #333](https://twitter.com/LoremIpsumVerb/status/1386635569674039296)
+
+Old Man Rom was able to acquire the loothouse after getting his hands on a former tavern that had been under the possession of some criminals. The criminals were defeated by a 12 year Reinhard who had gone to the tavern to look for his father.
+
+（OVA2特典 Before Memories 菲鲁特阵营）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #334](https://twitter.com/LoremIpsumVerb/status/1386983937180848129)
+
+Among the Nine Divine Generals Seven Years ago, Olbart Dunkelkenn was the one who held the rank of "Three".
+
+（赫炎的剑狼〔后篇〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #335](https://twitter.com/LoremIpsumVerb/status/1387220135891636233)
+
+The "A" in Roswaal A. Mathers stood for "Altair". Just like the star.
+
+（二期BD5特典 [私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E6%B2%B3%E9%BC%93%E4%BA%8C)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
