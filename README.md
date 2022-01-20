@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4609,6 +4609,68 @@ The "A" in Roswaal A. Mathers stood for "Altair". Just like the star.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #336](https://twitter.com/LoremIpsumVerb/status/1387705538797056002)
+
+Al Shario is a magic which Echidna was able to use, that literally allowed her to bring down stars to the earth below at speeds and might that are impossible to avoid.
+
+She used this magic to massacre a swarm of around 100 silver dragons.
+
+（二期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #337](https://twitter.com/LoremIpsumVerb/status/1388049130669346817)
+
+Tosca was a red-haired youth who was all but confirmed to be Reid Astrea's younger brother.
+
+He went to Echidna's palace to seek help due to the Silver Dragons attacking his village seeking revenge against the murder of their chief, Amangam, by Reid.
+
+（二期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #338](https://twitter.com/LoremIpsumVerb/status/1388432339533975554)
+
+(2021-05-01)
+
+According to Beatrice, the difference between an Evil Dragon and one that is not boils down only to the distinction of whether the Dragon in question attacks people.
+
+In short, the label Evil Dragon is one applied from the viewpoint of people.
+
+（二期BD5特典〔一章6节〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #339](https://twitter.com/LoremIpsumVerb/status/1388790105708564480)
+
+The first ever living thing Beatrice killed was a Dragon. The Dragon was around 10 metres in length, and Beatrice took it by surprise, spamming Minya to crystalise it.
+
+（二期BD5特典〔二章3节〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #340](https://twitter.com/LoremIpsumVerb/status/1389161241483034624)
+
+Already, by the time he was Roswaal D. Mathers, he had begun to forget more and more of his memories. However, one of the memories that hadn't faded for him, was the time he spent in the Sanctuary, forgetting neither the deep emotion or regret of then.
+
+（二期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
