@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -5190,6 +5190,65 @@ In Volume 20, the Artificial Spirit Echidna felt like it could be her fate to ge
 A fate that likely was determined by her creator, the Witch of Greed Echidna.
 
 （文库20卷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #381](https://twitter.com/LoremIpsumVerb/status/1404008443883687937)
+
+Ever since the pre-gacha for "Re: Zero - The Forbidden Book and the Mysterious Spirit" was announced on March the First, the game has seen nearly 10.5 million rolls for characters as fans await the release of the full game.
+
+【禁书与谜之精灵，没了解过周边销量啥的……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #382](https://twitter.com/LoremIpsumVerb/status/1404394201010348037)
+
+Despite being fitted with a prosthetic hook after the battle of Pristella, Ricardo is able to make full use of it as a combat weapon. During their ventures to Typhon's Temple, he used his hook to defeat guardians as well as animated Shatranj pieces.
+
+（水门复兴日志）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #383](https://twitter.com/LoremIpsumVerb/status/1404735520236789760)
+
+According to the author, if we had a woman who looked like a wrinkly-old grandmother, but her soul was on the purity levels of a baby, Clind would still be able to love her.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ロリコン執事は魂のロリ度を重視しているとのことでしたが、見た目しわくちゃのお婆さんで魂は赤子レベルの純粋さの女性でも愛せるのですかね？<br/>
+A：愛せます（断言）
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #384](https://twitter.com/LoremIpsumVerb/status/1405116212925898753)
+
+Marcos Gildark, captain of the Royal Guard and commander of the Knights, is the second strongest individual in the Kingdom of Lugunica, being beaten only by Reinhard in terms of sheer power.
+
+（一期新编集第7集实况）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #385](https://twitter.com/LoremIpsumVerb/status/1405493692920651776)
+
+According to the author, if Julius Euculius were to come to our world, the very first thing he would do would be to go to the library - assuming he could read the books of course.
+
+（17年6154生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
