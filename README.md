@@ -13,7 +13,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 
-[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345)
+[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -4732,7 +4732,70 @@ Rem likes plays and poetry, while Ram only reads books about magic, and the sort
 
 Unknown to many, the first time Sirius Romanee-Conti appeared, she was described to have red eyes. It wasn't until after Tappei published the short story, "A Martyr's Death", that he ended up changing her so that she would have amethyst eyes.
 
-【某殉教者的讣告。Web五章24节？不确定愤怒原设红眸除此外还有哪里描写了】
+【[某殉教者的讣告](https://tieba.baidu.com/p/5628291252)。Web五章24节？不确定愤怒原设红眸除此外还有哪里描写了】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #346](https://twitter.com/LoremIpsumVerb/status/1391359561299333126)
+
+Despite announcing the license of the Re: Zero Light Novel in December 2015, YenPress, after ~5 and a half years, have still only published up to Volume 15.
+
+Meanwhile, Polish, Chinese-Taiwanese, Chinese-Mainland, Korean and Portuguese are all ahead.
+
+（YenPress官译Re0的八卦事，截至此trivia日期〔2021-05-09〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #347](https://twitter.com/LoremIpsumVerb/status/1391710705427038210)
+
+Counting the days he did so in his High School Debut, Natsuki Subaru has cross-dressed on four separate occasions.
+
+（此Trivia发布日〔2021-05-10〕七章更新女装回）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #348](https://twitter.com/LoremIpsumVerb/status/1392095844208463877)
+
+When asked about which Arc would likely be the longest, and how it would compare to Arc 3, Tappei replied that the final Arc would likely be more than twice as long as Arc 3. Saying specifically that twice as long as Arc 3 likely wouldn't be cutting it
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：一番長くなりそうな章は何章ですか。3章と比べるとどれぐらい長くなりそうでしょうか<br/>
+A：最終章がたぶん3章の倍じゃきかないと思うんだ。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #349](https://twitter.com/LoremIpsumVerb/status/1392453131800305665)
+
+According to the author, the most embarrassing trauma Reinhard experienced in the past, was when he thought that his father would be delighted when he received the Divine Protection of the Sword Saint.
+
+（18年莱傲天生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #350](https://twitter.com/LoremIpsumVerb/status/1392823785783504897)
+
+Roshi was the name of the man who took in the Pearlbaton's Triplets, saving them from certain death when they lived in the slums of Banan, Kararagi.
+
+Roshi, a runaway ninja, perished later by blowing himself up along with the enemies he was fighting.
+
+【https://twitter.com/nezumiironyanko/status/993108987489873920，Run away ninja这个有说过么……？】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
