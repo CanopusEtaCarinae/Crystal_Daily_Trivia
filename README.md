@@ -23,15 +23,15 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 ### Content
 
-[1-10](#re-zero-daily-trivia-1) (20-06) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-07) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-08) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-09)
+[1-10](#re-zero-daily-trivia-1) (20-6) &ensp; [11-20](#re-zero-daily-trivia-11) &ensp; [21-30](#re-zero-daily-trivia-21) &ensp; [31-40](#re-zero-daily-trivia-31) (20-7) &ensp; [41-50](#re-zero-daily-trivia-41) &ensp; [51-60](#re-zero-daily-trivia-51) &ensp; [61-70](#re-zero-daily-trivia-61) (20-8) &ensp; [71-80](#re-zero-daily-trivia-71) &ensp; [81-90](#re-zero-daily-trivia-81) &ensp; [91-100](#re-zero-daily-trivia-91) (20-9)
 
 [101-110](#re-zero-daily-trivia-101) &ensp; [111-120](#re-zero-daily-trivia-111) &ensp; [121-129(130)](#re-zero-daily-trivia-121) (20-10) &ensp; [130(131)-139(140)](#re-zero-daily-trivia-130131) &ensp; [140(141)-149(150)](#re-zero-daily-trivia-140141) &ensp; [150(151)-159(160)](#re-zero-daily-trivia-150151) (20-11)
 
 [160(161)-169(170)](#re-zero-daily-trivia-160161) &ensp; [170(171)-179(180)](#re-zero-daily-trivia-170171) &ensp; [180(181)-189(190)](#re-zero-daily-trivia-180181) (20-12) &ensp; [190(191)-199(200)](#re-zero-daily-trivia-190191) &ensp; [200(201)-205](#200201伪二百条纪念)
 
-[211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
+[211-220](#re-zero-daily-trivia-211) (21-1) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-2) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-3) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391)
+[301-310](#re-zero-daily-trivia-301) (21-4) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-5) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-6) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-7)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -5384,6 +5384,84 @@ After entreating the Divine Dragon Volcanica to protect the Watchtower, Emilia w
 [Return to top](#crystals-daily-trivias)
 
 ---
+<!--
+Re: Zero Daily Trivia #396（Lugunican Paper）
+
+
+
+During the interview conducted by the "The Dragon News", Al became tinged with franticness when he heard from Priscilla that she didn't feel like Emilia wanted to become King.
+
+https://twitter.com/LoremIpsumVerb/status/1409486429999218695
+
+
+
+
+
+Re: Zero Daily Trivia #397【newspaper v3？】
+
+
+
+Earth Dragons were exported from Flanders to the rest of the world, where they rapidly spread.
+
+
+
+The other Great Countries also have their own traditional animals,
+
+
+
+Kararagi - Great Dogs: Liger
+
+Vollachia - Red Oxen: Falo
+
+Gusteko - Silver Bears: Mafumafu
+
+https://twitter.com/kobosuhito/status/1409844693077139460
+
+
+
+
+
+Re: Zero Daily Trivia #398（骚乱？）
+
+
+
+The Tometo Festival is an annual festival held in Hackchuri in prayer for a good harvest. The city is divided into "North", "East", "South" and "West" teams, where participants throw Tometos at each other, until the last man standing.
+
+https://twitter.com/LoremIpsumVerb/status/1410206024842293253
+
+
+
+
+
+Re: Zero Daily Trivia #399（女仆道）
+
+(2021-07-01)
+
+
+The one who taught Emilia that it was possible to make babies when a man and woman kissed was none other than Annerose Miload.
+
+
+
+She taught Emilia this in "Emily-san's Maid Path" after catching a glimpse of a man and woman in servant's clothing kissing.
+
+https://twitter.com/LoremIpsumVerb/status/1410567830236508162
+
+
+
+
+
+Re: Zero Daily Trivia #400
+
+
+
+400 days! As is tradition, I am going to take today to just thank you all for following and enjoying the trivia! I'm now at over 4300 followers, almost 2000 more than when I did the #300 special last time!
+
+
+
+The trivia will resume tomorrow as usual.
+
+https://twitter.com/LoremIpsumVerb/status/1410930571027664900 -->
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
