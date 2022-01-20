@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -5064,6 +5064,69 @@ Referring to Subaru as 486 originally comes from Chinese, where 486 is a phoneti
 However, the term morphed in English to a way of bullying Subaru by reducing his name to a number
 
 （读者八卦）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #371](https://twitter.com/LoremIpsumVerb/status/1400417337514283008)
+
+The manor Roswaal K. Mathers lived in was guarded by a bunch of automated dolls tasked with attacking any intruders on sight. They were one of the many inventions Roswaal created while he was K. Mathers, ever waiting for their Master's return.
+
+【Poltergeist Story】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #372](https://twitter.com/LoremIpsumVerb/status/1400783557266653184)
+
+According to the author, Garfiel's favourite foods are as follows:
+
+The pie Ryuzu made for him, as well as the pie Frederica made for him, which comes directly from Ryuzu's recipe. And finally, Ram's steamed potatoes.
+
+（17年加菲猫生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #373](https://twitter.com/LoremIpsumVerb/status/1401143203810643978)
+
+This was the Tweet Tappei sent out when he first began the Re Zero Web Novel in 2012. Despite Re: Zero becoming such a popular work, the Tweet had 0 likes and 0 Retweets until well after 2017.
+
+https://twitter.com/nezumiironyanko/status/193347703021895680
+
+Thanks for the hard work, sensei!
+
+【2017之前的点赞和转发数是怎么查的…………】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #374](https://twitter.com/LoremIpsumVerb/status/1401516750643122177)
+
+According to Minerva, if Volcanica and Flugel hadn't established their covenant, leaving only Reid to stop the Witch of Envy, the world would have been swallowed as he by himself would not have been enough.
+
+（Web四章茶会幕间）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #375](https://twitter.com/LoremIpsumVerb/status/1401872433783705601)
+
+Melinda, Stride's wife, was fatally burnt by the Evil Dragon Valgren after she saved Theresia's life along with her unborn child, Heinkel.
+
+Delirious from her burns, she cast herself from the spire window so she could die in her beloved husband's arms.
+
+（剑鬼战歌）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
