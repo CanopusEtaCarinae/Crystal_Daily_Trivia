@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4795,12 +4795,83 @@ Roshi was the name of the man who took in the Pearlbaton's Triplets, saving them
 
 Roshi, a runaway ninja, perished later by blowing himself up along with the enemies he was fighting.
 
-【https://twitter.com/nezumiironyanko/status/993108987489873920，Run away ninja这个有说过么……？】
+【https://twitter.com/nezumiironyanko/status/993108987489873920 Runaway ninja这个有说过么……？】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #351](https://twitter.com/LoremIpsumVerb/status/1393199155326210050)
+
+When asked if Puck is suppressing his true strength due to making a contract with Emilia, the author replied that he was, and that he'd extremely weakened himself.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：パックはエミリアと契約することにより、むしろ本来の力を抑えていますか？<br/>
+A：はい。超弱体化してます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #352](https://twitter.com/LoremIpsumVerb/status/1393199155326210050)
+
+Vincent Vollachia never bats both of his eyes shut, choosing only to bat one eye shut at a time. The reason behind this is so he can always keep at least one eye on his surroundings, since closing both of them would be equal to letting his guard down.
+
+（七章〔14节、23节等〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #353](https://twitter.com/LoremIpsumVerb/status/1393890201408258053)
+
+According to Tappei, he planned the crossdressing development since 24 years ago, when he played FF7 in Elementary School, rather than 8 years ago.
+
+This was before his dream of becoming a novelist. Thus, this implies the incident in FF7 inspired him.
+
+（[七章22节后记](https://ncode.syosetu.com/n2267be/525/)<br/>
+https://twitter.com/nezumiironyanko/status/1392895691597389828<br/>
+https://twitter.com/nezumiironyanko/status/1392897240507637761<br/>
+https://twitter.com/nezumiironyanko/status/1392898803548581891<br/>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #354（46实况）](https://twitter.com/LoremIpsumVerb/status/1394249563209412608)
+
+Though he did not explicitly state it, the author has released a ranking regarding whose intestines Elsa would be most interested in.
+
+The ranking is as follows:
+
+Emilia > Subaru > Petra > Ram > Rem > Frederica > Otto >> Garfiel >>> Roswaal
+
+（46集实况解说，18年猎肠生日）<!--https://twitter.com/nezumiironyanko/status/1364589597150257157-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #355](https://twitter.com/LoremIpsumVerb/status/1394609144594845696)
+
+Camberly, also known as "Kan" from the Tonchinkan trio, possesses a Divine Protection called the "Divine Protection of Bedroom Wiles", that seems to allow him to get his money back from prostitutes.
+
+He was a regular in Flanders' red-light district.
+
+（Flanders骚乱）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
