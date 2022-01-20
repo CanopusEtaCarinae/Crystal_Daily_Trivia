@@ -5255,6 +5255,69 @@ According to the author, if Julius Euculius were to come to our world, the very 
 
 ---
 
+#### [Re: Zero Daily Trivia #386](https://twitter.com/LoremIpsumVerb/status/1405850184442167298)
+
+It took Emilia slightly over seven years to complete her map of the Elior Forest, with the map itself going through 21 iterations.
+
+The map eventually fell into Roswaal's possession after he came to the forest to give Emilia the insignia.
+
+（冰结）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #387](https://twitter.com/LoremIpsumVerb/status/1406205390858096640)
+
+The convenience store featured in Episode One of the Re: Zero Anime is likely a certain Ministop Store based in the Chiba Prefecture found here on the map: https://google.com/maps/place/Ministop/@35.5268764,140.273344,15z/data=!4m12!1m6!3m5!1s0x0:0x2192ed2d15717ea1!2sMinistop!8m2!3d35.5269509!4d140.2733593!3m4!1s0x0:0x2192ed2d15717ea1!8m2!3d35.5269509!4d140.2733593
+
+This research was carried out in detail here: https://sinkirouno.exblog.jp/24389902/
+
+（读者考证）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #388](https://twitter.com/LoremIpsumVerb/status/1406557451374235649)
+
+Felix Argyle was locked in the basement of the Argyle Mansion by his family for the first nine years of his life due to his Demi-Human Blood.
+
+He was later rescued by Crusch Karsten where he was cared for and eventually became her attendant.
+
+（4卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #389](https://twitter.com/LoremIpsumVerb/status/1406926814807789569)
+
+Petelgeuse held the ability to possess people, initiating something of a forcible one-way contract with them. Though compatibility varied depending on the target, it was possible to thwart his ability if the target already had a contract with a Spirit.
+
+（三章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #390](https://twitter.com/LoremIpsumVerb/status/1407285985709277190)
+
+Garritch Fabless, one of the top healers in the Kingdom who held the title of "Blue" before Felix Argyle, is heavily implied to have been the one who fathered Karl Mathers.
+
+Despite having him with Roswaal J. Mathers, the two did not marry.
+
+（Ex3蜜瓜，青之继承者）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
