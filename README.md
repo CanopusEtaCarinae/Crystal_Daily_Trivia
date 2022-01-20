@@ -13,7 +13,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 
-[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363)
+[305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -5003,6 +5003,72 @@ The Dragon News is a newspaper that circulates around the Kingdom of Lugunica. H
 
 #### [#365 周年纪念](https://twitter.com/LoremIpsumVerb/status/1398251148440752128)
 
+---
+
+[Re: Zero Daily Trivia #366](https://twitter.com/LoremIpsumVerb/status/1398619270175670280)
+
+Just before the Royal Selection started, Leip plotted to turn Priscilla into a mindless puppet using Sphinx's powers.
+
+However, his plans were thwarted by Al, after the latter used his powers to constantly survive Leip's fatal attack, mindbreaking him.
+
+【与[#30](#re-zero-daily-trivia-30)问题一样】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #367](https://twitter.com/LoremIpsumVerb/status/1398968674460045314)
+
+According to Tappei, Rickert Hoffman, the noble who burst out in anger during the candidate speeches, is not an insignificant character and will have his own named chapter.
+
+https://twitter.com/nezumiironyanko/status/786124458306080768
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #368](https://twitter.com/LoremIpsumVerb/status/1399346040235507714)
+
+In June 2013, Tappei revealed to a fan the names of the Archbishops of Lust and Wrath, despite the Web Novel only being on Arc 4, Chapter 18.
+
+When listing out the sins for him, Tappei purposely used "XXX" of Pride, keeping that one a secret.
+
+https://twitter.com/nezumiironyanko/status/346988729203830785
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #369](https://twitter.com/LoremIpsumVerb/status/1399698365865238528)
+
+(2021-06-01)
+
+Lululala is someone who's said to possess special eyes that allow her to have extreme natural aptitude for drawing and painting, thus allowing her to complete her pieces in a matter of mere minutes.
+
+She worked for "The Dragon News" paper in Lugunica.
+
+（Lugunican Papers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #370](https://twitter.com/LoremIpsumVerb/status/1400053931259174913)
+
+Referring to Subaru as 486 originally comes from Chinese, where 486 is a phonetic approximation to his name since the numbers are pronounced "Suh-Ba-Liù"
+
+However, the term morphed in English to a way of bullying Subaru by reducing his name to a number
+
+（读者八卦）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
