@@ -31,7 +31,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
-[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311)
+[301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591)
 -->
@@ -4418,6 +4418,72 @@ According to the author, even if Elsa Granhiert had grown up in a normal home lo
 The Spirit Julius first contracted with was the Quasi-Spirit of Fire, Ia. And from them, Ia was also the Quasi-Spirit whom the author has stated Julius was best friends with, at least, back when he had his name.
 
 【18年6154生日，不过“at least, back when he had his name”我好像没太理解出处是哪……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #321](https://twitter.com/LoremIpsumVerb/status/1382273497867685888)
+
+The Mayo. Liking Rank from those in the Roswaal Mansion is as follows:
+
+Subaru > Beatrice > Emilia > (Likes it) > Otto > Roswaal > Frederica > (Doesn’t like it) > Ram > Rem >>>>> Petra.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ロズワール邸メンバーでマヨネーズを一番気に入っているのは誰ですか？ スバル君とレム以外で。<br/>
+A：マヨネーズ好きランキング『スバル＞ベアトリス＞エミリア＞（好きの壁）＞オットー＞ロズワール＞フレデリカ＞（苦手の壁）＞ラム＞レム＞＞＞＞＞ペトラ。ペトラはスバルがマヨネーズ好きなので、涙目になりながら話を合わせています。健気。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #322](https://twitter.com/LoremIpsumVerb/status/1382647933313646593)
+
+In the Light Novel version of Arc Five, the Water Dragon's sacrifice was omitted. Instead, the rain of blood pouring down on the protagonists was substituted with a rain of water coming from a huge fistful of clumped water Regulus scooped from a canal.
+
+（19卷文库改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #323](https://twitter.com/LoremIpsumVerb/status/1383008644250398726)
+
+There are people with unusual tastes in the Vollachian Empire, who will sometimes go out of their way to buy and taxidermise the corpses of Gladiators who fell in the Gladiator Island Ginunhive if they belong to an unusual Demi-Human Species.
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #324](https://twitter.com/LoremIpsumVerb/status/1383380672123785220)
+
+In terms of how heavy of a drinker they are, the Royal Candidates rank as follows according to Tappei:
+
+Priscilla > Crusch > (Heavy Drinkers) > Anastasia > (Can drink as much as you want without getting drunk) > Felt > (Normal) > (Little Kids) > Emilia
+
+（18年库珥修生日，fandom未收录）
+https://twitter.com/nezumiironyanko/status/981563827278901248
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #325](https://twitter.com/LoremIpsumVerb/status/1383704541976092675)
+
+In the Light Novel version of Arc 6, the loop where Subaru first died to the Centaur in Chapter 13 was cut.
+
+Instead, Subaru, Ram, Echidna and Patrasche travel through the right path first, leading to them meeting their end in the "hellcave".
+
+（21卷文库改动）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
