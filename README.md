@@ -32,8 +32,10 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [211-220](#re-zero-daily-trivia-211) (21-01) &zwnj; [221-230](#re-zero-daily-trivia-221) &zwnj; [231-240](#re-zero-daily-trivia-231) &zwnj; [241-250](#re-zero-daily-trivia-241) (21-02) &zwnj; [251-260](#re-zero-daily-trivia-251) &zwnj; [261-270](#re-zero-daily-trivia-261) &zwnj; [271-280](#re-zero-daily-trivia-271) (21-03) &zwnj; [281-290](#re-zero-daily-trivia-281) &zwnj; [291-300](#re-zero-daily-trivia-291)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
+
+[401-410](#re-zero-daily-trivia-401)
 <!--
- &ensp; [591-600](#re-zero-daily-trivia-591)
+ &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
 ---
 
@@ -5444,6 +5446,67 @@ She taught Emilia this in "Emily-san's Maid Path" after catching a glimpse of a 
 #### [#400 四百条纪念](https://twitter.com/LoremIpsumVerb/status/1410930571027664900)
 
 ---
+
+#### [Re: Zero Daily Trivia #401](https://twitter.com/LoremIpsumVerb/status/1411275750985043969)
+
+According to Valga Cromwell in EX 2, the Royal Castle in the capital of Lugunica was constructed with the help of Demi-Humans before the covenant with the Dragon.
+
+（Ex2剑鬼恋歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #402](https://twitter.com/LoremIpsumVerb/status/1411644631457189892)
+
+In the Red-Light District in Flanders, guests are given a candle to show that they have purchased some time with a prostitute.
+
+The prostitute will then show the guest the time of their lives, until the candle burns out. Multiple candles can be bought.
+
+（Flanders骚乱？汉化暂未相关剧情）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #403](https://twitter.com/LoremIpsumVerb/status/1412004941422632961)
+
+Despite Reinhard absorbing mana, rendering magic attacks useless against him, Ezzo Cadner was able to find a way to bypass it and hit him with magic
+
+The attack surprised Reinhard and hit him on his chest, causing 2 of his shirt buttons to be blown off
+
+（Flanders骚乱）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #404](https://twitter.com/LoremIpsumVerb/status/1412364643566247937)
+
+Russel Fellow, though on the surface appearing to be the Treasurer of Merchant Guild in Lugunica, is in actual fact the current director of the intelligence division: Six Tongues.
+
+His role is to guarantee the stability of the Kingdom.
+
+（Flanders骚乱？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #405](https://twitter.com/LoremIpsumVerb/status/1412733254587781122)
+
+According to the author, the cross-shaped daggers which the Witch Cult use are a nod to the Light Novel: Ragnarok, which was the first Light Novel the author ever read, and still one of his favourites.
+
+https://twitter.com/nezumiironyanko/status/280637129812504576
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -5626,6 +5689,20 @@ It's to the point where he can easily eat bitter food that would make even Ram s
 #### [#600 六百条纪念](https://twitter.com/LoremIpsumVerb/status/1483856808116736005)
 
 ---
+
+#### [Re: Zero Daily Trivia #601（18年生日）](https://twitter.com/LoremIpsumVerb/status/1484155952936980484)
+
+Though naturally, as expected, Theresia is said to get along best with her faithful attendant, Carol Remendis.
+
+However, according to the author, when limited to the main story, the one she would get along best with would be Emilia.
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 -->
 
 
@@ -5640,4 +5717,6 @@ It's to the point where he can easily eat bitter food that would make even Ram s
 魔法强度 无印--…… https://twitter.com/nezumiironyanko/status/1225074727980417025
 
 残香 瘴气 三卷 四章27
+Conwood的酒馆 新编集实况 BD9特典
+花田 新编集实况
 -->
