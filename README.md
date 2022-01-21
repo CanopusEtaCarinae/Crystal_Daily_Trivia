@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -5567,6 +5567,85 @@ At around 2 years of age, Mimi was stabbed 4 times in the stomach by a slave tra
 They managed to get away, with their Divine Protection of Trisection kicking in to ease the wounds, after which Roshi found them.
 
 【感觉有条[类似的问答](https://twitter.com/nezumiironyanko/status/993109831899693056)，但远没有这条trivia情节这么具体，可能又是少看了哪篇？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #411](https://twitter.com/LoremIpsumVerb/status/1414918005344149505)
+
+When Puck was around, he was the one who helped Emilia pick out her outfits as well as her hairstyle.
+
+（Emily-san的女仆道、三章72、四章6等等）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #412](https://twitter.com/LoremIpsumVerb/status/1415277935007866885)
+
+Crusch Karsten was born as the eldest daughter of the Karsten family, with her mother passing away after giving birth to her.
+
+After that, Meckart Karsten, her father, gave her a heartwarming upbringing as his heir, with Crusch growing up splendidly.
+
+（18年库珥修生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #413](https://twitter.com/LoremIpsumVerb/status/1415640912202502152)
+
+In the mountains to the North of the Mathers Territory, lies a particularly snowy area known as the Hyukami Glaciated Forest.
+
+The snowy white world there is full of beautiful trees covered in ice and snow, with famished Witchbeasts lurking.
+
+【不知道是禁书与谜之精灵的设定还是又有什么短篇……等大佬指教】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #414](https://twitter.com/LoremIpsumVerb/status/1416000946753126402)
+
+Following from Trivia 315, where the cities that make up the Kararagi City States were:
+
+First City: Kyo
+
+Second City: Banan
+
+Third City: Ivada
+
+Fourth City: Fusumi
+
+
+
+3 more cities were revealed
+
+
+
+Fifth City: Outou
+
+Sixth City: Azamiki
+
+Seventh City: Tenmitsu
+
+（[禁书与谜之精灵 地图](https://docs.google.com/document/d/1eEenoDyrDL5I6dUYwduoflNHPx03RgfF_DMlZce0VzA/edit)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #415](https://twitter.com/LoremIpsumVerb/status/1416382081370820609)
+
+According to the author, Elsa Granhiert is so used to the cold that she'd probably dislike the heat, and would probably end up being listless in it.
+
+（18年猎肠生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
