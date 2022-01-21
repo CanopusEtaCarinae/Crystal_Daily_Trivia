@@ -14,6 +14,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [206](#re-zero-daily-trivia-206) &nbsp; [258](#re-zero-daily-trivia-258) &nbsp; [260](#re-zero-daily-trivia-260) &nbsp; [265](#re-zero-daily-trivia-265) &nbsp; [271](#re-zero-daily-trivia-271) &nbsp; [278](#re-zero-daily-trivia-278) &nbsp; [279](#re-zero-daily-trivia-279) &nbsp; [282](#re-zero-daily-trivia-282) &nbsp; [283](#re-zero-daily-trivia-283) &nbsp; [284](#re-zero-daily-trivia-284) &nbsp; [288](#re-zero-daily-trivia-288) &nbsp; [290](#re-zero-daily-trivia-290) &nbsp; [295](#re-zero-daily-trivia-295)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
+
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -5464,7 +5466,7 @@ In the Red-Light District in Flanders, guests are given a candle to show that th
 
 The prostitute will then show the guest the time of their lives, until the candle burns out. Multiple candles can be bought.
 
-（Flanders骚乱？汉化暂未相关剧情）
+（Flanders骚乱？汉化暂未到相关剧情）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -5502,6 +5504,69 @@ His role is to guarantee the stability of the Kingdom.
 According to the author, the cross-shaped daggers which the Witch Cult use are a nod to the Light Novel: Ragnarok, which was the first Light Novel the author ever read, and still one of his favourites.
 
 https://twitter.com/nezumiironyanko/status/280637129812504576
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #406](https://twitter.com/LoremIpsumVerb/status/1413083871730708480)
+
+Unbeknownst to many, at first, Tappei had only planned for there to be three candidates in the Royal Selection: Emilia, Felt and Priscilla.
+
+Crusch and Anastasia were later additions.
+
+【居然对这个完全没有印象也没找到出处……有点严重啊】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #407](https://twitter.com/LoremIpsumVerb/status/1413450176920911872)
+
+Renown for being a fast writer, the Author has claimed that in his prime, he was able to write 50,000 Characters in a day, with his personal best being 60,000 Characters in half a day during his university days.
+
+https://twitter.com/nezumiironyanko/status/214324052070907906
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #408](https://twitter.com/LoremIpsumVerb/status/1413820468738547715)
+
+The Vollachian Empire is privy to consultations given by their Stargazers.
+
+Though Vincent claimed they are farsighted, he also expressed his qualms about them, in not wishing to become a puppet dancing on their strings.
+
+【Ice说是出自Ex4，不过Ex4涉及星咏的就一句好像也不是完全符合这条……不知还有没有其他的出处】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #409](https://twitter.com/LoremIpsumVerb/status/1414170193702576132)
+
+Many of the workers in Costuul found themselves out of work after the Brightbug incident due to the damage incurred.
+
+Thus, many were taken advantage of by an illegal mining operation, tricked into slave labour until Emilia, Ram and Garfiel saved them.
+
+（Very Very Rough Justice）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #410](https://twitter.com/LoremIpsumVerb/status/1414539995646464000)
+
+At around 2 years of age, Mimi was stabbed 4 times in the stomach by a slave trader who had been trying to capture Tivey.
+
+They managed to get away, with their Divine Protection of Trisection kicking in to ease the wounds, after which Roshi found them.
+
+【感觉有条[类似的问答](https://twitter.com/nezumiironyanko/status/993109831899693056)，但远没有这条trivia情节这么具体，可能又是少看了哪篇？】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
