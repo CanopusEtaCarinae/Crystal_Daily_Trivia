@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413)&nbsp; [417](#re-zero-daily-trivia-417)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -5651,6 +5651,78 @@ According to the author, Elsa Granhiert is so used to the cold that she'd probab
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #416](https://twitter.com/LoremIpsumVerb/status/1416739332845625347)
+
+Ivada, the Third City of Kararagi, is also the closest to the Kingdom of Lugunica, with it lying close to the River Tigracy, on the other side from Pristella.
+
+（[禁书与谜之精灵 地图](https://witchculttranslation.com/re-zero-world-map/)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #417](https://twitter.com/LoremIpsumVerb/status/1417091981906432004)
+
+According to the author, both the Witch and the person who is the easiest to fool in the story is The Witch of Wrath, Minerva.
+
+<details>
+<summary>【虽然有比较像的问答但好像也不完全一致，等大佬补充】</summary>
+Q：いつもミネルヴァたんを影から見守っているものですが、彼女は優しすぎて悪い男に騙されたり、変な男につきまとわれそうで心配です。どうすればこの心配をとりのぞけるでしょうか？<br/>
+A：安心してください。心配してもとっくに遅いです。大体いつも騙されてます。<br/>
+<br/>
+Q：作中人物で一番チョロいの人を教えて下さい。プロポーズしに逝きます。<br/>
+A：ミネルヴァたんです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #418](https://twitter.com/LoremIpsumVerb/status/1417461420879486982)
+
+In Re: Zero Kinsho, legends go that the mythical Golden Appa can be found in an orchard near the Earth Dragon Capital, Flanders, on the Hyclara Plateau.
+
+An expedition consisting of Priscilla, Al, Subaru, Rem and Emilia set out to find it.
+
+（禁书与谜之精灵）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #419](https://twitter.com/LoremIpsumVerb/status/1417826529044832265)
+
+In relation to religion, Tappei has mentioned that it's like a "Nature-Worshipping", "Divine Dragon Worshipping", "Chaos Hero" and "Economic Development" sort of thing.
+
+Presumably referring to Gusteko, Lugunica, Vollachia and Kararagi respectively.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：この世界って宗教関連どうなっているんですかね？ルグニカは龍を信仰しているとして他の国は何を信仰しているのだろう？<br/>
+A：「神様」という概念がありません。「自然崇拝」「神龍崇拝」「カオスヒーロー」「経済振興」みたいな感覚です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #420](https://twitter.com/LoremIpsumVerb/status/1418176118453121027)
+
+Despite being the Margrave of the West, Roswaal's territory stretches out North-East to encompass both the Elior Forest and the Mining City of Ganacks.
+
+His domain is powerful, containing two great cities of Lugunica within it: Ganacks and Costuul.
+
+（[禁书与谜之精灵地图](https://witchculttranslation.com/re-zero-world-map/)，佩特拉奋斗记，冰结等等）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -5847,6 +5919,18 @@ However, according to the author, when limited to the main story, the one she wo
 
 ---
 
+#### [Re: Zero Daily Trivia #602](https://twitter.com/LoremIpsumVerb/status/1484513313803354113)
+
+Subaru's ignominious title, "Lolimancer", was coined between Arc 4 and 5 by Shorty Megan of the "Dragon News" - a popular newspaper in Lugunica.
+
+He came up with the title after seeing Subaru and Beatrice's relationship during the interview.
+
+（Lugunican Papers？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 -->
 
 
