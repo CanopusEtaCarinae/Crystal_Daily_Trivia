@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-07)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -5799,6 +5799,75 @@ Barbaro Rabbit Rice Crackers are a type of snack typical to Kararagi which keep 
 
 ---
 
+#### [Re: Zero Daily Trivia #426](https://twitter.com/LoremIpsumVerb/status/1420375816173613063)
+
+According to the author, a typical daily routine of echidna would be her preparing tea all day long, while waiting for someone to visit.
+
+On days that no one is coming to visit, she's chatting with one of the other witches. Usually Sekhmet or Daphne.
+
+（18年多娜生日，提问者不可见，reddit有英译）
+<details>
+<summary>（18年多娜生日，提问者不可见，reddit有英译）</summary>
+
+https://twitter.com/nezumiironyanko/status/955845716504494081<br/>
+Q: I'd like to hear about Echidna's daily routine!<br/>
+A: All day long, she's preparing tea while waiting for someone to come visit. Or, on days that no one is coming to visit, she's chatting with one of the other witches. Usually Sekhmet or Daphne.
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #427](https://twitter.com/LoremIpsumVerb/status/1420715156988997636)
+
+Rumours about Otto Suwen have circulated around Lugunica, which include being wanted for threatening a powerful person in Picoutatte, causing the destruction of some bandits in Mt. Guineb, and burning the Margrave's mansion in negotiation for a raise.
+
+【奥托在老家被通辑是传闻没错（16卷虎之穴），另两件事成为传闻是在哪里写的没印象了……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #428](https://twitter.com/LoremIpsumVerb/status/1421093613279318020)
+
+Despite Arc 6, Ch. 54 being attributed as the title drop chapter, it doesn't perfectly match Re: Zero's title
+
+Re: Zero's title uses the transitive verb for "starting" 始める (Hajimeru) while the chapter uses the intransitive version: 始まる (Hajimaru)
+
+（Web六章54标题）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #429](https://twitter.com/LoremIpsumVerb/status/1421453280308252676)
+
+Following Rem's death at the hands of Petelgeuse in Aganau IF, Subaru decides to bury her with the help of Reinhard in a place where pink-petalled flowers are growing.
+
+He chose this spot because Rem told him the colour of the petals resemble nee-sama.
+
+（LiM 新章2 if）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #430](https://twitter.com/LoremIpsumVerb/status/1421826775961722888)
+
+(2021-07-01)
+
+In Aganau IF, Subaru found the Witch Cult, including Petelgeuse, in a forest near Degilta after being tipped about potential Witch Cult activity by Old Man Rom.
+
+（LiM 新章2 if）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
