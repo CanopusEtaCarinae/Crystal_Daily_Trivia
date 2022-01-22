@@ -5746,7 +5746,7 @@ Marcos Gildark possesses a trump card known as "Rock Armour", that allows him to
 <details>
 <summary>（青之继承者，三米的设定仅出现于杂志版，短篇集5未写出）</summary>
 
-![](https://github.com/CanopusEtaCarinae/tiebaposts/blob/master/Crystal_Daily_Trivia/images/422-3m.png)
+![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/images/422-3m.png)
 </details>
 
 [Return to Content](#Content)<br/>
@@ -5788,7 +5788,7 @@ A：言うこと聞かないヒロインをミンチにして、言うこと聞�
 
 ---
 
-[Re: Zero Daily Trivia #425](https://twitter.com/LoremIpsumVerb/status/1420009708589658114)
+#### [Re: Zero Daily Trivia #425](https://twitter.com/LoremIpsumVerb/status/1420009708589658114)
 
 Barbaro Rabbit Rice Crackers are a type of snack typical to Kararagi which keep well, and are regarded as a nutritious delicacy, as well as a meal fit for travel and camping.
 
