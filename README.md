@@ -2554,7 +2554,9 @@ Not many people know that "Nagatsuki Tappei" is also a pen name, just like his p
 <details>
 <summary>（ask.fm：）</summary>
 Q：長月達平っていうほうの名前ってなんか由来とかあるんですか？ 鼠色猫の由来は見た気がするんですけど<br/>
-A：達平は友人の名前を一文字ずつもらったのと、長月は旧暦の九月でＢ’ｚの稲葉の誕生月です。
+A：達平は友人の名前を一文字ずつもらったのと、長月は旧暦の九月でＢ’ｚの稲葉の誕生月です。<br/>
+<br/>
+http://blog.livedoor.jp/geek/archives/51428969.html
 </details>
 
 [Return to Content](#Content)<br/>
@@ -5939,6 +5941,75 @@ A：エーリカ-ハルトマンが俺は好きです。エイラーニャとい
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #436](https://twitter.com/LoremIpsumVerb/status/1423990455704948736)
+
+When Felix Argyle was training as a healer under the tutelage of the former Blue, Garritch Fabless, the latter decided to introduce Felix to Louanna's case to show him how powerless healing magic can also be.
+
+（青之继承者）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #437](https://twitter.com/LoremIpsumVerb/status/1424353865713995778)
+
+According to the author, Felt's favourite game would likely be one where she can duke it out one-on-one, such as badminton, tennis or table tennis. Whereupon it'd seem like Reinhard would just hit the ball back endlessly at her.
+
+（18年菲鲁特生日，fandom未收录）<br/>
+https://twitter.com/nezumiironyanko/status/1027281909569601536
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #438](https://twitter.com/LoremIpsumVerb/status/1424722720827355141)
+
+According to the author, the origin behind Otto Suwen's name is as follows.
+
+His forename, Otto, comes from the Japanese word "otto", which is used as an exclamation in the sense of "Whoops, I messed up."
+
+Whereas, his surname, Suwen, came on a whim.
+
+（17年奥托生日，fandom未收录）<br/>
+https://twitter.com/nezumiironyanko/status/844930336551124992
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #439](https://twitter.com/LoremIpsumVerb/status/1425078001679671296)
+
+The number of birds shown at the start of OP 2, in the first season of Re: Zero, was confirmed by one of the Anime producers to represent the amount of times Subaru would return by death.
+
+Though 12 of them there, the initial Re: Zero PV Poster showcased 11 of them, precisely foreshadowing the amount of times Subaru would die in the first season.
+
+https://twitter.com/rkEoMNWZl5WlD3B/status/1425042832096591872<br/>
+https://twitter.com/NohiRider/status/777539392550297600
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #440](https://twitter.com/LoremIpsumVerb/status/1425448340305633293)
+
+If the Royal Candidates were summoned to Earth, they would all end up in Las Vegas, with Priscilla and Anastasia having a wild time there; Crusch as well playing Poker. Felt would strike it rich doing heists, and Emilia would lose everything she owns.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：次期王様候補者が逆異世界転移をして現代日本に来た場合どうなりますかね。<br/>
+A：プリシラがラスベガスで豪遊して、アナスタシアがラスベガスで豪遊して、クルシュ様がラスベガスでポーカーで豪遊して、フェルトがラスベガスで悪いお仕事大繁盛して、エミリアたんがラスベガスで素寒貧になります。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
