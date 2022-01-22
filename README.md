@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413)&nbsp; [417](#re-zero-daily-trivia-417)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -5723,6 +5723,82 @@ His domain is powerful, containing two great cities of Lugunica within it: Ganac
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #421](https://twitter.com/LoremIpsumVerb/status/1418560088571359232)
+
+According to the author, Frederica Baumann's father is slated for an appearance later on in the story.
+
+<details>
+<summary>（18年芙蕾生日，原推已不可见仅有英译备份）</summary>
+Q: Will Frederica's father make an appearance after this?<br/>
+A: Yes.
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #422](https://twitter.com/LoremIpsumVerb/status/1418912184084668417)
+
+Marcos Gildark possesses a trump card known as "Rock Armour", that allows him to create body armour using magic that covers his entire body. It's made of grey stones, increases his height to three meters, and makes him immune to things like poison gas.
+
+<details>
+<summary>（青之继承者，三米的设定仅出现于杂志版，短篇集5未写出）</summary>
+
+![](https://github.com/CanopusEtaCarinae/tiebaposts/blob/master/Crystal_Daily_Trivia/images/422-3m.png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #423](https://twitter.com/LoremIpsumVerb/status/1419277572882436097)
+
+The author has ranked Wilhelm's strength at various points in comparison to some other Sword Saints, yielding a ranking of:
+
+Reinhard > Reid >>> Wilhelm (Power of Love) > Former Sword Saint (Theresia) > Normal Young Wilhelm >> Old Wilhelm.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：全盛期ヴィルヘルムさんが歴代剣聖に並ぶくらいの強さということですがこれって剣聖の中でラインハルトだけ飛び抜けてるって認識でいいですか？<br/>
+A：ラインハルト＞レイド＞＞＞ヴィルヘルム（愛の力）＞歴代剣聖（テレシア）＞通常若ヴィルヘルム＞＞老ヴィルヘルムって感じです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #424](https://twitter.com/LoremIpsumVerb/status/1419648104853291016)
+
+According to Tappei, if Regulus were to become the protagonist of a Gal Game, the heroines would end up as such:
+
+The ones that don't listen to him would be made into mincemeat, whereas the ones that do would end up as his harem's brides one by one.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：レグルスさんが主人公のギャルゲーってどんな感じですか？<br/>
+A：言うこと聞かないヒロインをミンチにして、言うこと聞くヒロインを次々と嫁にするハーレム物です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+[Re: Zero Daily Trivia #425](https://twitter.com/LoremIpsumVerb/status/1420009708589658114)
+
+Barbaro Rabbit Rice Crackers are a type of snack typical to Kararagi which keep well, and are regarded as a nutritious delicacy, as well as a meal fit for travel and camping.
+
+【貌似出自禁书与谜之精灵的剧情，了解太少不确定……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
