@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -932,7 +932,7 @@ Arrachia, Rank ?
 
 ---
 
-[Re: Zero Daily Trivia #64](https://twitter.com/LoremIpsumVerb/status/1289154062131355649)
+#### [Re: Zero Daily Trivia #64](https://twitter.com/LoremIpsumVerb/status/1289154062131355649)
 
 Fifteen years before the main story the legendary Eight Arms, Kurgan, was killed by Regulus Corneas in the border city of Garkla.
 
@@ -6063,6 +6063,86 @@ One of Roswaal J. Mathers' ancestors constructed a pair of black gloves that are
 The first time Felix Argyle ever went against his Master's bidding, pushing his own view, was when he entreated Crusch to visit the house of Heinkel Astrea with him, to try and confirm his suspicions about him having murdered Garritch Fabless.
 
 （青之继承者）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #446](https://twitter.com/LoremIpsumVerb/status/1427619399570186249)
+
+Tappei originally released A Martyr's Death using Privatter, making it available only to his Twitter Followers as part of the "Wandoro" challenge - Where you try to create a piece of work in an hour.
+
+Tappei took only 30 minutes to complete this story.
+
+https://twitter.com/nezumiironyanko/status/794920980892135424
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #447](https://twitter.com/LoremIpsumVerb/status/1427976099343093765)
+
+In the Royal Capital of Lugunica, guards may carry a small whistle that allows them to call over other guards to them when blown.
+
+Felt pickpocketed one and used it to call the guards to her when she was targeted by a kidnapping gang.
+
+【貌似是出自『スラムの一匹狼、フェルトちゃんの騒々しい日常』，不了解具体剧情不太确定……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #448](https://twitter.com/LoremIpsumVerb/status/1428350484989968395)
+
+According to the author, Crusch's main time to shine will come super late in the second half of Re: Zero.
+
+<details>
+<summary>【库珥修高光在后半很晚？这个我确实没印象了……库珥修+后半只搜出这么个没什么关系的问答……】</summary>
+Q：クルシュさんが好きとおっしゃいましたが、登場時のクルシュさん、記憶喪失後のクルシュさんだとどっちが好きなんですか？自分は男装の麗人時代のクルシュさんの虜です<br/>
+A：リゼロ後半のハイブリッドクルシュ様が素敵だと思います。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #449](https://twitter.com/LoremIpsumVerb/status/1428712489903169539)
+
+According to the author, if you were to rank the Seven Witches of Sin in terms of how much of a schemer they are, the ranking would be as such:
+Echidna >>>>> Carmilla >> Sekhmet / Daphne >>> Typhon >>>>> Minerva.
+
+Satella was omitted.
+
+<details>
+<summary>（感想板老贼2013-06-03 13:55 回复2013-06-03 13:10）</summary>
+・腹黒ランキング<br/>
+<br/>
+強欲＞＞＞＞＞色欲＞＞怠惰・暴食＞＞＞傲慢＞＞＞＞＞憤怒<br/>
+<br/>
+となっております。なお、嫉妬さんは番外。もう腹黒とかそんな次元にいません。<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #450](https://twitter.com/LoremIpsumVerb/status/1429063816864804872)
+
+Tappei has mentioned before that the names of some of the Animals and Mabeasts that appear in Re: Zero are borrowed from the franchise: Monster Rancher.
+
+This applies to the Ligers, and he had to withstand the urge to call Earth Dragons: "Roadrunners".
+
+<details>
+<summary>（14年某推、ask.fm：）</summary>
+https://twitter.com/nezumiironyanko/status/474591893150375936<br/>
+Q：小説を書いているんですけど、世界観が地球と常識も生態も異なるものにしたため、魔物とかの名付けに困りました……猫さんは魔物の名前はどう決めてます？現実の生き物の名前をもじってますか？<br/>
+A：ＷＥＢはモンスターファームからもらってたので、書籍と今後はニュアンスでいこうと思ってます。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
