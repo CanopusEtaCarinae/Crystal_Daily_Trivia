@@ -5930,6 +5930,7 @@ According to the author, the origins of the iconic phrase "EMT" is from him liki
 
 <details>
 <summary>（ask.fm：）</summary>
+
 Q：EMT発祥のもとはどこにありましたか ([Aran@にゃんぱすなのん](https://ask.fm/laimu_seiran))<br/>
 A：エーリカ-ハルトマンが俺は好きです。エイラーニャといい勝負
 </details>
