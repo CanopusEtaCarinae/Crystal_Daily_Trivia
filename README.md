@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-07)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -5805,7 +5805,6 @@ According to the author, a typical daily routine of echidna would be her prepari
 
 On days that no one is coming to visit, she's chatting with one of the other witches. Usually Sekhmet or Daphne.
 
-（18年多娜生日，提问者不可见，reddit有英译）
 <details>
 <summary>（18年多娜生日，提问者不可见，reddit有英译）</summary>
 
@@ -5858,11 +5857,82 @@ He chose this spot because Rem told him the colour of the petals resemble nee-sa
 
 #### [Re: Zero Daily Trivia #430](https://twitter.com/LoremIpsumVerb/status/1421826775961722888)
 
-(2021-07-01)
+(2021-08-01)
 
 In Aganau IF, Subaru found the Witch Cult, including Petelgeuse, in a forest near Degilta after being tipped about potential Witch Cult activity by Old Man Rom.
 
 （LiM 新章2 if）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #431](https://twitter.com/LoremIpsumVerb/status/1422173010010820613)
+
+Shaula claims she's not very good at comparing people by their faces, and instead relied on Subaru's awful smell to identify him as her Master.
+
+Despite that, she was able to immediately recognise Reid Astrea, fainting after he appeared in the Trial.
+
+（22卷，Web六章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #432](https://twitter.com/LoremIpsumVerb/status/1422543964373192706)
+
+Though Spirits are not required to eat meals, as they reduce mana into food, some, such as Beatrice, can comprehend taste.
+
+Beatrice in particular would look forward to Ryuzu's cooking back when they lived in the Sanctuary.
+
+（二期BD5特典〔一章2节〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #433](https://twitter.com/LoremIpsumVerb/status/1422900914302689281)
+
+According to the author, the trademark tiny crown that Beatrice is commonly drawn wearing was just a cool tidbit which Otsuka drew in, rather than something that the author fashioned.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ベア子の王冠の設定とかかんがえてたりします？<br/>
+A：大塚さんが描いてくれて素敵アイテムなので、特にこれといってはありません。可愛いだけです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #434](https://twitter.com/LoremIpsumVerb/status/1423259377394401284)
+
+While Wilhelm van Astrea was under the influence of Melinda's Evil Eye in Battle Ballad, he began to see illusions of Pivot Arnancy, his dear comrade in war.
+
+Reason being Wilhelm felt guilty that Pivot had sacrificed himself to save his life
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #435](https://twitter.com/LoremIpsumVerb/status/1423634641219690504)
+
+According to the author, the origins of the iconic phrase "EMT" is from him liking Erica Hartmann, one of the main protagonists of the "Strike Witches" series.
+
+"Erica Maji Tenshi" (Erica is seriously an angel) was a phrase used among fans.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：EMT発祥のもとはどこにありましたか ([Aran@にゃんぱすなのん](https://ask.fm/laimu_seiran))<br/>
+A：エーリカ-ハルトマンが俺は好きです。エイラーニャといい勝負
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
