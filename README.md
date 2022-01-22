@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -6004,6 +6004,65 @@ If the Royal Candidates were summoned to Earth, they would all end up in Las Veg
 Q：次期王様候補者が逆異世界転移をして現代日本に来た場合どうなりますかね。<br/>
 A：プリシラがラスベガスで豪遊して、アナスタシアがラスベガスで豪遊して、クルシュ様がラスベガスでポーカーで豪遊して、フェルトがラスベガスで悪いお仕事大繁盛して、エミリアたんがラスベガスで素寒貧になります。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #441](https://twitter.com/LoremIpsumVerb/status/1425811993454202885)
+
+Zabinel was the First Prince of Lugunica, son of the 41st King, Randohal. He was eight years older than the Fourth Prince, Fourier, and seven years before the main story, was engaged to the daughter of Azah Febry - a member of the Council of Wise Men.
+
+Erratum: Granddaughter, not daughter.
+
+（OVA2特典 Before Memories 库珥修阵营）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #442](https://twitter.com/LoremIpsumVerb/status/1426162319160225793)
+
+Clind met Felix when accompanying Roswaal L. to the Kingdom's Research Building for Medical Care five years ago.
+
+He was able to see through Felix's cross-dressing, identifying his gender, placed a flower in his hair, and urged him to stay as he was.
+
+（青之继承者）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #443](https://twitter.com/LoremIpsumVerb/status/1426512725186863108)
+
+According to the author, the Oni Village that Rem and Ram belonged to was located at the border with Kararagi in the West, leading to the customs and dress from the nation becoming widespread in the village.
+
+（一期11集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #444](https://twitter.com/LoremIpsumVerb/status/1426889338621734912)
+
+One of Roswaal J. Mathers' ancestors constructed a pair of black gloves that are said to be able to stop even the blade of a Holy Sword. She used them in her fight against the Twin Shura in Sword Demon Battle Ballad to great success.
+
+（剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #445](https://twitter.com/LoremIpsumVerb/status/1427263486686552067)
+
+The first time Felix Argyle ever went against his Master's bidding, pushing his own view, was when he entreated Crusch to visit the house of Heinkel Astrea with him, to try and confirm his suspicions about him having murdered Garritch Fabless.
+
+（青之继承者）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
