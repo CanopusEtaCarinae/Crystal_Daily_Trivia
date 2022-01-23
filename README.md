@@ -6621,6 +6621,8 @@ Q：長月達平っていうほうの名前ってなんか由来とかあるん�
 A：達平は友人の名前を一文字ずつもらったのと、長月は旧暦の九月でＢ’ｚの稲葉の誕生月です。<br/>
 <br/>
 https://twitter.com/search?q=B%27z%20(from%3Anezumiironyanko)&src=typed_query&f=top
+</details>
+
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
