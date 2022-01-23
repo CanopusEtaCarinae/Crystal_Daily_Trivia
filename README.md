@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -6589,6 +6589,86 @@ Julius Euculius, moved by his brother Joshua's desire of wanting to paint a scen
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #481](https://twitter.com/LoremIpsumVerb/status/1440635206436753418)
+
+（482）
+
+When asked about what Theresia thinks of Grimm Fauzen, the author replied that she thinks it's unfair that he gets to keep Carol all to himself.
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #482](https://twitter.com/LoremIpsumVerb/status/1440984364083470336)
+
+（483）
+
+The reason the author chose Nagatsuki as his pen name was because it represents the birth month of his favourite Japanese singer, Koshi Inaba.
+
+In fact, Emilia's birthday was also set by the author to be on this same day.
+
+
+<details>
+<summary>（ask.fm及各种提及B’z的推）</summary>
+Q：先生の名前の由来とかあるんですか？<br/>
+A：鼠色猫ならトム＆ジェリー。長月達平なら旧暦の９月の長月。Bzの稲葉の誕生月だね。達平は友人の名前ミックス<br/>
+<br/>
+Q：長月達平っていうほうの名前ってなんか由来とかあるんですか？ 鼠色猫の由来は見た気がするんですけど<br/>
+A：達平は友人の名前を一文字ずつもらったのと、長月は旧暦の九月でＢ’ｚの稲葉の誕生月です。<br/>
+<br/>
+https://twitter.com/search?q=B%27z%20(from%3Anezumiironyanko)&src=typed_query&f=top
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #483](https://twitter.com/LoremIpsumVerb/status/1441349938030563329)
+
+（484）
+
+After Arc 4, Emilia began writing down some of her daily life in a diary, inspired by Subaru. She does so, so that eventually she can share with Puck all the happy times she's had.
+
+After consulting with Subaru, she called her diary the "Happy Diary".
+
+（2021 EMT生日特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #484](https://twitter.com/LoremIpsumVerb/status/1441764880793497608)
+
+（485）
+
+After fleeing from the Pendleton Mansion, during Goz Ralphon's attack, Priscilla found herself becoming the head of some bandits.
+
+She was eventually tracked down by Selena with the help of Miles and Balroy, and she helped her get out of the country.
+
+（EX5虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #485](https://twitter.com/LoremIpsumVerb/status/1442072153684262912)
+
+（486）
+
+According to the author, the members of the Emilia Camp all first go and see Otto whenever they have some sort of difficulty.
+
+（18年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -6809,6 +6889,21 @@ The author has gone on record saying that Arc Three was an Arc for the purpose o
 That other line was the one in the final part of the Arc, where he said "I love you, Emilia"
 
 （一期新编集第10、13集实况）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #604](https://twitter.com/LoremIpsumVerb/status/1485255222670901255)
+
+
+
+Hauroy Larrier was a swordsman who lived right beside Reid's house, presumably back in the village of Carnattse when he lived with Tosca.
+
+Reid mentioned his name when he fought against Rai Batenkaitos.
+
+（Web六章，文库未收此名）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
