@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [474](#re-zero-daily-trivia-474)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -6441,6 +6441,82 @@ In Aganau IF, Subaru made his prosthetic left arm by melting down Rem's Mornings
 As a result, the prosthetic ended up being quite heavy, throwing off his balance when he Returned Back to 20 years ago, where he still had his arm.
 
 （LiM 新章2 if）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #471](https://twitter.com/LoremIpsumVerb/status/1437025645020712962)
+
+（472）
+
+Contrary to popular belief, half-elves seem to have been discriminated against even before the Great Calamity.
+
+This is evidenced by Ryuzu having been treated as a half-devil by the world, even before she came to the Sanctuary.
+
+（14卷第二章第9节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #472](https://twitter.com/LoremIpsumVerb/status/1437389386665111563)
+
+（473）
+
+After retiring as a Kingdom Knight due to injury, Conwood Melahau, once Wilhelm's deputy, opened a tavern in the Royal Capital's Commercial District, called the "Silver Shield".
+
+The tavern is often frequented by Knights of the Kingdom, Julius included
+
+（一期新编集第10集实况，酒馆名见一期BD9特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #473](https://twitter.com/LoremIpsumVerb/status/1437748245879533574)
+
+（474）
+
+A few hours after the Election began, Miklotov McMahon and Rickert Hoffman went to the Astrea Mansion to visit Felt
+
+Rickert looked at Felt from top to bottom several times, seemingly trying to ascertain if she was related to the Lugunican Royal Family
+
+（一期BD9特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #474](https://twitter.com/LoremIpsumVerb/status/1438109809765666816)
+
+（475）
+
+It's common for Roswaal to usually send Frederica along with any new trainees who are to be trained by Clind.
+
+Her role there involves consoling the trainees, and re-inspiring them after the inevitable stresses incurred during the training.
+
+
+【直观感觉是出自Emily-san的女仆道，不过不太确定是不是有其他出处？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #475](https://twitter.com/LoremIpsumVerb/status/1438462967431958533)
+
+（476）
+
+Drizen Vollachia, the 76th Emperor of Vollachia, was described to be nearing old age, with white hair, and red eyes. His arms and neck had gotten scrawny from age, with the lustre of his skin gone pale as if he were ill.
+
+Only his eyes shone brightly.
+
+（红莲的残影）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
