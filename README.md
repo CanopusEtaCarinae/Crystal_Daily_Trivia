@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [474](#re-zero-daily-trivia-474)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [474](#re-zero-daily-trivia-474) &nbsp; [477](#re-zero-daily-trivia-477)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -6523,6 +6523,72 @@ Only his eyes shone brightly.
 
 ---
 
+#### [Re: Zero Daily Trivia #476](https://twitter.com/LoremIpsumVerb/status/1438809551856443396)
+
+（477）
+
+Although Lamia was described to have red hair, and be 1-2 years older than Prisca in Crimson Afterglow, in the EX 5 version she was changed to have the same orange hair as Prisca, as well as be 4-5 years older than her. Putting her likely age at 16.
+
+（红莲的残影，Ex5改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #477](https://twitter.com/LoremIpsumVerb/status/1439207991044104194)
+
+（478）
+
+According to the Author, Natsuki Kenichi, Subaru's father, is a salaryman who is currently really into trains. Meanwhile, Subaru's mother, Naoko, is a carefree housewife who loves Karaoke and sometimes forgets to make food.
+
+【这个我也想不起出处了……太菜了】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #478](https://twitter.com/LoremIpsumVerb/status/1439547857741258754)
+
+（479）
+
+According to Tappei, in Tsugihagu IF, he speculates the Royal Selection boiled down to a contest between Felt and Priscilla. However, since Felt lost Rom, her motivation steeply declined for a while, leaving Priscilla as the most likely winner
+
+【[暴食IF补充](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/2282151/)，[不过目前好像没汉化完整](https://tieba.baidu.com/p/6088307483)】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #479](https://twitter.com/LoremIpsumVerb/status/1439914699563413507)
+
+（480）
+
+In their first duel, Wilhelm managed to cut off two of the Eight Arms: Kurgan's arms.
+
+However, when they clashed again in Picoutatte, in Sword Demon Battle Ballad, Kurgan's missing arms were back. It's still a mystery how they were restored.
+
+（剑鬼恋谭-剑鬼战歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #480](https://twitter.com/LoremIpsumVerb/status/1440285359552679936)
+
+（481）
+
+Julius Euculius, moved by his brother Joshua's desire of wanting to paint a scene he could see with his own eyes, and wanting him to see the wider world, was the one who suggested Pristella, as it was a city Joshua once wished to see with his own eyes.
+
+（Lugunican Hustle）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
