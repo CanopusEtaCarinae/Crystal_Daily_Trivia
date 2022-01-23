@@ -6611,7 +6611,7 @@ The reason the author chose Nagatsuki as his pen name was because it represents 
 
 In fact, Emilia's birthday was also set by the author to be on this same day.
 
-
+（部分与[#182(183)](#re-zero-daily-trivia-182183)重合）
 <details>
 <summary>（ask.fm及各种提及B’z的推）</summary>
 Q：先生の名前の由来とかあるんですか？<br/>
