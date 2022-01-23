@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -6149,6 +6149,155 @@ A：ＷＥＢはモンスターファームからもらってたので、書籍�
 
 ---
 
+#### [Re: Zero Daily Trivia #451](https://twitter.com/LoremIpsumVerb/status/1429426288457129988)
+
+According to Tappei, he has never had a backlog when posting chapters of the Web Novel to Narou.
+
+The only exception for this was for Arc One, where he spent about a week writing the entire Arc, and posted it in chunks after, over a 19 day interval.
+
+<details>
+<summary>【老贼说不存稿感觉见过但一时翻不到出处……找到俩问答感觉也关系不大】</summary>
+Q：一章書き上げてから小説投稿しようと思っているのですが、毎回5話分書いたところでもっと良い展開が思い浮かんで書き直す、ということを7回繰り返してるんですが、猫さんはリゼロの一章を何日くらいで書き上げて何日時間を開けて投稿しましたか？<br/>
+A：リゼロの1章だけなら２週間くらいですかね。書いたらすぐ投稿しました。始めて一ヶ月は感想１個ももらってないよ。<br/>
+<br/>
+Q：web版リゼロのPV数って初日からハンパなかったですか？「あれ？おかしいな」って気がついたのは何日目くらいでしたか？<br/>
+A：お前ぶっ飛ばすぞ、この野郎。最初の一ヵ月は反応らしい反応なんてなかったし、一章終わるまで感想一個ももらってねぇよ。おかしいと思ったのは一ヵ月たってからだファック！
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+[Re: Zero Daily Trivia #452](https://twitter.com/LoremIpsumVerb/status/1429795178760581130)
+
+According to Tappei, if you pay attention to Raksha's hair colour, Kadomon Risch's wife, you can see that she is related to a certain character who has that hair colour in the novels.
+
+The most common speculation is that she's Grimm & Carol's daughter.
+
+（一期1集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #453](https://twitter.com/LoremIpsumVerb/status/1430152880498020362)
+
+Despite being renown for the Re: Zero Novel, which began in 2012, Nagatsuki Tappei's experience with novel writing didn't begin then.
+
+In 2013, he said that he'd been writing novels for ten years already, however it's unknown if he ever released any.
+
+
+<details>
+<summary>【感想板找到个沾边的，不太确定是不是就是Ice的出处：老贼2013-03-17 20:03 回复2013-03-17 17:21】</summary>
+最初にまず、「異世界召喚された主人公が、『死に戻り』の能力だけ抱えて、王様候補のヒロインを王様にするために死に戻りしつつ頑張る」という設定だけ考えてました。<br/>
+それを友人に話し、ファミレスで半日だべって大まかなストーリーラインを形成。そのあと、帰って書き始めて三日後ぐらいから投稿開始――の流れです。<br/>
+面白い作品になるよう、構想自体は常に練っていますが、骨組みに肉付けしながら書き進めてるといった感じでしょうか。純粋に構想期間の話をすると半日……になってしまうので、細かい設定の詰めなど考慮して一週間ぐらいになると思います。<br/>
+とはいえ、自分も小説は書き始めて１０年選手ですから、一度書き始めてしまえばそれなりに物語を構成する能力はあるつもりです。<br/>
+まず、小説を書き始めるのであれば、超長編よりも文庫本１冊ぐらいの中編を目指しましょう。完結するまで何本か書いて、文章力や発想力が身につけばあとは勢いでなんでも書けます。<br/>
+<br/>
+ＬＥＮＥＹ様の作品が読める日を楽しみにしております。<br/>
+書き始めても、この作品を読むのはやめないでね！<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #454](https://twitter.com/LoremIpsumVerb/status/1430501994574368768)
+
+Despite an official Re: Zero World Map being released with the Re: Zero Kinsho Game, the very first Map shown to the public happened during a Talkshow Event in Yokohama, in 2018.
+
+The map had been drawn by Tappei himself in MS Paint.
+
+【不确实是不是下面的，感觉也没从这翻到……】
+https://webcache.googleusercontent.com/search?q=cache:NTK_lUxHW4gJ:https://mevius.5ch.net/test/read.cgi/bookall/1539100866/+&cd=3&hl=en&ct=clnk&gl=uk<br/>
+https://twitter.com/v1tano6/status/1053683533607096320
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #455](https://twitter.com/LoremIpsumVerb/status/1430893176462606348)
+
+When asked about what kind of Magic he wished he could use if he were to go to an Isekai, the author replied that he definitely didn't want "Return by Death", and instead that perhaps if he had Regulus' ability, things would be easy.
+
+【不太确定是不是下面这个，感觉也不太对得上……】
+https://twitter.com/v1tano6/status/1053680432040951808
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #456](https://twitter.com/LoremIpsumVerb/status/1431237590728990731)
+
+According to one response from the Author, when asked about who he'd like to have, if he went to the Re: Zero world, he picked Reinhard.
+
+Reason being, he possesses the most capacity for thinking about the stuff around him.inking about the stuff around him.
+
+【水平太差这个居然找不到……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #457](https://twitter.com/LoremIpsumVerb/status/1431595817677230086)
+
+Ubilk, a male prostitute on the Gladiator Island of Ginunhive, was one of the orchestrators behind the uprising that occurred there 7 years ago.
+
+He managed to flee, possibly via teleportation, when the uprising failed, leaving his whereabouts unknown.
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #458](https://twitter.com/LoremIpsumVerb/status/1431943124432064513)
+
+Before parting for a final time with Arakiya in Before Memories, Priscilla told her former subordinate that she would have to make up her mind for the next time they met.
+
+Words which Priscilla would quote once again when they met again in Arc 7.
+
+（OVA2特典 Before Memories 寡妇阵营）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #459](https://twitter.com/LoremIpsumVerb/status/1432314881840123904)
+
+Puck has often shown that he knows of things related to Earth in the series. This includes using English loanwords, referencing Japanese sayings, and showing knowledge about the tale of Yamata no Orochi.
+
+It's unknown how he knows about these things.
+
+（掌篇集1 观光记改搞 二期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #460](https://twitter.com/LoremIpsumVerb/status/1432681494032564226)
+
+In Oboreru, the Purge King's reign became more extreme each day, until he couldn't be ignored by the underworld.
+
+A strike force with Reinhard in it was formed, approved by all 4 countries, and sent to Pandemonium as an exemption to the "Reinhard Law".
+
+（愤怒IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -6351,7 +6500,24 @@ Subaru's ignominious title, "Lolimancer", was coined between Arc 4 and 5 by Shor
 
 He came up with the title after seeing Subaru and Beatrice's relationship during the interview.
 
+And for some more clarity, he coined the title trying to come up with something appropriate since the other Knights to the Royal Candidates all held cool titles.
+
+In the end he settled on Lolimancer... And well, it had quite the impact and spread all around Lugunica!
+
 （Lugunican Papers？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+[Re: Zero Daily Trivia #603](https://twitter.com/LoremIpsumVerb/status/1484888235453165575)
+
+The author has gone on record saying that Arc Three was an Arc for the purpose of making Subaru say "I hate myself", as well as another line.
+
+That other line was the one in the final part of the Arc, where he said "I love you, Emilia"
+
+（一期新编集第10、13集实况）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
