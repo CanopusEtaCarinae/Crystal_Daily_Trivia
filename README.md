@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -4938,7 +4938,7 @@ Despite being a key piece to Tsugihagu Subaru's plans to patch himself together,
 
 Since she was eaten by Gluttony, it's supposed that she would not have a Book of the Dead.
 
-【[暴食if补充](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/2282151/)，[不过零大和拉姆前辈说](https://tieba.baidu.com/p/6088307483)是白纸来着？不确定是不是翻译问题】
+【[暴食IF补充](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/2282151/)，[不过零大和拉姆前辈说](https://tieba.baidu.com/p/6088307483)是白纸来着？不确定是不是翻译问题】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -6014,7 +6014,7 @@ A：プリシラがラスベガスで豪遊して、アナスタシアがラス�
 
 Zabinel was the First Prince of Lugunica, son of the 41st King, Randohal. He was eight years older than the Fourth Prince, Fourier, and seven years before the main story, was engaged to the daughter of Azah Febry - a member of the Council of Wise Men.
 
-Erratum: Granddaughter, not daughter.
+- Erratum: Granddaughter, not daughter.
 
 （OVA2特典 Before Memories 库珥修阵营）
 
@@ -6297,6 +6297,74 @@ A strike force with Reinhard in it was formed, approved by all 4 countries, and 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #461](https://twitter.com/LoremIpsumVerb/status/1433032459751395331)
+
+(2021-09-01)
+
+After Subaru fled to Kararagi in Oboreru, he put some effort (using Return by Death) to solve a problem there involving one of the 4 Great Spirits, implied to be Zarestia.
+
+As a result, Subaru gained Halibel's trust and the land to found his "Pleiades"
+
+（Ex4，愤怒IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #462](https://twitter.com/LoremIpsumVerb/status/1433417164606816258)
+
+According to the author, it's unknown whether in Ayamatsu IF Regulus killed Subaru or not. The author speculated that perhaps his kill count was zero, just like in the main story.
+
+（傲慢IF补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #463](https://twitter.com/LoremIpsumVerb/status/1433764381251223553)
+
+In Ayamatsu IF, the White Whale's mist erased both Wilhelm and Crusch from existence.
+
+As a result, Reinhard's relationship with his father, Heinkel, improved a lot compared to the Main Story, as the feud between them lessened considerably.
+
+（傲慢IF补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #464](https://twitter.com/LoremIpsumVerb/status/1434118862799261696)
+
+In Gluttony IF, Echidna was the only initial survivor from the Pleiades Group
+
+She escaped using Gian as Patrasche did not want to leave Subaru; the Witchbeasts in her way were sniped by Shaula, as Subaru let her go to use as bait in his Pristella trap
+
+【[暴食IF补充](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/2282151/)，[不过目前好像没汉化完整](https://tieba.baidu.com/p/6088307483)】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #465](https://twitter.com/LoremIpsumVerb/status/1434491386234015745)
+
+When Tappei began writing Tsugihagu IF, he initially toyed with making the destroyed village Arlam, instead of the one Amue was from, and having the survivors be Petra's friends: Lucas and Milde.
+
+He scrapped the idea though, and went for Amue instead.
+
+- Erratum: Sorry, Milde is a typo. It's meant to be "Mild".
+
+【[暴食IF补充](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/2282151/)，[不过目前好像没汉化完整](https://tieba.baidu.com/p/6088307483)】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 
 <!--
 
