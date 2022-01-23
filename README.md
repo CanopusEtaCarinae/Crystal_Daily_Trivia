@@ -6365,6 +6365,87 @@ He scrapped the idea though, and went for Amue instead.
 
 ---
 
+#### [Re: Zero Daily Trivia #466](https://twitter.com/LoremIpsumVerb/status/1434837891461664775)
+
+Though well known that Gusteko has a Holy King that is chosen by the Sacred Beast, Odglass, the country has an actual King as well, that is also chosen by Odglass.
+
+（zeropedia）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #467](https://twitter.com/LoremIpsumVerb/status/1435220699325554693)
+
+Though Puck is illustrated with icy green eyes in his usual form, both in the Anime and the Light Novel, he does in actual fact have black eyes.
+
+Descriptions of him having black eyes can be found in the Web Novel, Side Stories and the Light Novel.
+
+（一卷起多次描述帕克黑眸）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #468](https://twitter.com/LoremIpsumVerb/status/1435569395137499141)
+
+Anastasia Hoshin founded her Hoshin Company exactly seven years before Subaru was summoned to the world.
+
+Before that, she worked her first job in a tavern in Banan, before then moving onto the Chuden Corporation, which she would eventually buy out.
+
+【应该是出自OVA2特典 Before Memories 安娜阵营？目前还没汉化。Chuden商会可见于6卷蜜瓜、短篇集3和5】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #468](https://twitter.com/LoremIpsumVerb/status/1435939740113674240)
+
+（许久后才发现468号也重了……）
+
+The Life Sword, Zeam, one of the ten swords of power, was held in Count Reeback's abode. While holding the sword, and pouring mana into it, it lets you kill Spirits, killing the enemy's soul.
+
+Subaru used it against Petelgeuse in Aganau IF.
+
+（LiM 新章2 if）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #469](https://twitter.com/LoremIpsumVerb/status/1436314538840895499)
+
+（470）
+
+After making Beatrice upset during Arc Two, due to the recipe book incident, both Subaru and Rem decided to make her a Puck plushie to put her in a better mood.
+
+Beatrice kept that plushie with her, tattered as it became, all 20 years during Aganau IF.
+
+（LiM 新章2 if）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #470](https://twitter.com/LoremIpsumVerb/status/1436642105250795521)
+
+（471）
+
+In Aganau IF, Subaru made his prosthetic left arm by melting down Rem's Morningstar.
+
+As a result, the prosthetic ended up being quite heavy, throwing off his balance when he Returned Back to 20 years ago, where he still had his arm.
+
+（LiM 新章2 if）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 
 <!--
 
