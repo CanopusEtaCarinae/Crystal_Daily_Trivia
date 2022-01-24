@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [474](#re-zero-daily-trivia-474) &nbsp; [477](#re-zero-daily-trivia-477)
+[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [474](#re-zero-daily-trivia-474) &nbsp; [477](#re-zero-daily-trivia-477) &nbsp; [487](#re-zero-daily-trivia-487) &nbsp; [489](#re-zero-daily-trivia-489)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -6671,6 +6671,85 @@ According to the author, the members of the Emilia Camp all first go and see Ott
 
 ---
 
+#### [Re: Zero Daily Trivia #486](https://twitter.com/LoremIpsumVerb/status/1442449453659693058)
+
+（487）
+
+We're on trivia number 486, so we need a special trivia for our beloved 486 (Subaru)
+
+When asked whether Subaru felt more like a Dark Hero, than a Hero of Justice, Tappei replied that he felt more like a side character with the occasional named
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：先生にとってスバルって正義のヒーローていうよりダークヒーローって感じですか？<br/>
+A：たまに名前回がくる脇役って感じです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #487](https://twitter.com/LoremIpsumVerb/status/1442797643999100929)
+
+（488）
+
+Ton and Kan from the three thugs started as childhood friends.
+
+However, they met Chin thanks to Kan bringing him back as he lay on the verge of death in an alley, just after he ran away from home. Ton cooked for him, causing Chin to cry snotty tears.
+
+【似乎又是我没看过的某短篇的样子……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #488](https://twitter.com/LoremIpsumVerb/status/1443171047130402827)
+
+（489）
+
+Chisha Gold wasn't originally from a noble family or from one that served the Abelluxes.
+
+He was a commoner, who ended up by Vincent's side because he helped get a Prince's Dragon Carriage unstuck from a ditch by the road, using his calculation skills
+
+（红莲的残影，Ex5改动）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #489](https://twitter.com/LoremIpsumVerb/status/1443539478187028482)
+
+（490）
+
+The first time Lamia Godwin met Prisca was when the latter was five years old.
+
+Although Lamia introduced herself as her kind big sister, Prisca saw straight through her, with them both instantly recognising each other as their enemy.
+
+【EX5文库或者虎之穴特典？待汉化资源确认】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+
+#### [Re: Zero Daily Trivia #490](https://twitter.com/LoremIpsumVerb/status/1443905122451460096)
+
+（491）
+
+Cecilus has cutesy nicknames for some of the people he talks to, from the Divine Generals. For instance, he refers to Arakiya as "Anya", and Chisha as "Chesha".
+
+In fact, he mentioned Anya's name in Oboreru IF, calling her a timid mage
+
+（EX5 gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
