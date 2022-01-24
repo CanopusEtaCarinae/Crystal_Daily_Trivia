@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &nbsp; [408](#re-zero-daily-trivia-408) &nbsp; [410](#re-zero-daily-trivia-410) &nbsp; [413](#re-zero-daily-trivia-413) &nbsp; [417](#re-zero-daily-trivia-417) &nbsp; [425](#re-zero-daily-trivia-425) &nbsp; [427](#re-zero-daily-trivia-427) &nbsp; [447](#re-zero-daily-trivia-447) &nbsp; [448](#re-zero-daily-trivia-448) &nbsp; [451](#re-zero-daily-trivia-451) &nbsp; [453](#re-zero-daily-trivia-453) &nbsp; [454](#re-zero-daily-trivia-454) &nbsp; [455](#re-zero-daily-trivia-455) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [456](#re-zero-daily-trivia-456) &nbsp; [474](#re-zero-daily-trivia-474) &nbsp; [477](#re-zero-daily-trivia-477) &nbsp; [487](#re-zero-daily-trivia-487) &nbsp; [489](#re-zero-daily-trivia-489)
+[406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -35,7 +35,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
-[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481)
+[401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -6651,7 +6651,7 @@ After fleeing from the Pendleton Mansion, during Goz Ralphon's attack, Priscilla
 
 She was eventually tracked down by Selena with the help of Miles and Balroy, and she helped her get out of the country.
 
-（EX5虎之穴）
+（Ex5虎之穴）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -6728,7 +6728,7 @@ The first time Lamia Godwin met Prisca was when the latter was five years old.
 
 Although Lamia introduced herself as her kind big sister, Prisca saw straight through her, with them both instantly recognising each other as their enemy.
 
-【EX5文库或者虎之穴特典？待汉化资源确认】
+【Ex5文库或者虎之穴特典？待汉化资源确认】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -6740,11 +6740,93 @@ Although Lamia introduced herself as her kind big sister, Prisca saw straight th
 
 （491）
 
+(2021-10-01)
+
 Cecilus has cutesy nicknames for some of the people he talks to, from the Divine Generals. For instance, he refers to Arakiya as "Anya", and Chisha as "Chesha".
 
 In fact, he mentioned Anya's name in Oboreru IF, calling her a timid mage
 
-（EX5 gamers）
+（Ex5 gamers，愤怒IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #491](https://twitter.com/LoremIpsumVerb/status/1444245352756940801)
+
+（492）
+
+After the release of the infamous "Hellcave Chapter", namely, Arc Six Chapter 15, the author commented to a fan that he probably thought this was the worst chapter, being perhaps even tougher than the one with the Rabbits.
+
+https://twitter.com/nezumiironyanko/status/656152209894195200
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #492](https://twitter.com/LoremIpsumVerb/status/1444616701627219968)
+
+（493）
+
+When Tappei first introduced the character Flop O'Connel, in Arc 7, Chapter 16, he originally typo'd his name as "Plop" numerous times, leading to debates on whether his name was "Flop" or "Plop".
+
+These typos were swiftly remedied soon after.
+
+【历史改稿感觉很难考证了……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #493](https://twitter.com/LoremIpsumVerb/status/1444974681858224129)
+
+（494）
+
+According to Tappei, the spell "Shamak" comes from the Japanese word for "Lightproof Curtains" - Shakō Maku. Given its curtaining effect, it's easy to understand the idea behind it.
+
+The spell "Nect" also comes from the word "Connect".
+
+<details>
+<summary>【Shamak的出处在ask.fm，Nect我实在没找到……】</summary>
+Q：Re:ゼロはファンタジー世界なだけあって呪文名や素敵厨二二つ名を自然と考えて登場させれますが、作者的に気に入っている呪文や二つ名などの名前は何ですか？<br/>
+A：ごあって燃えそう→「ゴーア」。ひゅまって冷えそう「ヒューマ」。ふらって吹きそう「フーラ」。音の感じが揃ってるから土は「ドーナ」でいいや……陰は目潰しだし、「遮光カーテン」→「遮光幕」→「遮幕」→「しゃまく」でいいか……。というノリなので、魔法とかに関しては本当にすまない。気に入るほど頭使ってないってのが本音だ。二つ名も別に「剣鬼」と「剣聖」「道化」とか以外に特に出してない気がする。これも気に入るほど頭使ってないんだ。ストーリー周り以外のことで俺に期待するのはやめてくれい。アイディア待ってます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #494](https://twitter.com/LoremIpsumVerb/status/1445327804812472324)
+
+（495）
+
+Julius' Quasi-Spirits, which became Spirits at the end of Arc Six, are all girls. Their names and attributes are: Ia (Fire), Kua (Water), Aro (Wind), Iku (Earth), In (Yang) and Ness (Yin).
+
+Julius has known them for over ten years.
+
+https://twitter.com/nezumiironyanko/status/774900154054774784<br/>
+（Ex4亦有出现全部。五章Web阴阳两精灵命名与文库不同，六章修正）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #495](https://twitter.com/LoremIpsumVerb/status/1445694967079264258)
+
+（496）
+
+According to Tappei, if the mind and bodies of the Royal Candidates were switched with their Knight's, Felix would collapse with a nosebleed in Crusch's body, Al would fondle Priscilla's breasts, and a new blonde loli of justice would show up in town.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：王選メンバーの心と体が入れ替わったとしたら（最初、周りは気づかない）体の持ち主の騎士と会話するとき、どのペアのどんな会話が一番おもしろいと思いますか？<br/>
+A：フェリスがクルシュ様の体で鼻血出して倒れたり、アルがプリシラの胸で遊んだり、町に正義の金髪ロリが現れたり、大体どこが何しても面白いと思います。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
