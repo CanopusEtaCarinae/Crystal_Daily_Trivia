@@ -15,7 +15,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
-[406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493)
+[406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 -->
@@ -6832,6 +6832,69 @@ A：フェリスがクルシュ様の体で鼻血出して倒れたり、アル�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #496](https://twitter.com/LoremIpsumVerb/status/1446073443737296898)
+
+（497）
+
+The author has previously given his stamp of approval, in that there is absolutely no chance that Mimi Pearlbaton would kill Subaru in the future.
+
+https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/657905/index.php
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #497](https://twitter.com/LoremIpsumVerb/status/1446434130028384287)
+
+（498）
+
+Before becoming an Artificial Spirit, Puck was a humanoid being of some sort, with, according to him, longer arms and legs and a handsome face.
+
+The most commonly speculated species are either human or elf.
+
+（Web四章 Bad End 11）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #498](https://twitter.com/LoremIpsumVerb/status/1446769124068167682)
+
+（499）
+
+Despite being a fantasy world devoid of typical modern day amenities, the Re: Zero world still has a lot of modern-looking technology thanks to Magic, Meteors or otherwise.
+
+This includes: flushable toilets, fridges, cameras and toothbrushes.
+
+【马桶可能是六章说马桶盖？牙刷可能是短篇集1和14卷虎之穴提过刷牙？剩下的一时想不起来了……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #499](https://twitter.com/LoremIpsumVerb/status/1447152814422167555)
+
+（500）
+
+Vincent Vollachia has dressed up as a woman to protect his identity numerous times in the past. Thus, his crossdressing ventures as "Bianca" in the Fortress City of Guaral were not something he did for the first time.
+
+（七章23）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [#500 五百条纪念](https://twitter.com/LoremIpsumVerb/status/1447513625481158659)
+
+（其实是501……）
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
