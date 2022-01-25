@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -40,6 +40,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [301-310](#re-zero-daily-trivia-301) (21-04) &zwnj; [311-320](#re-zero-daily-trivia-311) &zwnj; [321-330](#re-zero-daily-trivia-321) &zwnj; [331-340](#re-zero-daily-trivia-331) (21-05) &zwnj; [341-350](#re-zero-daily-trivia-345) &zwnj; [351-360](#re-zero-daily-trivia-351) &zwnj; [361-370](#re-zero-daily-trivia-361) (21-06) &zwnj; [371-380](#re-zero-daily-trivia-371) &zwnj; [381-390](#re-zero-daily-trivia-381) &zwnj; [391-400](#re-zero-daily-trivia-391) (21-07)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
+
+[501-510](#re-zero-daily-trivia-501)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -6966,10 +6968,10 @@ He stated on Narou that Re: Zero was inspired by the Langrisser Game Series.
 それで確認してきましたところ……ホントだ、すげぇ似てますね。<br/>
 個人的な元ネタはラングリッサーシリーズのつもりだったのですが、２年前の日付を見るとこっちが先の発想だ！とは主張できませんね。<br/>
 <br/>
-まだちらっと見ただけなのでなんとも言えませんが、たぶん着地点は違うと思うので今後にご期待ください。
+まだちらっと見ただけなのでなんとも言えませんが、たぶん着地点は違うと思うので今後にご期待ください。<br/>
 <br/>
 鼠色猫/長月達平<br/>
-2012年 10月22日 23時00分
+2012年 10月22日 23時00分<br/>
 <br/>
 <br/>
 
@@ -7010,13 +7012,95 @@ Nagatsuki Tappei worked as a Butcher while writing the stark majority of Re: Zer
 
 Currently, it's unknown whether he still works in this profession.
 
-【感觉巴哈姆特这个不像是最原始的出处，等大佬补充】
+【感觉巴哈姆特这个不像是最原始的出处，等大佬补充】<br/>
 https://gnn.gamer.com.tw/detail.php?sn=135899
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #506](https://twitter.com/LoremIpsumVerb/status/1449699862287638533)
+
+（507）
+
+According to Tappei, if Natsuki Subaru had been summoned to the world with a typical cheat ability, he'd likely get carried away after taking down the three thugs. As a result, he'd run rampant, only for Reinhard to find him and cut him in two
+
+<details>
+<summary>（ask.fm有个类似的但和trivia内容有一大半不符……）</summary>
+Q：スバルがもしも単独で大兎や白鯨を倒せるチート特典を貰ってたらはどうなってたんですか？<br/>
+A：増長して使い方を誤り、ラインハルトに斬られて終わるのではないでしょうか。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #507](https://twitter.com/LoremIpsumVerb/status/1450056009720938499)
+
+（508）
+
+According to Tappei in 2013, there were four heroines in the story, in the sense of holding feelings for Subaru as the opposite sex.
+
+In his original plan, there'd only been three, with Rem being added later; this amount is subject to change.
+
+【四位女主的出处能找到，但说最开始只有三位是老贼直接原话还是说结合签名会里讲二章另加后的推测？等大佬补充】<br/>
+https://twitter.com/nezumiironyanko/status/341557473423007745
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #508](https://twitter.com/LoremIpsumVerb/status/1450434245495775239)
+
+（509）
+
+In Kasaneru IF, Clind saw Subaru as a danger after he made his contract with Echidna. As a result, he tried to kill him.
+
+However, since Clind is unable to harm Frederica, Subaru took advantage of that and used her as bait to subdue him.
+
+（二期BD全卷特典 强欲IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #509](https://twitter.com/LoremIpsumVerb/status/1450820291236712449)
+
+（510）
+
+Forgive me for today's trivia.
+
+In Japan, to purchase all of the Blu-Rays pertaining to a complete Re: Zero Season, you usually have to spend about 61, 600 Yen. (540$)
+
+Whereas, abroad, this price is usually about 5200 Yen ($30).
+
+（截至2021-10-20。纯商品问题……）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #510](https://twitter.com/LoremIpsumVerb/status/1451136341580914693)
+
+（511）
+
+In Kasaneru, Subaru persuaded Garfiel over to his side after he showed him how futile it would be for him to fight against the assailing Great Rabbit alone.
+
+Though he gave it his best try, he succumbed to their numbers and had to retreat with Subaru.
+
+（二期BD全卷特典 强欲IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
