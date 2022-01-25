@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -41,7 +41,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501)
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -7045,7 +7045,7 @@ According to Tappei in 2013, there were four heroines in the story, in the sense
 
 In his original plan, there'd only been three, with Rem being added later; this amount is subject to change.
 
-【四位女主的出处能找到，但说最开始只有三位是老贼直接原话还是说结合签名会里讲二章另加后的推测？等大佬补充】<br/>
+【四位女主的出处能找到，但说最开始只有三位是老贼直接原话还是结合[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)里说二章不在原计划内的推测？等大佬补充】<br/>
 https://twitter.com/nezumiironyanko/status/341557473423007745
 
 [Return to Content](#Content)<br/>
@@ -7100,7 +7100,78 @@ Though he gave it his best try, he succumbed to their numbers and had to retreat
 
 ---
 
+#### [Re: Zero Daily Trivia #511](https://twitter.com/LoremIpsumVerb/status/1451500056419373072)
 
+（512）
+
+Despite Annerose being taken hostage by Subaru, Clind did not falter in his mission of wanting to kill him as Subaru had made a contract with Echidna.
+
+He even unwillingly fought against a beastified Frederica, crushing her limbs.
+
+（二期BD全卷特典 强欲IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #512](https://twitter.com/LoremIpsumVerb/status/1451870934231568388)
+
+（513）
+
+In Kasaneru, Frederica suffered tremendous emotional damage after losing Clind.
+
+As a result, she had trouble concentrating, leading to her going to the Miload Mansion with Annerose, with no signs of her ever coming back to Roswaal's Mansion.
+
+（二期BD全卷特典 强欲IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #513](https://twitter.com/LoremIpsumVerb/status/1452240080555368456)
+
+（514）
+
+The Forbidden Library was set up with a mechanism by Echidna that would make it so all the books were wiped blank if Beatrice abandoned her role as librarian.
+
+This mechanism was there to prevent people killing Beatrice to access its knowledge
+
+（二期BD全卷特典 强欲IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #514](https://twitter.com/LoremIpsumVerb/status/1452583277978652676)
+
+（515）
+
+Echidna has a habit of repeating "Myon Myon" when downloading Subaru's memories in Kasaneru.
+
+According to her, there was a Mage called "Myon Myon" when Magic hadn't been systemised yet, and her pupils would hum back her name while practising spells.
+
+（二期BD全卷特典 强欲IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #515](https://twitter.com/LoremIpsumVerb/status/1452942419159396359)
+
+（516）
+
+According to the Author, the Oni Tribe is a race that is known throughout his story as the Kings of Mountains and Forests.
+
+【山林之王这词确实没印象……特典好像也没写的样子】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
