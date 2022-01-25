@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -41,7 +41,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511)
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -7242,6 +7242,81 @@ According to Berstetz, the system of Divine Generals was something Vincent himse
 This implies that the system was not in place beforehand, meaning Kurgan, though strongest at the time, was not a Divine General with Rank One.
 
 （Sword Identity）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #521](https://twitter.com/LoremIpsumVerb/status/1455142593411653637)
+
+（522）
+
+(2021-11-01)
+
+Tappei was known in the past to be quite an egosurfer when it came to his work, even using it as a source of motivation. Some users in the early days of Re: Zero would try and summon him by using tags in their posts that he typically searched.
+
+<details>
+<summary>【自我搜索好像有这么个问答，读者靠这个召唤似乎没有找到出自哪……】</summary>
+Q：モチベの維持はどうしてるんですか？<br/>
+A：感想もらったりツイッターでエゴサーチしたり色々ある。モチベーションなんて自分で動いて探しにいくものだろ。モチベーションがなくなったなんて、自分で動かない奴が怠けた泣き言たらしてるだけだ。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #522](https://twitter.com/LoremIpsumVerb/status/1455514065439182850)
+
+（523）
+
+The Author once quipped, that if someday, a man and woman got married thanks to Re: Zero, and said something like "We had a Re: Zero Marriage", he would like to put them in his work, as a happy couple, and then present them to Capella.
+
+https://twitter.com/nezumiironyanko/status/603152104979451904
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #523](https://twitter.com/LoremIpsumVerb/status/1455860329934692354)
+
+（524）
+
+Despite being such an important character with an Authority, Clind is still yet to appear in the main Light Novel series as a character with actual in-person dialogue. He is only referenced in-text, and shown in an illustration so far.
+
+（正传Clind暂未出场）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #524](https://twitter.com/LoremIpsumVerb/status/1456230543574675458)
+
+（525）
+
+According to Tappei, Carmilla's birthday is on June the 19th (6/19).
+
+When coming up with the date, he couldn't think of good wordplay as to why, so instead he added the numbers 6, 1 and 9 to get 16, the typical age one is aware about "Lust".
+
+https://twitter.com/nezumiironyanko/status/463342477148041216
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #525](https://twitter.com/LoremIpsumVerb/status/1456567829772242944)
+
+（526）
+
+According to the author in 2013, Sekhmet's personality is so troublesome, that she gets anxious when others are near her.
+
+Thus, if anyone does come near her, she will shuffle away from them on her buttocks.
+
+https://twitter.com/nezumiironyanko/status/349133306895425536
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
