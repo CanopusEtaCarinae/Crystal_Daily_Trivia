@@ -16,8 +16,12 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [305](#re-zero-daily-trivia-305) &nbsp; [320](#re-zero-daily-trivia-320) &nbsp; [345](#re-zero-daily-trivia-345) &nbsp; [350](#re-zero-daily-trivia-350) &nbsp; [360](#re-zero-daily-trivia-360) &nbsp; [363](#re-zero-daily-trivia-363) &nbsp; [366](#re-zero-daily-trivia-366)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
+
+[505](#re-zero-daily-trivia-505)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
+
+[605](#re-zero-daily-trivia-605)
 -->
 
 
@@ -6891,10 +6895,128 @@ Vincent Vollachia has dressed up as a woman to protect his identity numerous tim
 
 #### [#500 五百条纪念](https://twitter.com/LoremIpsumVerb/status/1447513625481158659)
 
-（其实是501……）
+（由于468重号其实是501……）
 
 ---
 
+#### [Re: Zero Daily Trivia #501](https://twitter.com/LoremIpsumVerb/status/1447891374062309376)
+
+（502）
+
+Gale Horses are rare animals which can be found in The Vollachian Empire. Their bodies are large, almost as large as the average carriage they pull, and thanks to their rarity, they are typically only given to Generals.
+
+（Web七章33）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #502](https://twitter.com/LoremIpsumVerb/status/1448250008172732417)
+
+（503）
+
+Pastor Coatl, known as the Saint of the Avalanche was a priest in a mountainous area of Gusteko. He was known for his acts of heroism when an avalanche struck the nearby village
+
+Later, he was revealed to be a member of the infamous band of Ice Thieves
+
+（One Wild Night）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #503](https://twitter.com/LoremIpsumVerb/status/1448599013389914116)
+
+（504）
+
+In Volume 22, Otsuka drew the scene with Subaru and Eridna at the balcony as seen below.
+
+Though the birds are all depicted as white in this scene, this is actually an error. The birds are all different shapes, colours and sizes like in the Web Novel.
+
+（22卷彩插，大塚失误）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #504](https://twitter.com/LoremIpsumVerb/status/1448966569510510614)
+
+（505）
+
+Though it's known that Re: Zero has taken inspirations in some of its elements from other series, one of Tappei's earliest comments on the matter was given on October, 2012.
+
+He stated on Narou that Re: Zero was inspired by the Langrisser Game Series.
+
+<details>
+<summary>（感想板）</summary>
+あー、なんか読んだ事あるような話だなと思ったら、<br/>
+「やる夫は魔女の騎士になるようです」に似てるのかー。<br/>
+<br/>
+ 投稿者： totoru<br/>
+－－－－ －－－－<br/>
+2012年 10月22日 22時46分<br/>
+<br/>
+<br/>
+わざわざタイトルまで明記していただいてありがとうございます。<br/>
+下の太郎さまの感想も、おそらく同じ作品のお話だと思います。<br/>
+<br/>
+それで確認してきましたところ……ホントだ、すげぇ似てますね。<br/>
+個人的な元ネタはラングリッサーシリーズのつもりだったのですが、２年前の日付を見るとこっちが先の発想だ！とは主張できませんね。<br/>
+<br/>
+まだちらっと見ただけなのでなんとも言えませんが、たぶん着地点は違うと思うので今後にご期待ください。
+<br/>
+鼠色猫/長月達平<br/>
+2012年 10月22日 23時00分
+<br/>
+<br/>
+
+　最近web巡りしてて気になったんですけど、この話の王選のくだりって有名な元ネタがあるんですか？<br/>
+　それともwebで公開されてる「近衛騎士」「王選」等のキーワードで引っかかるやつからぱくっただけですか？<br/>
+　さすがに「王族が全滅したので近衛騎士が探しに出る」「後継候補である５人の姫が見つかる」「ヒロインがハーフエルフで魔女で忌み嫌われてる」これほど共通点があるのに偶然とは考えにくいです……。<br/>
+　個人的には小ネタ程度ならともかく、ストーリーをパクってるとオリジナルじゃなくて二次創作または盗作だと思います。<br/>
+<br/>
+ 投稿者： 太郎<br/>
+－－－－ －－－－<br/>
+2012年 10月22日 22時17分<br/>
+<br/>
+<br/>
+ご報告ありがとうございます。<br/>
+<br/>
+上のtotoruさまのお話と同じ、「やる夫が魔女の騎士になるようです」という作品のお話と思ってよろしかったでしょうか？<br/>
+一応、そちらの作品の方に目を通させていただきましたところ、なるほどかなりの類似点がありました。<br/>
+自分としては元ネタ自体はゲームのラングリッサーシリーズから着想を得た話なので、ちょっと苦しいですが偶然というしかないんですが……。<br/>
+<br/>
+ともあれ、該当作品の最後までは見ていないので、着地点は違うものになるかと思われます。<br/>
+そちらの作品の最後は、当作品の完結までは見ないつもりでいますので、今後の展開まで被った場合、その時点で盗作と判断していただいて構いません。<br/>
+一度、感想で先の展開読まれたことがあるので、まさか……とは思っているのですが。<br/>
+<br/>
+鼠色猫/長月達平<br/>
+2012年 10月22日 23時05分<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #505](https://twitter.com/LoremIpsumVerb/status/1449338057262571523)
+
+（506）
+
+Nagatsuki Tappei worked as a Butcher while writing the stark majority of Re: Zero. It's known that he would come up with ways of killing Subaru while cutting meat.
+
+Currently, it's unknown whether he still works in this profession.
+
+【感觉巴哈姆特这个不像是最原始的出处，等大佬补充】
+https://gnn.gamer.com.tw/detail.php?sn=135899
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -7130,6 +7252,19 @@ Hauroy Larrier was a swordsman who lived right beside Reid's house, presumably b
 Reid mentioned his name when he fought against Rai Batenkaitos.
 
 （Web六章，文库未收此名）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #605](https://twitter.com/LoremIpsumVerb/status/1485607421372477443)
+
+Before using his archetypal Emilia icon, the author used to have an icon representative of his Twitter & Narou usernames, "Mouse-Coloured Cat".
+
+The icon is shown in this trivia, and was claimed by the author, to have been drawn by his father.
+
+【[ask.fm](https://ask.fm/nezumiironyanko)上倒还留着这个头像，但这头像的来源我确实不知道在哪说的……】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
