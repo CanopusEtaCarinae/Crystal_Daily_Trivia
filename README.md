@@ -7172,6 +7172,81 @@ According to the Author, the Oni Tribe is a race that is known throughout his st
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #516](https://twitter.com/LoremIpsumVerb/status/1453337609086939141)
+
+（517）
+
+After Balroy Temeglyph was killed, a meeting was held between Vincent and some of his Divine Generals in part to determine who would take Balroy's place.
+
+Kafma Irulux was recommended by Goz. Berstetz recommended Madeline Eschart instead.
+
+（Sword Identity）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #517](https://twitter.com/LoremIpsumVerb/status/1453673581993418756)
+
+（518）
+
+Cecilus is forced to live in a rundown shack on Arakiya's private land because he sinks all his money into buying treasured swords and famous katanas from all over the world and time.
+
+On Vincent's orders, he is there so Arakiya can fight him.
+
+（七章32节，Sword Identity）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #518](https://twitter.com/LoremIpsumVerb/status/1454069342996508678)
+
+（519）
+
+In Kasaneru IF, Subaru rescued Elsa from being digested by the Great Rabbit after taking Meili hostage and having it so Elsa would be swarmed by them.
+
+As a result, he was able to make her his subordinate, keeping Meili prisoner as insurance.
+
+（二期BD全卷特典 强欲IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #519](https://twitter.com/LoremIpsumVerb/status/1454410131068891143)
+
+（520）
+
+Before Otto came along and became the Emilia Camp's Minister of Internal Affairs, Ram would help Roswaal with the paperwork up until the early morning.
+
+As a result, she would barely get any sleep, before then being woken up by Rem.
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #520](https://twitter.com/LoremIpsumVerb/status/1454782308536528896)
+
+（521）
+
+According to Berstetz, the system of Divine Generals was something Vincent himself brought back.
+
+This implies that the system was not in place beforehand, meaning Kurgan, though strongest at the time, was not a Divine General with Rank One.
+
+（Sword Identity）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
