@@ -7322,6 +7322,126 @@ https://twitter.com/nezumiironyanko/status/349133306895425536
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #526](https://twitter.com/LoremIpsumVerb/status/1456991670294257664)
+
+（527）
+
+According to the author, Garfiel Tinsel is still quite a long way off in terms of comparing to the strongest of each nation.
+
+However, the author is planning Garfiel's hyper strongman battle series for Arc Seven.
+
+（[17年加菲猫生日](https://twitter.com/nezumiironyanko/status/918470763685933057)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #527](https://twitter.com/LoremIpsumVerb/status/1457308591371825155)
+
+（528）
+
+According to the author, if Emilia were to come to Japan, she'd be interested in sweets and shoujo manga.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エミリアたんが日本に来たら、何に興味を持ちますか？物でも事でもいいです。<br/>
+A：スイーツと少女漫画に興味を持ちます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #528](https://twitter.com/LoremIpsumVerb/status/1457681529786798085)
+
+（529）
+
+After publishing "Theresia van Astrea", Tappei was surprised to see people reacting differently than expected to Reinhard killing Theresia, plus the ensuing conversation.
+
+He'd hoped the feedback would be full of people saying "Die Reinhard".
+
+<details>
+<summary>【感想板上有比较像的，但不太确定出处是不是这个……】</summary>
+わかってる、ラインハルトは正しい、でも、でも一つだけ言わせてほしい……！<br/>
+<br/>
+<br/>
+ラインハルト死ねヤァァァァァァァァァァ！！！！！<br/>
+ちっくしょぉぉぉぉ！！空気読めよぉぉぉ！！！<br/>
+<br/>
+投稿者： 黒蓮<br/>
+－－－－ 男性<br/>
+2015年 06月05日 18時48分<br/>
+<br/>
+<br/>
+「あ！　お爺ちゃん助けるために、『死神の加護』消そうと思ったら敵をぶった切るしかないや！」ズバー！　かもしれない。<br/>
+そうじゃないかもしれない。<br/>
+<br/>
+鼠色猫/長月達平
+2015年 06月08日 08時50分
+<br/>
+<br/>
+<br/>
+僕は作者さんの思惑通り「ラインハルト死ね」って思いました（半ギレ<br/>
+むしろ何故同情的な人間が多いのかと不思議に思います。<br/>
+<br/>
+戦闘力的にも考え方的にも一番怖いのってラインハルトなんじゃないですかね。<br/>
+投稿者： 延志<br/>
+－－－－ －－－－<br/>
+2015年 06月06日 01時00分<br/>
+<br/>
+<br/>
+なー、だよなー？<br/>
+ラインハルト死ねって思うよなー？<br/>
+<br/>
+おかしいなぁ、そういう予定だったんだけどな。<br/>
+悔しいぜ。<br/>
+<br/>
+鼠色猫/長月達平<br/>
+2015年 06月08日 08時49分 <br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+##### [Re: Zero Daily Trivia #529](https://twitter.com/LoremIpsumVerb/status/1458036629826850820)
+
+（530）
+
+According to the author, as well as being an angel, Emilia has gastroptosis, meaning that no matter how much she eats, her figure won't change. She won't get wrinkles either, and even if she dies of old age, she'll stay cute.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：マヨネーズによって体型が変わってしまいそうなエミリアたんが心配です…ロシア人女性の加齢による肉体の崩れの主な原因の一つでもあるそうです…
+A：エミリアたんは天使な上に胃下垂なので、食べても食べても体型が変わりません。皺も増えません。老衰で死ぬとしても可愛いままです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #530](https://twitter.com/LoremIpsumVerb/status/1458405560685142021)
+
+（531）
+
+When posed with what Subaru would do if Emilia were to, by some chance, get a boyfriend, the author replied that he would Return by Death. Though his response was joking at first, he then doubled down that Subaru would indeed Return by Death.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：万が一、エミリアにスバルじゃない彼氏ができたとして、それを見たスバルはどんなアクションを起こしますか？？<br/>
+A：『死に戻り』します。嘘です。嘘ですが、嘘だけど、どうなるんだろう。やっぱり『死に戻り』します。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -7570,6 +7690,28 @@ Before using his archetypal Emilia icon, the author used to have an icon represe
 The icon is shown in this trivia, and was claimed by the author, to have been drawn by his father.
 
 【[ask.fm](https://ask.fm/nezumiironyanko)上倒还留着这个头像，但这头像的来源我确实不知道在哪说的……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #606](https://twitter.com/LoremIpsumVerb/status/1485989310184804365)
+
+
+
+In his battle against Emilia, Melakuera proclaimed she was a Witch Reincarnation.
+
+However, he also proclaimed history was a spiral, and that she was an error endlessly repeated and transmigrated, implying he had witnessed this all before.
+
+- The second bit was unfortunately all cut from the Anime.
+
+  Also, the way Melakuera phrased it, regarding the "error" part, it could be referring specifically to the situation than Emilia herself. The Japanese phrasing does not make it clear.
+
+<details>
+<summary>（大概应该是这句？冰结四章5节：）</summary>
+『其の力、魔女再来！其の容姿、魔女再来！其の存在、魔女再来！故、世界、其の存在、脅威也！其れ、歴史、螺旋！過ち、幾度重複！過ち、幾度流転！我、幾度、世界滅亡、危機、体験ーー！』
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
