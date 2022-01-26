@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -41,7 +41,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531)
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -7586,6 +7586,104 @@ The convenience store Subaru went to, before being summoned to an isekai, was po
 However, it was first mentioned, in the Re Zero Glossary published in Visual Complete, to be an "Out-Off" - a fictional brand.
 
 【Visual Complete（リゼロビジュアルコンプリート），无汉化资源】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #541](https://twitter.com/LoremIpsumVerb/status/1462399679602245635)
+
+（542）
+
+It's said that only Dragons know what lies beyond the Great Waterfall. Those Dragons who have nowhere to live have their own paradise there, or so is said, and from there, they occasionally spread their wings to the world's continent.
+
+【从推文回复看又是Visual Complete，大概这资源蛮重要的……另外这条和[#258](#re-zero-daily-trivia-258)重复度高，故当天又发了另一条】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #541 (b)](https://twitter.com/LoremIpsumVerb/status/1462402998634749966)
+
+（542b）
+
+Trivia re-issued to compensate for a duplicate.
+
+According to Reinhard, the population of Lugunica is said to be about 50 Million. However, these numbers are likely being inflated by each of the regional lords for tax collection purposes.
+
+【人口五千万出自三章王选会场。人口被夸大是因为税收不知道有没有原文支持……还是说只是Ice结合[#169](#re-zero-daily-trivia-169)大都市人口的推测？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #542](https://twitter.com/LoremIpsumVerb/status/1462780643864162306)
+
+（543）
+
+Echidna's Tome of Wisdom is described to be pure white, with no title inscribed on its cover, and about the size of a dictionary.
+
+（Web四章44）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #543](https://twitter.com/LoremIpsumVerb/status/1463128019623723008)
+
+（544）
+
+According to the author, the first offer of novelisation he received for Re: Zero was from MF Bunko, in April of 2013.
+
+However, in the end, he received offers from seven different companies, all wanting to novelise Re: Zero.
+
+http://blog.livedoor.jp/geek/archives/51428969.html  （可在 http://re-zero.com/news/316/ 这里看到）<br/>
+
+**－ 他には書籍化のオファーは無かったんですか？**<br/>
+<br/>
+長月：４月のＭＦさんのオファーが最初で、最終的には７社さんからオファーをいただきました。これ、「小説家になろう」作家の中でもかなり高順位でしょう、密かな自慢です。
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #544](https://twitter.com/LoremIpsumVerb/status/1463504815342948360)
+
+（545）
+
+Though Tappei's favourite is well known, Otsuka's & Ikemoto's is less so.
+
+As of Volume 3's pre-release, Otsuka's was Ram & Beatrice, since she likes tsunderes.
+
+Ikemoto's was Emilia, Rem, Ram, Felt & Beatrice, since he likes all the heroines
+
+http://blog.livedoor.jp/geek/archives/51428969.html  （可在 http://re-zero.com/news/316/ 这里看到）<br/>
+
+**－ 作中の好きなキャラクターを教えて下さい。**<br/>
+<br/>
+長月：ビジュアルでは圧倒的に『エミリア』ですね。自分が好きな要素を固めに固めたメインヒロインなので、当然と言えば当然なんですが（笑）<br/>
+<br/>
+大塚：『ラム』と『ベアトリス』です。あくまで二次元限定ですが、ツンデレが好きなんです。<br/>
+<br/>
+池本：基本的に大塚先生の描く女の子がみんな可愛くて、『エミリア』、『レム』、『ラム』、『フェルト』、『ベアトリス』、ヒロインはみんな好きですね。<br/>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #545（18年生日）](https://twitter.com/LoremIpsumVerb/status/1463862620876902401
+
+（546）
+
+According to the author, Old Man Rom has never had a relationship with anyone he could call a girlfriend before. The author felt like he wasn't the sort who would fall in love.
+
+（18年罗姆爷生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
