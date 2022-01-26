@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -7442,6 +7442,156 @@ A：『死に戻り』します。嘘です。嘘ですが、嘘だけど、ど�
 
 ---
 
+#### [Re: Zero Daily Trivia #531](https://twitter.com/LoremIpsumVerb/status/1458779157559750661)
+
+（532）
+
+Following the purification of Orcos' Lands, news reached Lugunica about Elsa's involvement.
+
+Guards were put on alert, with two in Visual Complete discussing the case. Unfortunately, it would be their last conversation, as the two ran into Elsa there.
+
+【Visual Complete（リゼロビジュアルコンプリート），无汉化资源】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #532](https://twitter.com/LoremIpsumVerb/status/1459132151543345156)
+
+（533）
+
+Despite appearing as a conventionally ugly-looking man in Re: Zero EX 3's official art, Stride Vollachia is in fact described to be handsome looking in Sword Demon Battle Ballad.
+
+（Ex3，剑鬼战歌，这算是吐槽大塚么……？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #533](https://twitter.com/LoremIpsumVerb/status/1459488978193760258)
+
+（534）
+
+Petra has an affinity for Water Magic, but she's not that good at it. She dislikes being mentored by Roswaal, so tried to secretly learn from Emilia.
+
+However, as Emilia was unable to teach her due to working from instinct, she's been learning from Ram
+
+（19年佩特拉生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #534](https://twitter.com/LoremIpsumVerb/status/1459861553998667776)
+
+（535）
+
+The Earth Spider in Tanpenshuu 5 was a Spirit that made itself a body by mashing different creatures together so to try save them from death.
+
+After it was defeated, Regin and Marone took it into the clinic, as its powers would be useful there
+
+（土蜘蛛）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #535](https://twitter.com/LoremIpsumVerb/status/1460214490478358531)
+
+（536）
+
+According to the author, if Julius were to play videogames, the one he'd be the best at would be something like Minecraft, since he's pretty meticulous.
+
+（18年6154生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #536](https://twitter.com/LoremIpsumVerb/status/1460581677084946436)
+
+（537）
+
+When Tappei began to publish the Web Novel on Narou, he went almost a month of posting at least a chapter a day from: April 20 to May 18, 2012.
+
+The streak was broken after Arc 2, Chapter 12, when he took an extra day to post the next chapter.
+
+（Web更新）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #537](https://twitter.com/LoremIpsumVerb/status/1460957933311778819)
+
+（538）
+
+Emilia's habit of stressing the word "sugoku" to "sugoooku" (reaaally) is one she picked up directly from Fortuna.
+
+（14卷，42集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #538](https://twitter.com/LoremIpsumVerb/status/1461320272003354630)
+
+（539）
+
+Emilia, Ram and Rem's names all have official Ateji released in merchandise.
+
+Emilia's is: 笑麗愛, using Kanji for "Smile", "Pretty" and "Love".
+
+Ram's is: 来夢, using Kanji for "Next" and "Dream".
+
+Rem's is: 恋夢, using Kanji for "Passion" and "Dream"
+
+【完整解释看原推回复应该就行了……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #539](https://twitter.com/LoremIpsumVerb/status/1461675910244061202)
+
+（540）
+
+In an interview conducted with Akibablog in 2014, Ikemoto Akihito, the editor for the Re: Zero Light Novel, mentioned he found out about the novel by chance, when a Tweet saying "Re: Zero is so interesting" spread around on Twitter.
+
+http://blog.livedoor.jp/geek/archives/51428969.html
+
+**－ そしてちょうどそのタイミングで池本さんが声を掛けられたと。ちなみにどうやって、『Re:ゼロから始める異世界生活』の存在を知ったんでしょう？** <br/>
+<br/>
+池本（長月先生の担当編集、以降池本）：Twitterに偶然「リゼロ面白いよ」ってツイートが流れてきたのがきっかけですね。
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #540](https://twitter.com/LoremIpsumVerb/status/1462030395172605965)
+
+（541）
+
+The convenience store Subaru went to, before being summoned to an isekai, was portrayed as a Mini Stop in the Anime
+
+However, it was first mentioned, in the Re Zero Glossary published in Visual Complete, to be an "Out-Off" - a fictional brand.
+
+【Visual Complete（リゼロビジュアルコンプリート），无汉化资源】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -7712,6 +7862,21 @@ However, he also proclaimed history was a spiral, and that she was an error endl
 <summary>（大概应该是这句？冰结四章5节：）</summary>
 『其の力、魔女再来！其の容姿、魔女再来！其の存在、魔女再来！故、世界、其の存在、脅威也！其れ、歴史、螺旋！過ち、幾度重複！過ち、幾度流転！我、幾度、世界滅亡、危機、体験ーー！』
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #607](https://twitter.com/LoremIpsumVerb/status/1486311710755540997)
+
+
+
+Despite having no windows, the air inside the Forbidden Library is ventilated by being purified with Mana.
+
+In addition, the Library has a mechanism where putting a book back on a shelf will automatically return it to its designated place after a while
+
+（图书管理员Beatrice不甘愿的约定 第2节）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
