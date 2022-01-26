@@ -7677,7 +7677,7 @@ http://blog.livedoor.jp/geek/archives/51428969.html  （可在 http://re-zero.co
 
 ---
 
-#### [Re: Zero Daily Trivia #545（18年生日）](https://twitter.com/LoremIpsumVerb/status/1463862620876902401
+#### [Re: Zero Daily Trivia #545](https://twitter.com/LoremIpsumVerb/status/1463862620876902401)
 
 （546）
 
