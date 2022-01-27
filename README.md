@@ -7838,6 +7838,82 @@ She doesn't think that cute clothing looks good on herself, due to how large-fra
 
 ---
 
+#### [Re: Zero Daily Trivia #556](https://twitter.com/LoremIpsumVerb/status/1467879367854407685)
+
+（557）
+
+According to the author, Frederica Baumann's favourite food is meat, with her favourite animals being stuff like cows and pigs as a result.
+
+She typically has her grilled meat either blue or blue rare, and has to resist the urge to eat it raw.
+
+（18年芙蕾生日〔两个问答〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #557](https://twitter.com/LoremIpsumVerb/status/1468244977297899520)
+
+（558）
+
+According to the author in 2018, the true strength of the first Roswaal, Altair Mathers, is around about the level of Emilia.
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #558](https://twitter.com/LoremIpsumVerb/status/1468594644359520266)
+
+（559）
+
+According to Tappei, the top five people Crusch Karsten trusts, not including the dead, are:
+
+Felix Argyle, Meckart Karsten, Wilhelm van Astrea, Marcos Gildark and Natsuki Subaru.
+
+Subaru being on the list surprised Tappei, even as the author.
+
+（18年库珥修生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #559](https://twitter.com/LoremIpsumVerb/status/1468968364940795909)
+
+（560）
+
+According to the author, Ruri Hoshino from Martian Successor Nadesico was the reason behind him falling in love with silver-haired heroines.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：銀髪ヒロインを好きになったゆえんを教えてください。<br/>
+A：ルリルリ
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #560](https://twitter.com/LoremIpsumVerb/status/1469300849621061637)
+
+（561）
+
+According to the author, Frederica Baumann doesn't really have an affinity for magic, as she hasn't developed it.
+
+However, if she had, it would be for wind magic.
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
