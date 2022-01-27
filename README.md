@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -7689,6 +7689,79 @@ According to the author, Old Man Rom has never had a relationship with anyone he
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #546](https://twitter.com/LoremIpsumVerb/status/1464232327001825288)
+
+（547）
+
+According to the author, Petra Leyte was currently the most beautiful girl in the village, so he supposed that in the future, she'd become a famed beauty in the city, or even the country of Lugunica itself.
+
+（18年佩特拉生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #547](https://twitter.com/LoremIpsumVerb/status/1464584532942856196)
+
+（548）
+
+According to the author, out of all the characters who had come up (by June, 2014), the one most likely to breach new, really dangerous grounds - as in relation to their state of mind - if they completely lost it, would be Reinhard.
+
+<details>
+<summary>【找到个类似的问答但好像比起这Trivia好像太简短了……可能没找对】</summary>
+
+https://twitter.com/nezumiironyanko/status/476329064303984640 <br/>
+Q：既出キャラの中でふっきれたら一番ヤバイ境地を開拓しそうなのは誰ですか<br/>
+A：ラインハルト
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #548](https://twitter.com/LoremIpsumVerb/status/1464950944320434188)
+
+（549）
+
+According to Cecilus Segmunt in the Short Story: "Sword Identity", his rematch with Reinhard in the Kingdom of Lugunica, which was off-screened in EX 4, ended up as a draw.
+
+（Sword Identity）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #549](https://twitter.com/LoremIpsumVerb/status/1465313116439433221)
+
+（550）
+
+Cecilus Segmunt has stated that he's tried to kill Yorna Mishigure around two times, but on both occasions he wasn't able to manage it.
+
+The circumstances are unknown, but it's suspected this has to do with Yorna's mysterious powers.
+
+【大概也是Sword Identity】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #550](https://twitter.com/LoremIpsumVerb/status/1465681242590953485)
+
+（551）
+
+Goz Ralfon, now rank five, was the first person to be inducted as a Divine General when Vincent brought the system back.
+
+He's known to be so strong as to be able to punch large Witchbeasts to death with a single blow of his golden gauntlet.
+
+【大概还是Sword Identity】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 <!--
 
