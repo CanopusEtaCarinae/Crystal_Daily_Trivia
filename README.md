@@ -8289,7 +8289,13 @@ According to the author, when asked both on whether he'd already decided on the 
 
 <details>
 <summary>（ask.fm：）</summary>
-<!--https://twitter.com/nezumiironyanko/status/473455981465456640-->
+
+-->
+
+<!-- https://twitter.com/nezumiironyanko/status/473455981465456640 -->
+<!--
+
+
 Q：RE：ゼロの結末はどんな風にするのかイメージはもう決まっているのでしょうか？<br/>
 A：俺はケツから決めて書くから最初から決まってます。<br/>
 <br/>
