@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -41,7 +41,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12)
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -7914,6 +7914,82 @@ However, if she had, it would be for wind magic.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #561](https://twitter.com/LoremIpsumVerb/status/1469718093102518278)
+
+（562）
+
+According to the author in 2014, the cat spirit Puck was based off a grey-pelt pet cat he owned a long time ago.
+
+He commented that in most of his works, there'd typically be one of these talking cats, thus, he had one appear in Re: Zero too.
+
+<details>
+<summary>【关于他养的猫问答有找到，但说其他作品里也有猫我没找到出处……】</summary>
+Q：灰色(鼠色)が好きなんですか？
+A：飼ってた猫がそういう毛色だったのさ
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #562](https://twitter.com/LoremIpsumVerb/status/1469977311562899464)
+
+（563）
+
+According to the author, Roswaal L. Mather's weak point is that he ends up losing his cool when the plans he prepared beforehand are thrown into disarray.
+
+For example, if he overslept on a day of an excursion, he'd be a sight for sore eyes.
+
+【感觉好像有印象但就愣没找到出处……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #563](https://twitter.com/LoremIpsumVerb/status/1470442510761746438)
+
+（564）
+
+Though well known that Subaru was a flip-phone user, what's less known is that Tappei himself also used a NTT DoCoMo SH706is flip-phone from his University days all the way until it broke in 2014.
+
+https://twitter.com/nezumiironyanko/status/453914875614330880
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #564](https://twitter.com/LoremIpsumVerb/status/1470814738472968201)
+
+（565）
+
+When asked about what Divine Protection he'd like to have the most, Tappei replied he wanted the Divine Protection of Thunder Clouds.
+
+Reason being, there'd been a lot of thunder lately, and it'd keep him safe from being struck by lightning.
+
+【感觉又是个重要的东西没找到……推上搜雷好像也没靠谱的……而且我才发现虽然莱傲天的加护一览虽然网上容易找但我竟然不知道老贼最原始的出处是写在哪里的……】<br/>
+https://twitter.com/search?q=%E9%9B%B7%20(from%3Anezumiironyanko)&src=typed_query&f=top
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #565](https://twitter.com/LoremIpsumVerb/status/1471197498165317633)
+
+（566）
+
+According to Tappei, if Elsa had grown up in a normal home, she'd have been raised loved by her parents, developing well with her friends until she'd awaken somewhere to the beauty of guts and throw her life away to become the Bowel Hunter.
+
+（18年猎肠生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
@@ -8204,6 +8280,28 @@ In addition, the Library has a mechanism where putting a book back on a shelf wi
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #608](https://twitter.com/LoremIpsumVerb/status/1486677273604464642)
+
+
+
+According to the author, when asked both on whether he'd already decided on the ending for Re: Zero in 2014, and who Subaru would end up with in regards to marriage in 2015, he confirmed in both aspects, that he'd already decided the ending.
+
+<details>
+<summary>（ask.fm：）</summary>
+<!--https://twitter.com/nezumiironyanko/status/473455981465456640-->
+Q：RE：ゼロの結末はどんな風にするのかイメージはもう決まっているのでしょうか？<br/>
+A：俺はケツから決めて書くから最初から決まってます。<br/>
+<br/>
+Q：最終的にスバルは誰と共にするか(結婚)決まっていますか？<br/>
+A：エンディングは決まっています<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 -->
 
 
