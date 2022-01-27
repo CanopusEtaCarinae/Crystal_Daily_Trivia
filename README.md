@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -7990,6 +7990,91 @@ According to Tappei, if Elsa had grown up in a normal home, she'd have been rais
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #566](https://twitter.com/LoremIpsumVerb/status/1471395750387101704)
+
+（567）
+
+According to Tappei in 2013, Lust and Wrath were his favourite Sin Archbishops when looking at it from an author's viewpoint, specifically relating to their character building.
+
+He also personally believed the scummiest among them was Lust.
+
+【翻了几个推出来，好像都有关系，但又好像都不完全对……】
+https://twitter.com/nezumiironyanko/status/323413437839454208<br/>
+https://twitter.com/nezumiironyanko/status/525407152459247618<br/>
+https://twitter.com/nezumiironyanko/status/316919307810533377<br/>
+https://twitter.com/nezumiironyanko/status/493932235561906176<br/>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #567](https://twitter.com/LoremIpsumVerb/status/1471758578138726401)
+
+（568）
+
+It's well known that Gusteko is cold all year round while Vollachia is warm all year round.
+
+However, what is less known is that Kararagi is mentioned to have an autumn-like climate all year round, while Lugunica retains a spring-like climate.
+
+https://twitter.com/nezumiironyanko/status/471290759027916800
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #568](https://twitter.com/nezumiironyanko/status/463631093053136899)
+
+（569）
+
+According to the author, the reason behind certain dialects in Re: Zero, such as the Kararagi accent, are spoilers which will only be revealed during the final arc: Arc Eleven.
+
+Liliana's accent also falls under this reveal.
+
+https://twitter.com/LoremIpsumVerb/status/1472122459042287618
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #569](https://twitter.com/LoremIpsumVerb/status/1472524415728504832)
+
+（570）
+
+Contrary to popular belief, Reid Astrea's first name is not pronounced "Reed" in English.
+
+It is instead pronounced as "Raid". That's because in Japanese his name is レイド (Reido), and not リード (Riido).
+
+（看起来只是语言常识纠正不是啥剧情问题）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #570](https://twitter.com/LoremIpsumVerb/status/1472881157868032002)
+
+（571）
+
+Unbeknown to many, the family seen at the start of "The Frozen Bond" OVA, who appeared to perish to Emilia's Ice Flowers attack, actually survived.
+
+They were shown meeting Emilia again in the bonus novel "Before Memories" seven years after.
+
+（OVA2特典 Before Memories 尾声）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+[#570次日日因Ice不适无Trivia](https://twitter.com/LoremIpsumVerb/status/1473275509945647105)<br/>
+再次日编号直接跳过571，我就当成这算是把468的重号补救了
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
