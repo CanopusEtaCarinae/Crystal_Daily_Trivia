@@ -41,7 +41,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541)
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -7710,7 +7710,7 @@ According to the author, Petra Leyte was currently the most beautiful girl in th
 According to the author, out of all the characters who had come up (by June, 2014), the one most likely to breach new, really dangerous grounds - as in relation to their state of mind - if they completely lost it, would be Reinhard.
 
 <details>
-<summary>【找到个类似的问答但好像比起这Trivia好像太简短了……可能没找对】</summary>
+<summary>【找到个类似的问答但好像比起这Trivia有点太简短了……可能没找对】</summary>
 
 https://twitter.com/nezumiironyanko/status/476329064303984640 <br/>
 Q：既出キャラの中でふっきれたら一番ヤバイ境地を開拓しそうなのは誰ですか<br/>
@@ -7762,6 +7762,81 @@ He's known to be so strong as to be able to punch large Witchbeasts to death wit
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #551](https://twitter.com/LoremIpsumVerb/status/1466044322705547271)
+
+（552）
+
+(2021-12-01)
+
+According to Todd Fang, his bride to be, Katya, is the one and only thing he cannot lose.
+
+【大概还是Sword Identity】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #552](https://twitter.com/LoremIpsumVerb/status/1466413132360957952)
+
+（553）
+
+Cecilus claimed that Arakiya was out of her mind when talking to Goz, because she cooked her Tamagoyaki only on one side.
+
+This elicited a complaint from Arakiya, telling him to cook them himself, if he wanted them done on both sides
+
+【大概还是Sword Identity】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #553](https://twitter.com/LoremIpsumVerb/status/1466788599484063749)
+
+（554）
+
+According to the author, the put-down that hurt Otto the most from Ram was when she said "You're such an Otto."
+
+（19年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #554](https://twitter.com/LoremIpsumVerb/status/1467148477297836034)
+
+（555）
+
+When asked about if there was currently a woman who had any love flags raised for Otto, or was thinking of raising one, the author replied that springtime would not be coming for Otto.
+
+Implying Otto would never find love.
+
+（19年奥托生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #555](https://twitter.com/LoremIpsumVerb/status/1467514365104508930)
+
+（556）
+
+According to the author, Frederica Baumann has a hobby of collecting dolls and putting cute clothes on them.
+
+She doesn't think that cute clothing looks good on herself, due to how large-framed she is, thus she enjoys doing this sort of stuff.
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 
 <!--
 
