@@ -41,7 +41,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561)
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -7999,7 +7999,7 @@ According to Tappei in 2013, Lust and Wrath were his favourite Sin Archbishops w
 
 He also personally believed the scummiest among them was Lust.
 
-【翻了几个推出来，好像都有关系，但又好像都不完全对……】
+【翻了几个推出来，好像都有关系，但又好像都不完全对……】<br/>
 https://twitter.com/nezumiironyanko/status/323413437839454208<br/>
 https://twitter.com/nezumiironyanko/status/525407152459247618<br/>
 https://twitter.com/nezumiironyanko/status/316919307810533377<br/>
@@ -8075,6 +8075,65 @@ They were shown meeting Emilia again in the bonus novel "Before Memories" seven 
 
 ---
 
+#### [Re: Zero Daily Trivia #572](https://twitter.com/LoremIpsumVerb/status/1473543552521101312)
+
+According to the author, the thing which Echidna finds the most difficult to understand is love.
+
+Despite being unable to understand it, she still pursues it.
+
+（18年多娜生日）<br/>
+https://twitter.com/nezumiironyanko/status/955851932555395072
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #573](https://twitter.com/LoremIpsumVerb/status/1473849550351781889)
+
+As the first season of Re: Zero aired in 2016, Cure Maid Cafe hosted a collaboration with the franchise to celebrate its broadcast
+
+One of the menu items was Dona Tea, even though Echidna had never been showcased anywhere outside the Web Novel
+
+（主题咖啡厅的商品……当时10卷都没文库化貌似）
+
+https://repotama.com/2016/06/85665/<br/>
+
+https://twitter.com/nezumiironyanko/status/955849230412754944<br/>
+https://twitter.com/nezumiironyanko/status/955850894590930944<br/>
+https://twitter.com/uveru__chan/status/1285946015174914049<br/>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #574](https://twitter.com/LoremIpsumVerb/status/1474279432714084358)
+
+Todd met Jamal six years ago, during the reconstruction of Garkla, which was under siege from a coalition of bandits.
+
+Jamal was crucial during these battles, slaying one of the leaders of the allied bandits, at the cost of his right eye.
+
+
+（28卷gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #575](https://twitter.com/LoremIpsumVerb/status/1474721166497652738)
+
+Madeline Eschart, of the race of Dragonkin, a race that almost died out, possesses the ability to communicate her will to lesser dragons, like earth dragons, water dragons and flying dragons.
+
+She does so using only her golden eyes.
+
+【大概也是Sword Identity】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
