@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -41,7 +41,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572)
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01)
 <!--
  &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
 -->
@@ -8208,6 +8208,101 @@ According to the author, Julius Euculius is said to have an inclination towards 
 From them, tometos are his favourite.
 
 （17年6154生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #581](https://twitter.com/LoremIpsumVerb/status/1476858951526404096)
+
+Reinhard van Astrea is blessed by a myriad of Divine Protections, some as absurd as The Divine Protection of Salt Reasoning, which lets him never mistake salt and sugar.
+
+Not even the author knows the full extent of how many he has.
+
+【关于莱傲天的加护数19年生日问答有（不过不知道老贼有没有和trivia差不多的原话说自己也不知道数量的）。另外就是和[#564](#re-zero-daily-trivia-564)一样有没有大佬给个莱傲天加护列表的原始出处……】<br/>
+https://twitter.com/nezumiironyanko/status/1080651045930332160 (这条好像fandom没收)
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #582](https://twitter.com/LoremIpsumVerb/status/1477288849491509256)
+
+(2022-01-01)
+
+According to the author, there aren't many people who hold feelings of affection, in a romantic sense, towards Emilia.
+
+That's both because she's regarded as a half-devil, and because she's so beautiful that some just think it impossible.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エミリアってかなり綺麗な子なのに好意（恋愛的な意味で）を抱いている人をあまり見受けられないのはやはり半魔だからなのですか？<br/>
+A：半魔だからです。あと、美人すぎて無理ってのもあります。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #583](https://twitter.com/LoremIpsumVerb/status/1477626844585369603)
+
+According to the author, Minerva literally cannot kill even a fly herself.
+
+It's to the point where if she were to step on one, the fly would be the one saying "Thank you very much!"
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ミネルヴァたんに人(生物)は殺せますか？<br/>
+A：文字通り虫も殺せません。踏まれた虫が「ありがとうございますっ！」っていうレベル。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #584](https://twitter.com/LoremIpsumVerb/status/1477981687632039936)
+
+Despite her typical laziness, Sekhmet, the Witch of Sloth, manages to keep somewhat hygienic thanks to Typhon's help.
+
+Typhon does so by wiping her body down in the bathtub, making sure she is clean enough.
+
+<details>
+<summary>【Typhon帮Sekhmet擦身有问答，不过不确定这Trivia有没有整合其他出处，感觉只是这条问答的一小部分】</summary>
+Q：生前のセクメト様はどんな風に一日を過ごしていたのでしょうか、ご飯作ってるところとかが想像できないのですが…<br/>
+A：何もしなくても死なないから魔女になった可能性も微レ存。風呂はテュフォンに体拭かせてました。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #585](https://twitter.com/LoremIpsumVerb/status/1478350314633846794)
+
+The pyroxene crystal Omega carries around is said to have so much mana in a fragment of it that even 1000 top-notch Mages wouldn't be able to use it all.
+
+Despite that, its capacity is full hosting the souls of the five Witches.
+
+（15卷蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #586](https://twitter.com/LoremIpsumVerb/status/1478706696377802752)
+
+In the WN, Petelgeuse had an extra ability to his Authority, simply called "Sloth".
+
+He could let out a black wave, corrupting the minds of those without Spirit Magic knowledge, driving them to the verge of insanity.
+
+This was cut from the LN.
+
+（Web三章）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
