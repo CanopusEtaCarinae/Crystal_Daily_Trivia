@@ -17,7 +17,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577)
 <!--
 &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
@@ -8134,6 +8134,86 @@ She does so using only her golden eyes.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #576](https://twitter.com/LoremIpsumVerb/status/1475090290914570244)
+
+According to the author, the origin behind Emilia's name came from his friend.
+
+This was the very same friend that he talked to when he first came up with the Re: Zero series.
+
+<details>
+<summary>【ask.fm，虽然我也不太确定就能判断和之前经常提到的那个友人就是一个人……还是说有别的线索？】</summary>
+Q：エミリアたんの名前の由来は？
+A：友達の考えです
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #577](https://twitter.com/LoremIpsumVerb/status/1475425617189478400)
+
+Nagatsuki Tappei took only around one week to develop the basic framework of the Re: Zero story, before he started publishing it on Narou
+
+During that time, Tappei's friend listened to him to help him work out the details of the story.
+
+<details>
+<summary>【一周这事能在问答找到，他友人帮忙细节我好像没找到……另外Ice在这推里提了几句Y先生的事我就随便摘了几个相关的】</summary>
+Q：先生は終わりから考えていくって言ってたと思うんですが、どれくらいの期間をかけてリゼロは考えましたか？<br/>
+A：一週間ぐらい<br/>
+<br/>
+Q：>一緒にネタ出ししたニートのY...この人物が女性だというのは本当ですか？<br/>
+A：いや、無職のオッサンですけど。<br/>
+<br/>
+Q：一緒にネタ出ししたニートのYさんについて質問です。彼に書籍化の報告はしましたか？なんて言ってました？<br/>
+A：そりゃ書籍化も家族の次ぐらいに報告してるよ。リゼロをあれだけ褒めてくれるのは彼以上はいないんじゃないだろうか。俺より詳しい一人です。<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #578](https://twitter.com/LoremIpsumVerb/status/1475883495981473802)
+
+Olbart Dunkelkenn, a Divine General who holds the Rank of Three in the Vollachian Empire, has a habit of saying "失敗失敗" (I messed up, I messed up.)
+
+The only other character observed to use 失敗失敗 like this in the series is Todd Fang.
+
+（七章、Ex5）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #579](https://twitter.com/LoremIpsumVerb/status/1476178572859654150)
+
+During Subaru's absence from Guaral, as he faces the challenges in Chaosflame, Rem stayed back and was treated by Priscilla like she was her attendant.
+
+Rem helped Priscilla prepare her meals, clothes, and even bathed together with her
+
+（28卷蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #580](https://twitter.com/LoremIpsumVerb/status/1476506298233536515)
+
+According to the author, Julius Euculius is said to have an inclination towards vegetarianism. Although he doesn't completely avoid eating meat, his favourite food is vegetables, as well as fruit.
+
+From them, tometos are his favourite.
+
+（17年6154生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!--
 
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
