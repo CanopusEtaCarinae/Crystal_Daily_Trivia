@@ -8608,6 +8608,21 @@ A：エンディングは決まっています<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #609](https://twitter.com/LoremIpsumVerb/status/1487077875966697476)
+
+From 2017 until 2019, Tappei would host Q&A sessions on Twitter on most major characters' birthdays, allowing questions about them.
+
+This though ended on Crusch's birthday in April 2019, leaving her Q&A's unanswered and not opening any further sessions
+
+（17年最早生日问答貌似是[菲利斯的](https://twitter.com/nezumiironyanko/status/821008785342771200)，[19年库珥修问答](https://twitter.com/nezumiironyanko/status/1113727997326970880)开了后再无下文〔4月4号当天倒还回了[奥托的](https://twitter.com/nezumiironyanko/status/1109731699280080896)〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+
 <!-- Other notes:
 
 莱傲天视角避免
@@ -8621,4 +8636,68 @@ A：エンディングは決まっています<br/>
 残香 瘴气 三卷 四章27
 Conwood的酒馆 新编集实况 BD9特典
 花田 新编集实况
+
+角色排名https://twitter.com/LoremIpsumVerb/status/1268493199208841222
+
+https://twitter.com/Lohttps://twitter.com/LoremIpsumVerb/status/1297843001293668352remIpsumVerb/status/1268852543708442625
+
+https://twitter.com/SNuserTL
+
+司教https://twitter.com/ReZeroMin/status/1267038825525596160
+
+访谈：
+
+https://docs.google.com/document/d/1fRUxMDEJp0A-sQe_b1ye82z7RnXlyhZlCCuP91TwYvI/edit
+
+（签名会repo？）
+
+救人宣言：
+
+https://docs.google.com/document/d/1Cm_tWVacTStjqwiuOy1HZceV1uPMZxKifnqpT3jWpJY/edit
+
+家事都是悲https://twitter.com/nezumiironyanko/status/1290149831986405376
+
+红蝎 https://twitter.com/LoremIpsumVerb/status/1301211591397068800
+
+魔女强度https://twitter.com/nezumiironyanko/status/341516699889172481
+
+多娜台词 https://twitter.com/nezumiironyanko/status/362197424720199680
+
+契约死万次 https://twitter.com/nezumiironyanko/status/1308789611762610178
+
+https://twitter.com/LoremIpsumVerb/status/1266149202389872641
+
+掰腕飞 https://twitter.com/nezumiironyanko/status/860502409621024770
+
+八章？ https://twitter.com/nezumiironyanko/status/347925526373101568
+
+十一另加？https://mobile.twitter.com/nezumiironyanko/status/378871937499279361
+
+蕾姆在意上 https://twitter.com/nezumiironyanko/status/407867610106036224
+
+没有486的发展もしスバルが存在していなかったら現時点で王戦候補者は全滅する未来
+
+Great Capella
+
+https://docs.google.com/document/d/1khHu5kAdtWKYzk_GCLOCL679SUcG-Y0nPWQBgX7AQS4/edit#
+
+九神将 twitter https://twitter.com/Rezero_official/status/1205428648318128130
+
+EMT 水？火？ https://twitter.com/nezumiironyanko/status/810462848174276609
+
+https://twitter.com/nezumiironyanko/status/843489782328057858
+
+怠惰 权能 愿 https://twitter.com/nezumiironyanko/status/1081185297281429504
+
+拉姆 怠惰 附身 https://twitter.com/nezumiironyanko/status/858982749369020416
+
+雷德无加护-web5章79
+
+そして訪れる地獄の改稿。1000ページを600ページに!
+
+ー長月さんが書籍化にあたって一番苦労したことは?
+
+長月:書籍化のための改稿ですよ!文章を直すのが一番苦労しました!地獄のように!
+
+
 -->
