@@ -17,12 +17,9 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [406](#re-zero-daily-trivia-406) &zwnj; [408](#re-zero-daily-trivia-408) &zwnj; [410](#re-zero-daily-trivia-410) &zwnj; [413](#re-zero-daily-trivia-413) &zwnj; [417](#re-zero-daily-trivia-417) &zwnj; [425](#re-zero-daily-trivia-425) &zwnj; [427](#re-zero-daily-trivia-427) &zwnj; [447](#re-zero-daily-trivia-447) &zwnj; [448](#re-zero-daily-trivia-448) &zwnj; [451](#re-zero-daily-trivia-451) &zwnj; [453](#re-zero-daily-trivia-453) &zwnj; [454](#re-zero-daily-trivia-454) &zwnj; [455](#re-zero-daily-trivia-455) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [456](#re-zero-daily-trivia-456) &zwnj; [474](#re-zero-daily-trivia-474) &zwnj; [477](#re-zero-daily-trivia-477) &zwnj; [487](#re-zero-daily-trivia-487) &zwnj; [489](#re-zero-daily-trivia-489) &zwnj; [492](#re-zero-daily-trivia-492) &zwnj; [493](#re-zero-daily-trivia-493) &zwnj; [498](#re-zero-daily-trivia-498)
 
-[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584)
-<!--
-&nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
+[505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584) &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
 [605](#re-zero-daily-trivia-605)
--->
 
 
 </details>
@@ -41,10 +38,9 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [401-410](#re-zero-daily-trivia-401) &zwnj; [411-420](#re-zero-daily-trivia-411) &zwnj; [421-430](#re-zero-daily-trivia-421) (21-08) &zwnj; [431-440](#re-zero-daily-trivia-431) &zwnj; [441-450](#re-zero-daily-trivia-441) &zwnj; [451-460](#re-zero-daily-trivia-451) &zwnj; [461-470](#re-zero-daily-trivia-461) (21-09) &zwnj; [471-480](#re-zero-daily-trivia-471) &zwnj; [481-490](#re-zero-daily-trivia-481) (21-10) &zwnj; [491-500](#re-zero-daily-trivia-491)
 
-[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01)
-<!--
- &ensp; [591-600](#re-zero-daily-trivia-591) &ensp; [601-610](#re-zero-daily-trivia-601)
--->
+[501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &ensp; [591-600](#re-zero-daily-trivia-591)
+
+[601-610](#re-zero-daily-trivia-601)
 ---
 
 #### [Re: Zero Daily Trivia #1](https://twitter.com/LoremIpsumVerb/status/1266327774425427968)
@@ -8309,8 +8305,6 @@ This was cut from the LN.
 
 ---
 
-<!--
-
 #### [Re: Zero Daily Trivia #587](https://twitter.com/LoremIpsumVerb/status/1479115922732294145)
 
 According to the author, Echidna is the daredevil sort, who would probably opt for a school swimsuit, if she had to wear one.
@@ -8492,7 +8486,7 @@ It's to the point where he can easily eat bitter food that would make even Ram s
 
 ---
 
-#### [Re: Zero Daily Trivia #601（18年生日）](https://twitter.com/LoremIpsumVerb/status/1484155952936980484)
+#### [Re: Zero Daily Trivia #601](https://twitter.com/LoremIpsumVerb/status/1484155952936980484)
 
 Though naturally, as expected, Theresia is said to get along best with her faithful attendant, Carol Remendis.
 
@@ -8537,8 +8531,6 @@ That other line was the one in the final part of the Arc, where he said "I love 
 
 #### [Re: Zero Daily Trivia #604](https://twitter.com/LoremIpsumVerb/status/1485255222670901255)
 
-
-
 Hauroy Larrier was a swordsman who lived right beside Reid's house, presumably back in the village of Carnattse when he lived with Tosca.
 
 Reid mentioned his name when he fought against Rai Batenkaitos.
@@ -8565,8 +8557,6 @@ The icon is shown in this trivia, and was claimed by the author, to have been dr
 
 #### [Re: Zero Daily Trivia #606](https://twitter.com/LoremIpsumVerb/status/1485989310184804365)
 
-
-
 In his battle against Emilia, Melakuera proclaimed she was a Witch Reincarnation.
 
 However, he also proclaimed history was a spiral, and that she was an error endlessly repeated and transmigrated, implying he had witnessed this all before.
@@ -8587,8 +8577,6 @@ However, he also proclaimed history was a spiral, and that she was an error endl
 
 #### [Re: Zero Daily Trivia #607](https://twitter.com/LoremIpsumVerb/status/1486311710755540997)
 
-
-
 Despite having no windows, the air inside the Forbidden Library is ventilated by being purified with Mana.
 
 In addition, the Library has a mechanism where putting a book back on a shelf will automatically return it to its designated place after a while
@@ -8602,19 +8590,12 @@ In addition, the Library has a mechanism where putting a book back on a shelf wi
 
 #### [Re: Zero Daily Trivia #608](https://twitter.com/LoremIpsumVerb/status/1486677273604464642)
 
-
-
 According to the author, when asked both on whether he'd already decided on the ending for Re: Zero in 2014, and who Subaru would end up with in regards to marriage in 2015, he confirmed in both aspects, that he'd already decided the ending.
 
 <details>
 <summary>（ask.fm：）</summary>
-
--->
-
 <!-- https://twitter.com/nezumiironyanko/status/473455981465456640 -->
-<!--
-
-
+<!-- https://twitter.com/nezumiironyanko/status/594392546714980352 -->
 Q：RE：ゼロの結末はどんな風にするのかイメージはもう決まっているのでしょうか？<br/>
 A：俺はケツから決めて書くから最初から決まってます。<br/>
 <br/>
@@ -8626,10 +8607,6 @@ A：エンディングは決まっています<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
-
--->
-
-
 <!-- Other notes:
 
 莱傲天视角避免
