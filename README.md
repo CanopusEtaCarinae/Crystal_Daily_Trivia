@@ -19,7 +19,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584) &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
-[605](#re-zero-daily-trivia-605)
+[605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610)
 
 
 </details>
@@ -8622,7 +8622,18 @@ This though ended on Crusch's birthday in April 2019, leaving her Q&A's unanswer
 
 ---
 
+#### [Re: Zero Daily Trivia #610](https://twitter.com/LoremIpsumVerb/status/1487468075050012672)
 
+According to the author, Geuse killed the most people among all the Sin Archbishops.
+
+The evil deeds of the other Sin Archbishops barely compare when pitted against what Sloth has done.
+
+【虽然三章有类似叙述但感觉不是这条Trivia参考的原话……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
