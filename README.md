@@ -40,7 +40,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &zwnj; [591-600](#re-zero-daily-trivia-591)
 
-[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-111)
+[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611)
 
 ---
 
