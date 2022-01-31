@@ -40,7 +40,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &zwnj; [591-600](#re-zero-daily-trivia-591)
 
-[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611)
+[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02)
 
 ---
 
@@ -8642,6 +8642,21 @@ During Arc 7, there have been several instances of Rui Arneb saying "uau", which
 Though rare at first, this has increased in the last two chapters
 
 （七章47节起）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #612](https://twitter.com/LoremIpsumVerb/status/1488161664293822464)
+
+(2022-02-01)
+
+Between Arc 2 and 3, the village kids from Arlam prepared presents for Rem's birthday.
+
+The presents included flowers, a handkerchief, rice balls, vegetables, shoddy pottery, fruit, and worst of all, an insect from Lucas, much to Subaru's displeasure.
+
+（17年蕾姆生日特典〔蕾姆琳之日〕）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
