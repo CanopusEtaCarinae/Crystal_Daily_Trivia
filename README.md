@@ -40,7 +40,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &zwnj; [591-600](#re-zero-daily-trivia-591)
 
-[601-610](#re-zero-daily-trivia-601)
+[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-111)
 
 ---
 
@@ -8629,6 +8629,19 @@ According to the author, Geuse killed the most people among all the Sin Archbish
 The evil deeds of the other Sin Archbishops barely compare when pitted against what Sloth has done.
 
 【虽然三章有类似叙述但感觉不是这条Trivia参考的原话……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #611](https://twitter.com/LoremIpsumVerb/status/1487789796302987268)
+
+During Arc 7, there have been several instances of Rui Arneb saying "uau", which is thought to be her trying to say Subaru's name, but being unable to pronounce the consonants.
+
+Though rare at first, this has increased in the last two chapters
+
+（七章47节起）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
