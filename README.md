@@ -8662,6 +8662,33 @@ The presents included flowers, a handkerchief, rice balls, vegetables, shoddy po
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #613](https://twitter.com/LoremIpsumVerb/status/1488599357419106309)
+
+Yorna Mishigure is modelled after a courtesan trope, found in Japanese media known as "oiran".
+
+Not just her appearance reflects it, but the way she talks in Japanese too, known as "arinsu-kotoba" from the verb arinsu, a variation of "arimasu"
+
+（当前Trivia更新进度：七章52）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #614](https://twitter.com/LoremIpsumVerb/status/1488873537272262668)
+
+Arc 6, Chapter 83 is Ram's named chapter. However, what is not as widely known is the fact that when the chapter first dropped, it was not called "Ram", it was actually called "Hornless".
+
+The author later changed the title after its release.
+
+（拉姆名前回改名）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!-- Other notes:
 
 莱傲天视角避免
@@ -8738,5 +8765,6 @@ https://twitter.com/nezumiironyanko/status/843489782328057858
 
 長月:書籍化のための改稿ですよ!文章を直すのが一番苦労しました!地獄のように!
 
+死归 五秒前 https://twitter.com/nezumiironyanko/status/347923782024970241
 
 -->
