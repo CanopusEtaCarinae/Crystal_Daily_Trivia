@@ -325,7 +325,7 @@ Use of the the Dragon's Blood during the epidemic that killed off the Royal Fami
 
 There exist other smaller countries in the world of Re Zero, but they typically always hold the position of being vassal states to one of the four great countries.
 
-（放弃追随者之日）
+（放弃追随者之日，五卷第一章）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -8689,6 +8689,16 @@ The author later changed the title after its release.
 
 ---
 
+#### [Re: Zero Daily Trivia #615](https://twitter.com/LoremIpsumVerb/status/1489216004517412869)
+
+According to the author, the recent developments where Subaru ended up acting as a duo with Rui Arneb, came across Yorna, and got stuck fighting against Olbart were all not in the plot.
+
+https://twitter.com/nezumiironyanko/status/1488967087402156033
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
