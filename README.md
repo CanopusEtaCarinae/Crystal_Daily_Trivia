@@ -8699,6 +8699,26 @@ https://twitter.com/nezumiironyanko/status/1488967087402156033
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #616](https://twitter.com/LoremIpsumVerb/status/1489625891462385672)
+
+On June 5th, 2014, Tappei was asked how many volumes he thought it would take to complete Re: Zero. He replied saying it would be nice if it was around 30 volumes.
+
+Currently, still in the midst of Arc 7, we will reach Volume 29 on March 25.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：リゼロは文庫何冊くらいで完結することを想定していますか？<br/>
+A：30巻ぐらいいったらいいですね、とは思ってる<br/>
+<br/>
+
+（其他参考：http://re-zero.com/news/481/）
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
