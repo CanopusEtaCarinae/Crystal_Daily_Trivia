@@ -19,7 +19,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584) &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
-[605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610)
+[605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617)
 
 
 </details>
@@ -8714,6 +8714,19 @@ A：30巻ぐらいいったらいいですね、とは思ってる<br/>
 
 （其他参考：http://re-zero.com/news/481/）
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #617](https://twitter.com/LoremIpsumVerb/status/1489983367391154176)
+
+According to the author in 2016, Clind is an important character in the latter half of Re: Zero, so there will be a lot about him going forward.
+
+His importance has been evidenced in stories such as Golden Siblings and Kasaneru's Light Novel.
+
+【16年能翻到[这么个推](https://twitter.com/nezumiironyanko/status/792374755340890112)似乎是说这事，但是提问者推文不可见也不能直接确定，结合[fc2](http://rezero.wiki.fc2.com/wiki/twitter%E3%81%BE%E3%81%A8%E3%82%81%202016%20%E3%81%9D%E3%81%AE3)上的推文记录似乎应该是这条的出处。后面Golden Siblings和二期BD全卷不必再补充】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
