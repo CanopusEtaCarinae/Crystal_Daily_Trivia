@@ -8726,7 +8726,7 @@ According to the author in 2016, Clind is an important character in the latter h
 
 His importance has been evidenced in stories such as Golden Siblings and Kasaneru's Light Novel.
 
-【16年能翻到[这么个推](https://twitter.com/nezumiironyanko/status/792374755340890112)似乎是说这事，但是提问者推文不可见也不能直接确定，结合[fc2](http://rezero.wiki.fc2.com/wiki/twitter%E3%81%BE%E3%81%A8%E3%82%81%202016%20%E3%81%9D%E3%81%AE3)上的推文记录似乎应该是这条的出处。后面Golden Siblings和二期BD全卷不必再补充】
+【16年能翻到[这么个推](https://twitter.com/nezumiironyanko/status/792374755340890112)似乎是说这事，但是提问者推文不可见也不能直接确定，结合[fc2上16年十月的推文记录](http://rezero.wiki.fc2.com/wiki/twitter%E3%81%BE%E3%81%A8%E3%82%81%202016%20%E3%81%9D%E3%81%AE3)看似乎应该是这条的出处。后面Golden Siblings和二期BD全卷不必再补充】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
