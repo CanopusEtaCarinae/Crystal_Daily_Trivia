@@ -19,7 +19,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584) &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
-[605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617)
+[605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618)
 
 
 </details>
@@ -8726,7 +8726,22 @@ According to the author in 2016, Clind is an important character in the latter h
 
 His importance has been evidenced in stories such as Golden Siblings and Kasaneru's Light Novel.
 
-【16年能翻到[这么个推](https://twitter.com/nezumiironyanko/status/792374755340890112)似乎是说这事，但是提问者推文不可见也不能直接确定，结合[fc2上16年十月的推文记录](http://rezero.wiki.fc2.com/wiki/twitter%E3%81%BE%E3%81%A8%E3%82%81%202016%20%E3%81%9D%E3%81%AE3)看似乎应该是这条的出处。后面Golden Siblings和二期BD全卷不必再补充】
+【16年能翻到[这么个推](https://twitter.com/nezumiironyanko/status/792374755340890112)似乎是说这事，但是提问者推文不可见也不能直接确定，结合[fc2上16年10月的推文记录](http://rezero.wiki.fc2.com/wiki/twitter%E3%81%BE%E3%81%A8%E3%82%81%202016%20%E3%81%9D%E3%81%AE3)看似乎应该是这条的出处。后面Golden Siblings和二期BD全卷不必再补充】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #618](https://twitter.com/LoremIpsumVerb/status/1490328642404106242)
+
+According to the author, the main reason that Petelgeuse had to keep hopping bodies, replacing them often, was thanks to the constant use of his Authority, which kept wearing them down until they broke.
+
+<details>
+<summary>【翻到个QA好像勉强沾边，但是好像没有明说是权能的原因……还需要大佬补充才行】</summary>
+Q：確かペテ公が憑依できる相手は決まっていたと思うのですが、気のせいだったでしょうか。気のせいではなかったら、その理由はありますか？また、憑依していない状態を維持することはできますか？<br/>
+A：ペテ公が憑依できるのは、ペテ公が憑依して操れる適性がある相手だけです。精霊使いの素養か、純粋に肉体的に強靭であるか。チェック方法は『怠惰』の瘴気で、ＳＵＮ値チェックに失敗した相手は正気をなくしてペテ公と戦うどころじゃなくなります。また、ペテルギウスはイレギュラーな精霊のため、憑依していない状態を維持はできません。それができたら、死体みたいな状態の体で追っかけてくるようなことはしませんでした。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
