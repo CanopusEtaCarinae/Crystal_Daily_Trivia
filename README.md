@@ -8747,6 +8747,19 @@ A：ペテ公が憑依できるのは、ペテ公が憑依して操れる適性�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+# [Re: Zero Daily Trivia #619](https://twitter.com/LoremIpsumVerb/status/1490722726591582213)
+
+Subaru's trademark whip, the "Guiltywhip", was made from the Witchbeast they defeated in Arc Four: The Guiltylowe.
+
+He temporarily lost the whip during the flash flood of Pristella, but thanks to Ricardo finding it by chance, he  recovered it.
+
+（17、18卷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
