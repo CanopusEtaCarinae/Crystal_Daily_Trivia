@@ -8748,7 +8748,7 @@ A：ペテ公が憑依できるのは、ペテ公が憑依して操れる適性�
 
 ---
 
-# [Re: Zero Daily Trivia #619](https://twitter.com/LoremIpsumVerb/status/1490722726591582213)
+#### [Re: Zero Daily Trivia #619](https://twitter.com/LoremIpsumVerb/status/1490722726591582213)
 
 Subaru's trademark whip, the "Guiltywhip", was made from the Witchbeast they defeated in Arc Four: The Guiltylowe.
 
