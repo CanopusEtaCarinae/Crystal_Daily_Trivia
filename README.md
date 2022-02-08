@@ -8760,6 +8760,22 @@ He temporarily lost the whip during the flash flood of Pristella, but thanks to 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #620](https://twitter.com/LoremIpsumVerb/status/1491051076249812995)
+
+According to the author, the Great Witchbeast that tastes the best out of "White Whale Karaage", "Sautéd Great Rabbit" and "Charred Black Snake" is...
+
+The "Sautéd Great Rabbit". No one has ever tried eating it, so its taste is unknown
+<details>
+<summary>（ask.fm：）</summary>
+Q：白鯨の唐揚げ、大兎のソテー、黒蛇の黒焼きの中で一番美味しいのはどれですか<br/>
+A：その中なら大兎のソテーだろうけど、ソテーする前に食材にならないように頑張ってね。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
