@@ -8783,13 +8783,13 @@ The author's impressions towards Regulus becoming the protagonist of a Gal Game 
 
 It would be a harem, where the heroines that don't listen to him are turned into mincemeat, while the ones that do are all made into his wives.
 
+（与[#424](#re-zero-daily-trivia-21)重了）
+
 <details>
 <summary>（ask.fm：）</summary>
 Q：レグルスさんが主人公のギャルゲーってどんな感じですか？<br/>
 A：言うこと聞かないヒロインをミンチにして、言うこと聞くヒロインを次々と嫁にするハーレム物です。<br/>
 <br/>
-与[#424](#re-zero-daily-trivia-21)重了
-
 </details>
 
 [Return to Content](#Content)<br/>
