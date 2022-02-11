@@ -8796,6 +8796,18 @@ A：言うこと聞かないヒロインをミンチにして、言うこと聞�
 
 ---
 
+#### [Re: Zero Daily Trivia #622](https://twitter.com/LoremIpsumVerb/status/1491787684829806597)
+
+In Volume 8 of the Light Novel, Petelgeuse mentions that even Wrath would be envious of the love Subaru had received from the Witch.
+
+However, in the Web Novel, Petelgeuse also mentions Lust would be; it's unknown why this change was made.
+
+（文库8卷一章5节；Web三章63）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
