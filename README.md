@@ -277,7 +277,7 @@ Echidna created only three Artificial Spirits, with the rest of her attempts end
 
 The first one she created was Puck, then Eridna and finally Beatrice was last.
 
-（zeropedia，21卷蜜瓜）
+（Zeropedia，21卷蜜瓜）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -1679,7 +1679,7 @@ Arakiya wears an ornate eyepatch over her left eye and has practically lost all 
 
 The world of Re: Zero has been confirmed by the author to be flat, with the Great Waterfall surrounding the landmass that has been by and large conquered by the four great countries: Lugunica, Vollachia, Gusteko and Kararagi.
 
-（基本设定，可参考zeropedia，四卷等）
+（基本设定，可参考Zeropedia，四卷等）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -1814,7 +1814,7 @@ Before Farsale Lugunica made the covenant with the Divine Dragon Volcanica, the 
 
 Thus, since the Kingdom then became known as the Dragon Kingdom, Farsale was dubbed the "Last Lion King".
 
-（zeropedia？）
+（Zeropedia？）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -6372,7 +6372,7 @@ He scrapped the idea though, and went for Amue instead.
 
 Though well known that Gusteko has a Holy King that is chosen by the Sacred Beast, Odglass, the country has an actual King as well, that is also chosen by Odglass.
 
-（zeropedia）
+（Zeropedia）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -8804,6 +8804,19 @@ In Volume 8 of the Light Novel, Petelgeuse mentions that even Wrath would be env
 However, in the Web Novel, Petelgeuse also mentions Lust would be; it's unknown why this change was made.
 
 （文库8卷一章5节；Web三章63）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #623](https://twitter.com/LoremIpsumVerb/status/1492145086192308228)
+
+Over four hundred years ago, Lugunica and Vollachia waged many wars between themselves over territory.
+
+However, after Lugunica bound the covenant with the Dragon, these wars stopped, with only some small skirmishes breaking out since
+
+（Zeropedia，Ex4等）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
