@@ -8822,6 +8822,19 @@ However, after Lugunica bound the covenant with the Dragon, these wars stopped, 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #624](https://twitter.com/LoremIpsumVerb/status/1492492114541875205)
+
+Despite the appearance she was given in the Light Novel and Anime, Minerva was described by Subaru as a: "a fresh-feeling explosive, Tsundere, big-breasted loli healer".
+
+It's unclear how he viewed her to be a loli in any capacity.
+
+（11卷五章，Web四章12节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
