@@ -19,7 +19,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584) &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
-[605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618)
+[605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
 
 
 </details>
@@ -8830,6 +8830,26 @@ Despite the appearance she was given in the Light Novel and Anime, Minerva was d
 It's unclear how he viewed her to be a loli in any capacity.
 
 （11卷五章，Web四章12节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #625](https://twitter.com/LoremIpsumVerb/status/1492870048595288065)
+
+When asked in 2014 about who his favourite Re: Zero character was, in terms of his type, and not counting Emilia, the author responded that it was Crusch.
+
+Specifically saying that he wanted to become Crusch-sama's vassal.
+<details>
+<summary>【水平太差，ask.fm和推上没有找到和Trivia描述一致的问答，只找到类似相关的……第二段推上倒是有基本一致的】</summary>
+Q：猫さんはリゼロ世界の人間の誰とお話したいですか？※エミリアたんは殿堂入りなので駄目です<br/>
+A：クルシュ様に叱られたい。<br/>
+<br/>
+https://twitter.com/nezumiironyanko/status/472362061381390336<br/>
+<br/>
+https://twitter.com/nezumiironyanko/status/474496391247429632<br/>
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
