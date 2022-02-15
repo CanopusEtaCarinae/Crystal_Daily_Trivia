@@ -8855,6 +8855,19 @@ https://twitter.com/nezumiironyanko/status/474496391247429632<br/>
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #626](https://twitter.com/LoremIpsumVerb/status/1493236662402523138)
+
+After Arc Five, every single Royal Candidate Faction received a series of Side Stories or time in the main story showing what they were up to after the events in Pristella.
+
+The only exception to that was the Crusch Camp.
+
+（21卷起有金狮子妾万岁塔组相关特典就是没库珥修阵营的）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
