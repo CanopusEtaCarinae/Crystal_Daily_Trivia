@@ -8868,6 +8868,29 @@ The only exception to that was the Crusch Camp.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #627](https://twitter.com/LoremIpsumVerb/status/1493600966163193856)
+
+According to the author, Satella would live up in the attic of the person she loves if she was thrown into modern Japan.
+
+This is reflected in Re: Zero Academy (School IF) where the author confirmed she lives in the attic there.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：魔女の皆さん方を特殊能力なしで現代日本に放り込んだ場合、それぞれどのような活動をしますかね。<br/>
+A：セクメトさんが部屋から出てこない。テュフォンは小学校のガキ大将になり、ダフネは意外と普通に話上手で聞き上手な女子中学生になり、カーミラは『学年で三番目に可愛い』みたいな男子にひそかに人気があり、女子からも「ほっとけないからしょうがない」と守られる女子高生になり、エキドナは嫌に気取った大学院生みたいなものになってそのまま研究者コースに乗り、ミネルヴァたんは博愛精神突っ走ってＮＧＯとかに参加して体を張りながら活躍して、サテラは好きな人の家の天井裏に住みます。<br/>
+<br/>
+Q：学園リゼロにサテラさんがいないようですが…<br/>
+A：屋根裏ッス。<br/>
+<br/>
+Q：魔女因子に関係ある人たちで学園リゼロ!! ってどんな風になりますか? に追加で、サテラさんどこ行っちゃたんでしょうか。 後、全登場キャラで格闘ゲームとかにしたらどうなりますか?ラインハルト・スバルあたりがチートくさい気がしますが………<br/>
+A：天井裏にいる隠しキャラだよ、サテラ。全ヒロイン攻略後に解放されるルートで、マブラヴに対するアンリミテッドみたいな感じで出現して、もう全然違う話になる。格ゲーは、そもそも格闘ゲームのシステムに則してない能力者が多すぎてキツイかもね……。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
