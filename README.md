@@ -8891,6 +8891,19 @@ A：天井裏にいる隠しキャラだよ、サテラ。全ヒロイン攻略�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #628](https://twitter.com/LoremIpsumVerb/status/1493981556326776842)
+
+According to Tappei, Beatrice's signature phrase: "Ehepero" (Localised as: Eh-heh-heh, thbbt) came from Puck using "Tehepero" (Localised as: Teeheh-heh-heh, thbbt).
+
+She always used to think he was saying the former one, so it stuck for her.
+
+https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/967544/index.php?p=8 （「えへぺろ」和「てへぺろ」）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
