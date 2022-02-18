@@ -8904,6 +8904,21 @@ https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/967544/index.ph
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #629](https://twitter.com/LoremIpsumVerb/status/1494345493824118789)
+
+According to the author, if there was a war between two foreign countries, and for Lugunica's sake, Reinhard had to force one of them into a state of total defeat, the criteria he would use for deciding which to wipe out is a spoiler.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：もしラインハルトがルグニカのために、他国同士の戦争でどちらか一方を再起不能状態に追いやらなくてはならなくなったとき、彼はどういう判断基準で滅ぼす国を決めるんでしょうか<br/>
+A：それはネタバレになるね。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
