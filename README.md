@@ -8919,6 +8919,23 @@ A：それはネタバレになるね。
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #630](https://twitter.com/LoremIpsumVerb/status/1494677352135237633)
+
+According to the author, lesser spirits, such as the ones Emilia contracts with, get nervous around Puck.
+
+Thus, Puck can get in the way when it comes to Emilia performing the ritual to contract them.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エミリアの微精霊との契約の儀式って、パックが出てきていないとだめでしょうか。<br/>
+A：いいえ、大丈夫です。むしろ、パックがいると微精霊がビビるのでパック邪魔です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
