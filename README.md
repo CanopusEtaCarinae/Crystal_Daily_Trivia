@@ -8954,7 +8954,20 @@ A：俺があまり同性愛が得意じゃないので、広まってたとし�
 
 ---
 
+#### [Re: Zero Daily Trivia #632](https://twitter.com/LoremIpsumVerb/status/1495413866003640322)
 
+The dagger Crusch Karsten possesses bearing the crest of a lion was actually a gift she got for her birthday from her father, Meckart.
+
+Crusch was the one who specifically asked him for the crested dagger, which was passed down in their family
+
+（Ex1一章4节）
+
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
