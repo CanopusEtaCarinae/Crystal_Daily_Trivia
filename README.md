@@ -8968,6 +8968,23 @@ Crusch was the one who specifically asked him for the crested dagger, which was 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #633](https://twitter.com/LoremIpsumVerb/status/1495779209809174529)
+
+According to the author, he's the type of person who doesn't want to depict the heroine's death (in reference to Emilia) as much as he can, in his writing.
+
+As a result, her deaths have *typically* been off-screened or devoid of description.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：三章における隠し通路内のエミリアの遺体が本当はどうなってたのか教えてください。<br/>
+A：極力、ヒロインの死に様は描写したくないタイプです
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
