@@ -4,6 +4,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。
 
+（注：自[#631](#re-zero-daily-trivia-631)起Ice决定自己在发Trivia的同时发上来源，故出处待定的也就到此条为止了）
+
 <details>
 <summary>【出处待完善】</summary>
 
@@ -8938,6 +8940,8 @@ A：いいえ、大丈夫です。むしろ、パックがいると微精霊が�
 ---
 
 #### [Re: Zero Daily Trivia #631](https://twitter.com/LoremIpsumVerb/status/1495047333196795908)
+
+（自此条起Ice开始自行附带出处）
 
 A common misconception seen in the Fandom involves believing that the author would never make any of his characters homosexual or bisexual.
 
