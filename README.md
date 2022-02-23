@@ -8989,6 +8989,19 @@ A：極力、ヒロインの死に様は描写したくないタイプです
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #634](https://twitter.com/LoremIpsumVerb/status/1496144767180230659)
+
+The very first comment Tappei got on the Re: Zero Web Novel came 17 days after he started, just after he published the penultimate chapter of Arc One.
+
+The comment came from a user called "Natsubanana", and was extremely praising of his work.
+
+（感想板最早评论 2012-05-07）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -9066,5 +9079,7 @@ https://twitter.com/nezumiironyanko/status/843489782328057858
 長月:書籍化のための改稿ですよ!文章を直すのが一番苦労しました!地獄のように!
 
 死归 五秒前 https://twitter.com/nezumiironyanko/status/347923782024970241
+
+贝蒂生日 https://twitter.com/nezumiironyanko/status/860576425048285184
 
 -->
