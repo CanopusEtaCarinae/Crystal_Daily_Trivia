@@ -9002,6 +9002,32 @@ The comment came from a user called "Natsubanana", and was extremely praising of
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #635](https://twitter.com/LoremIpsumVerb/status/1496516951883014145)
+
+According to the author, Rem would not be able to take the trials in Arc Four, even if by some chance she could have been taken along, because she does not have the qualifications.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：四章のレムを連れて行けば試練を受けれますか？<br/>
+A：レムには資格がありません。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #636](https://twitter.com/LoremIpsumVerb/status/1496866343999660033)
+
+Though not the first time a character has shown up on the cover of a main volume, as Volume 8 had Felt on it, Volume 29 marks the first time a character - Madeline - shows up without presumably being in the volume AND ever appearing in the main story.
+
+（2022-02-24 29封面剪影——截至此时新玖未在正篇出场）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
