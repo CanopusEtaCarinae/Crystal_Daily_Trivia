@@ -4,7 +4,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。
 
-（注：自[#631](#re-zero-daily-trivia-631)起Ice决定自己在发Trivia的同时发上来源，故出处待定的也就到此条为止了）
+（注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故出处待定的也就到此条为止了）
 
 <details>
 <summary>【出处待完善】</summary>
@@ -9023,6 +9023,17 @@ A：レムには資格がありません。
 Though not the first time a character has shown up on the cover of a main volume, as Volume 8 had Felt on it, Volume 29 marks the first time a character - Madeline - shows up without presumably being in the volume AND ever appearing in the main story.
 
 （2022-02-24 29封面剪影——截至此时新玖未在正篇出场）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #637](https://twitter.com/LoremIpsumVerb/status/1497219453645373450)
+
+According to the author, if Echidna were to meet Aldebaran, she would not be interested in him at all, let alone be as interested in him as she was with Subaru.
+
+（19年多娜生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
