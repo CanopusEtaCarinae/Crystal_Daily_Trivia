@@ -9039,6 +9039,19 @@ According to the author, if Echidna were to meet Aldebaran, she would not be int
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #638](https://twitter.com/LoremIpsumVerb/status/1497662329735069698)
+
+In addition to his usual powers that let him deftly launch deadly thorns at his adversaries, Kafma Irulux is also able to sprout insect wings that enable him to fly.
+
+He demonstrated this ability during the last Yorna rebellion.
+
+（Sword Identity）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
