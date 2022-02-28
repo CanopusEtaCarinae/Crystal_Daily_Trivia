@@ -9052,6 +9052,19 @@ He demonstrated this ability during the last Yorna rebellion.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #639](https://twitter.com/LoremIpsumVerb/status/1497970797050273792)
+
+Groovy Gumlet was the first person to be appointed as a Divine General by Vincent not counting Chisha and Cecilus, who were already Vincent's pawns prior to him becoming Emperor.
+
+Groovy's appointment was mostly thanks to his talent.
+
+（Sword Identity后篇）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
