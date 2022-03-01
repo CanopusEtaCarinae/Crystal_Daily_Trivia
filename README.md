@@ -9065,6 +9065,19 @@ Groovy's appointment was mostly thanks to his talent.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #640](https://twitter.com/LoremIpsumVerb/status/1498319363392344068)
+
+According to Chisha, there are legends that say Dragonkin, like Madeline, lived among actual Dragons.
+
+Since some Dragons understand speech, Chisha suspected one gave Madeline her name. However, Madeline denied this, saying she got it from her family
+
+（Sword Identity后篇）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
