@@ -42,7 +42,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &zwnj; [591-600](#re-zero-daily-trivia-591)
 
-[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631)
+[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641)
 
 ---
 
@@ -9073,6 +9073,23 @@ According to Chisha, there are legends that say Dragonkin, like Madeline, lived 
 Since some Dragons understand speech, Chisha suspected one gave Madeline her name. However, Madeline denied this, saying she got it from her family
 
 （Sword Identity后篇）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #641](https://twitter.com/LoremIpsumVerb/status/1498724078127038464)
+
+According to the author, the colour of Echidna's panties when she donned her school uniform in the first Trial were actually white.
+
+This is because she was reflecting Subaru's own preferences.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エキドナたんが制服姿の時 パンツの色って何色ですか<br/>
+A：残念ながら白だ。スバルの好みを反映した結果なので、スバルの好みが反映された。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
