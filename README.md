@@ -9095,6 +9095,23 @@ A：残念ながら白だ。スバルの好みを反映した結果なので、�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #642](https://twitter.com/LoremIpsumVerb/status/1499030640901115907)
+
+According to the author in May 2014, when asked about which Arc Subaru would die the most in, he replied it would probably be about the same regardless of which one.
+
+However, ever since Arc 6 and Arc 7 he has strayed far from this declaration.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：今後の章も含めてスバルが最も多く死ぬのは何章ですか。<br/>
+A：多分。どこもトントン。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
