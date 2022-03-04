@@ -9112,6 +9112,19 @@ A：多分。どこもトントン。
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #643](https://twitter.com/LoremIpsumVerb/status/1499397677301174272)
+
+Tappei has confirmed that he originally didn't plan to go to Vollachia in the main story.
+
+But, when he was writing stuff like Priscilla's past (in Comic Alive), characters from the Empire showed up, and he figured it'd be a waste if he didn't use them
+
+（[Re:BOX2发售采访](https://webnewtype.com/report/article/1073351/)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
