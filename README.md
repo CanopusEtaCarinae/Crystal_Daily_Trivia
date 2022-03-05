@@ -9125,6 +9125,17 @@ But, when he was writing stuff like Priscilla's past (in Comic Alive), character
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #644](https://twitter.com/LoremIpsumVerb/status/1499768318315667460)
+
+When the author first saw Otsuka's character designs for Volume One, he was so moved that he printed out every single one, laminated them and stuck them up on his wall.
+
+（[Re:BOX2发售采访](https://webnewtype.com/report/article/1073351/)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
