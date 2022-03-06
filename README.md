@@ -9136,6 +9136,19 @@ When the author first saw Otsuka's character designs for Volume One, he was so m
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #645](https://twitter.com/LoremIpsumVerb/status/1500137369298604034)
+
+The way Lugunica, and likely the entire world, counts its month is via the "Lagna Calendar". There are 12 months that roughly correspond to the ones on Earth, but are named differently.
+
+So far we are aware of: Tammuz, Arbe, Marshba and Kisdam
+
+（一卷：タンムズの月；祝福之日：ラグナ歴，マルシュバの月；アーブの月〔仅杂志版〕；强欲IF：キスダムの月）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
