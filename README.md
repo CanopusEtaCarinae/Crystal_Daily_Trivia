@@ -9149,6 +9149,24 @@ So far we are aware of: Tammuz, Arbe, Marshba and Kisdam
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #646](https://twitter.com/LoremIpsumVerb/status/1500622186192719872)
+
+Today's daily trivia is a special one!
+
+I've compiled a list of official Re: Zero Light Novel localisations, in every single language I could find, and presented them in a table, showcasing key details such as how many volumes are available!
+
+<details>
+<summary>（简中台版的画集没写；其他语言是否有误具体看推文回复罢……）</summary>
+
+![](https://pbs.twimg.com/media/FNNH1klX0AUcRVX?format=png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!-- Other notes:
 
 莱傲天视角避免
