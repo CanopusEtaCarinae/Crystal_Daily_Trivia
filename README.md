@@ -9167,6 +9167,18 @@ I've compiled a list of official Re: Zero Light Novel localisations, in every si
 
 ---
 
+#### [Re: Zero Daily Trivia #647](https://twitter.com/LoremIpsumVerb/status/1500851664982523905)
+
+According to Otsuka, the artist for the Light Novel, Emilia is the character he has the most emotional attachment to.
+
+This is because, in respect to design, it's the one he worked the hardest on, in the sense of sheer toil.
+
+（[Re:BOX2发售采访](https://webnewtype.com/report/article/1073351/)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
