@@ -9179,6 +9179,19 @@ This is because, in respect to design, it's the one he worked the hardest on, in
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #648](https://twitter.com/LoremIpsumVerb/status/1501251180256804875)
+
+According to the author, the black ribbon that Felt typically wears is something which Old Man Rom gifted to her.
+
+Rom also probably used to do her hair in the past, though nowadays, Felt does it herself.
+
+（18年菲鲁特生日，[此条fandom未收录](https://twitter.com/nezumiironyanko/status/1027258952684195840)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
