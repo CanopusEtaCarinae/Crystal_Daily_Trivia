@@ -9192,6 +9192,23 @@ Rom also probably used to do her hair in the past, though nowadays, Felt does it
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #649](https://twitter.com/LoremIpsumVerb/status/1501594050717265926)
+
+According to the author, the titles given by the Kingdom of Lugunica to those who achieve the pinnacle of magic in the respective element are only given to humans.
+
+Meaning he has denied that Beatrice could ever get the title: "Black".
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：「黒」がベア子になる事はありえますか？<br/>
+A：あれは人間に与えられる称号なので、ベア子は無理です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
