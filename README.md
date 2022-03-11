@@ -42,7 +42,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &zwnj; [591-600](#re-zero-daily-trivia-591)
 
-[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641)
+[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-02) &zwnj; [651-660](#re-zero-daily-trivia-641)
 
 ---
 
@@ -9081,6 +9081,8 @@ Since some Dragons understand speech, Chisha suspected one gave Madeline her nam
 
 #### [Re: Zero Daily Trivia #641](https://twitter.com/LoremIpsumVerb/status/1498724078127038464)
 
+(2022-03-02，此条拖至次日才发)
+
 According to the author, the colour of Echidna's panties when she donned her school uniform in the first Trial were actually white.
 
 This is because she was reflecting Subaru's own preferences.
@@ -9221,6 +9223,21 @@ According to the author in a Q&A, he did so within a year of travelling there.
 Q：三章断章の世界で、スバルが男の階段を上がったのは何才ごろですか？
 A：カララギに渡ってわりとすぐ。１年以内。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #651](https://twitter.com/LoremIpsumVerb/status/1502305085363302403)
+
+The first Light Novel Tappei is known to have published was "Treasoner" under the penname Yayoi Shouta.
+
+It came out in 2008 after winning an honorable mention in the 7th Super Dash Novel Rookie Award.
+
+Unfortunately, the series flopped after 2 volumes
+
+【今天没写上确切出处，不过小说信息可以查到】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
