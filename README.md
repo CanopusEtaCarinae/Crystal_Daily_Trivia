@@ -9209,6 +9209,23 @@ A：あれは人間に与えられる称号なので、ベア子は無理です�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #650](https://twitter.com/LoremIpsumVerb/status/1501937296584568834)
+
+In Re: IF, also known as Rem IF or Sloth IF, Subaru was able to climb up the stairway of manhood and lose his virginity relatively soon after he went to Kararagi.
+
+According to the author in a Q&A, he did so within a year of travelling there.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：三章断章の世界で、スバルが男の階段を上がったのは何才ごろですか？
+A：カララギに渡ってわりとすぐ。１年以内。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
