@@ -9258,6 +9258,17 @@ A：ぶっちぎってラム
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #653](https://twitter.com/LoremIpsumVerb/status/1503040302713606144)
+
+According to the author, Felix's favourite colour is amber, the colour of Crusch's eyes.
+
+（19年菲利斯生日〔17年也有类似的〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
