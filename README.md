@@ -9269,6 +9269,21 @@ According to the author, Felix's favourite colour is amber, the colour of Crusch
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #654](https://twitter.com/LoremIpsumVerb/status/1503407753771032577)
+
+According to the author, if Subaru tried to forcibly tell Reinhard about his Return by Death - just like he tried with Emilia - his own (Subaru's) heart would burst.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ラインハルトにしに戻りの事を無理やり言おうとしたらどうなります？
+A：スバルの心臓が弾ける
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
