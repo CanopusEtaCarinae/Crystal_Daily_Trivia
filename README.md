@@ -8100,6 +8100,7 @@ https://repotama.com/2016/06/85665/<br/>
 
 https://twitter.com/nezumiironyanko/status/955849230412754944<br/>
 https://twitter.com/nezumiironyanko/status/955850894590930944<br/>
+https://twitter.com/nezumiironyanko/status/955846613083209728<br/>
 https://twitter.com/uveru__chan/status/1285946015174914049<br/>
 
 [Return to Content](#Content)<br/>
@@ -9220,7 +9221,7 @@ According to the author in a Q&A, he did so within a year of travelling there.
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：三章断章の世界で、スバルが男の階段を上がったのは何才ごろですか？
+Q：三章断章の世界で、スバルが男の階段を上がったのは何才ごろですか？<br/>
 A：カララギに渡ってわりとすぐ。１年以内。
 </details>
 
@@ -9276,9 +9277,22 @@ According to the author, if Subaru tried to forcibly tell Reinhard about his Ret
 
 <details>
 <summary>（ask.fm：）</summary>
-Q：ラインハルトにしに戻りの事を無理やり言おうとしたらどうなります？
+Q：ラインハルトにしに戻りの事を無理やり言おうとしたらどうなります？<br/>
 A：スバルの心臓が弾ける
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #655](https://twitter.com/LoremIpsumVerb/status/1503789482566463497)
+
+If Echidna was thrown into modern society without any abilities, she'd probably be suited to be a Youtuber.
+
+That's because she has a good face, talks a lot, flaunts her knowledge, is meticulous and has a mentality that allows her to bear taking heat.
+
+（18年多娜生日，[此条fandom未收录](https://twitter.com/nezumiironyanko/status/955843482974736385)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
