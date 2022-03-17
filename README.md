@@ -9298,6 +9298,17 @@ That's because she has a good face, talks a lot, flaunts her knowledge, is metic
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #656](https://twitter.com/LoremIpsumVerb/status/1504186978727862280)
+
+According to the author, Elsa's motto is: "Treasure each bowel like it's your last."
+
+（18年猎肠生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
