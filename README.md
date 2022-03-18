@@ -9309,6 +9309,20 @@ According to the author, Elsa's motto is: "Treasure each bowel like it's your la
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #657](https://twitter.com/LoremIpsumVerb/status/1504549370661904396)
+
+Among his many duties as Priscilla's fluffy pink-haired attendant, Schult also serves the role of her pillow.
+
+He gets snuggled by her at night (non-sexually), with Priscilla even going as far as complimenting him for how cuddly he is.
+
+（例：红莲的残影。其余还有多处例子）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!-- Other notes:
 
 莱傲天视角避免
