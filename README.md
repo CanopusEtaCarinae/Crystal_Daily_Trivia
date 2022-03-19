@@ -9323,6 +9323,26 @@ He gets snuggled by her at night (non-sexually), with Priscilla even going as fa
 
 ---
 
+#### [Re: Zero Daily Trivia #658](https://twitter.com/LoremIpsumVerb/status/1504824911524683781)
+
+According to the author, Ton, Chin and Kan are slated to have a named chapter in the future.
+
+Though it's unknown which Arc it will be in, the most common suspicion is Arc 8 as it has been said they'd perhaps play an active role then.
+
+<details>
+<summary>（ask.fm以及14年一个推：）</summary>
+Q：リゼロで、意外なキャラの名前回ってありますか？<br/>
+A：トンチンカンは名前回あるよ<br/>
+
+https://twitter.com/nezumiironyanko/status/433963345868103680<br/>
+[零大7~11章情报贴](http://tieba.baidu.com/p/7276964431)也有提
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
 <!-- Other notes:
 
 莱傲天视角避免
