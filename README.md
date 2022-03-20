@@ -9343,6 +9343,22 @@ https://twitter.com/nezumiironyanko/status/433963345868103680<br/>
 
 ---
 
+####[Re: Zero Daily Trivia #659](https://twitter.com/LoremIpsumVerb/status/1505216020990074880)
+
+During some Character Birthday Q&A's, Tappei was asked to describe the respective character using a single Kanji. Some answers include:
+
+Julius - 優 (Excellence)<br/>
+Felt - 昇 (Rising)<br/>
+Priscilla - 豊 (Ample)<br/>
+Joshua - 迷 (Astray)<br/>
+Felix - 願 (Wish)<br/>
+
+（18年6154、18年菲鲁特、18年寡妇、19年Josha、19年菲利斯生日问答）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
