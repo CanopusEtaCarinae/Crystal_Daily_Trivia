@@ -9343,7 +9343,7 @@ https://twitter.com/nezumiironyanko/status/433963345868103680<br/>
 
 ---
 
-####[Re: Zero Daily Trivia #659](https://twitter.com/LoremIpsumVerb/status/1505216020990074880)
+#### [Re: Zero Daily Trivia #659](https://twitter.com/LoremIpsumVerb/status/1505216020990074880)
 
 During some Character Birthday Q&A's, Tappei was asked to describe the respective character using a single Kanji. Some answers include:
 
@@ -9354,6 +9354,18 @@ Joshua - 迷 (Astray)<br/>
 Felix - 願 (Wish)<br/>
 
 （18年6154、18年菲鲁特、18年寡妇、19年Josha、19年菲利斯生日问答）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #660](https://twitter.com/LoremIpsumVerb/status/1505535973584736258)
+
+According to the author, if Echidna and Emilia were locked up in the same room for an entire day, Emilia would try and start numerous conversations with her.
+However, Echidna would just be there tch'ing a ton.
+
+（19年多娜生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
