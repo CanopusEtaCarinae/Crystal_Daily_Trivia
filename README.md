@@ -42,7 +42,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &zwnj; [591-600](#re-zero-daily-trivia-591)
 
-[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651)
+[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661)
 
 ---
 
@@ -2366,7 +2366,7 @@ Rai Batenkaitos → Zeta Ceti in the constellation of Cetus (Whale)
 
 Roi Alphard → Alpha Hydrae in the constellation of Hydra (Water Snake)
 
-（[个人私货(https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E9%B2%B8%E9%B1%BC%E5%BA%A7)）
+（[个人私货)(https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E9%B2%B8%E9%B1%BC%E5%BA%A7)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -2397,8 +2397,9 @@ The capital has been given a population of 300,000 while the great cities range 
 Q：ルグニカの、王都以外の都市や村ってどんな感じですか？<br/>
 A：王都を中心に、六茫星を描くように人口２０万から３０万クラスの大都市が六つ配置されています。それ以外にも小規模都市が点在、町、村落、集落レベルで下がっていきますね。人間族に限れば大体が村落レベルに住んでますが、亜人は集落レベルを山や森に作って暮らしているケースもあります。仲は積極的にはよくありません。<br/>
 <br/>
-（跟[#46](#re-zero-daily-trivia-46)用的ask感觉一样？）
 </details>
+
+（跟[#46](#re-zero-daily-trivia-46)所引用的用的ask出处感觉一样？）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9366,6 +9367,23 @@ According to the author, if Echidna and Emilia were locked up in the same room f
 However, Echidna would just be there tch'ing a ton.
 
 （19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #661](https://twitter.com/LoremIpsumVerb/status/1505918970846715910)
+
+According to Tappei, if Subaru was told he had to chose between Emilia's panties or getting a hug from her, his answer would depend.
+
+If it was in front of her, he would act unsure, but if Emilia wasn't there, he'd immediately chose the hug.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルは選べと言われたらエミリアたんのぱんつか、エミリアたんとハグのどちらを選ぶんですか？どちらを選ぶかでスバルの人間性がわかる気がするかもしれない<br/>
+A：エミリアたんの目の前ではどっちか迷ってみせるけど、エミリアたんのいない場所なら迷わずハグを選びます。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
