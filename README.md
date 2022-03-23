@@ -2366,7 +2366,7 @@ Rai Batenkaitos → Zeta Ceti in the constellation of Cetus (Whale)
 
 Roi Alphard → Alpha Hydrae in the constellation of Hydra (Water Snake)
 
-（[个人私货)(https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E9%B2%B8%E9%B1%BC%E5%BA%A7)）
+（[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E9%B2%B8%E9%B1%BC%E5%BA%A7)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -2399,7 +2399,7 @@ A：王都を中心に、六茫星を描くように人口２０万から３０�
 <br/>
 </details>
 
-（跟[#46](#re-zero-daily-trivia-46)所引用的用的ask出处感觉一样？）
+（跟[#46](#re-zero-daily-trivia-46)所引用的ask出处感觉一样？）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9384,6 +9384,18 @@ If it was in front of her, he would act unsure, but if Emilia wasn't there, he'd
 Q：スバルは選べと言われたらエミリアたんのぱんつか、エミリアたんとハグのどちらを選ぶんですか？どちらを選ぶかでスバルの人間性がわかる気がするかもしれない<br/>
 A：エミリアたんの目の前ではどっちか迷ってみせるけど、エミリアたんのいない場所なら迷わずハグを選びます。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #662](https://twitter.com/LoremIpsumVerb/status/1506286082626932754)
+
+According to the author, if Subaru and Emilia got married, Reinhard van Astrea would swear on his sword and honour to fight for the two of them, hastening to them before anyone else, as a wedding gift.
+
+（18年莱傲天生日，fandom未收录）<br/>
+https://twitter.com/nezumiironyanko/status/947856573749018625
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
