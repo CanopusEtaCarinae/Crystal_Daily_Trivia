@@ -9394,8 +9394,20 @@ A：エミリアたんの目の前ではどっちか迷ってみせるけど、�
 
 According to the author, if Subaru and Emilia got married, Reinhard van Astrea would swear on his sword and honour to fight for the two of them, hastening to them before anyone else, as a wedding gift.
 
-（18年莱傲天生日，fandom未收录）<br/>
-https://twitter.com/nezumiironyanko/status/947856573749018625
+（18年莱傲天生日，[此条fandom未收录](https://twitter.com/nezumiironyanko/status/947856573749018625)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #663](https://twitter.com/LoremIpsumVerb/status/1506660863046037504)
+
+According to the Author, Otto Suwen would have supported Emilia in the Royal Selection, even if he hadn't met Subaru.
+
+PS: Today is Otto's birthday in Japan, happy birthday Otto!
+
+（19年奥托生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
