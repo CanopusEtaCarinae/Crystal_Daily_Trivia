@@ -9413,6 +9413,19 @@ PS: Today is Otto's birthday in Japan, happy birthday Otto!
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #664](https://twitter.com/LoremIpsumVerb/status/1507084047830425606)
+
+After being sprung free from her captivity by Todd and Jamal, culminating in the latter's death, Arakiya was delivered safely back to the capital by Todd.
+
+Following that, she was entrusted by Berstetz to go to the Gladiator Island -
+
+（29卷gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
