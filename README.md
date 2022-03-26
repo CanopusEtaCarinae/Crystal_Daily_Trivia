@@ -9426,6 +9426,19 @@ Following that, she was entrusted by Berstetz to go to the Gladiator Island -
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #665](https://twitter.com/LoremIpsumVerb/status/1507423444522217478)
+
+Heinkel Astrea has a habit of practising very early in the morning with the sword.
+
+According to him, this is so that he does not end up developing lazy habits, despite typically being drunk during most of the actual day.
+
+（29卷蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
