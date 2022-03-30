@@ -9439,6 +9439,50 @@ According to him, this is so that he does not end up developing lazy habits, des
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [#666 本日Ice个人原因无Trivia](https://twitter.com/LoremIpsumVerb/status/1507835150100484101)
+
+---
+
+### [Re: Zero Daily Trivia #667](https://twitter.com/LoremIpsumVerb/status/1508178648175628289)
+
+According to the author, Roswaal's favourite Yojijukugo (four-character idiom) are something like:
+
+誠心誠意 -  Whole-hearted devotion.<br/>
+一意専心 - With all one's heart and soul.
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #668](https://twitter.com/LoremIpsumVerb/status/1508514177337499654)
+
+Al has only been called "Aldebaran" 3 times in the Web Novel. The first two times were during Arc 3 with Priscilla using his full name, and Al telling her not to use it.
+
+The third one was in today's chapter, with Al himself affirming it in narration.
+
+（Web三章两次，七章一次〔截至七章57节〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #669](https://twitter.com/LoremIpsumVerb/status/1508803653272055815)
+
+The town of Kurufna lies in the Barielle Lands, and is the closest area to the Barielle Estate.
+
+The place has received the strongest influence from Priscilla, and as a result, has prospered compared to the days Leip was in charge.
+
+（绯色联盟）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
