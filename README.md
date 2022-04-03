@@ -9515,6 +9515,36 @@ A：時を渡る復讐者『リベンジ・カウントダウン』
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #672](https://twitter.com/LoremIpsumVerb/status/1509862466871824385)
+
+When asked about whether Echidna was interested in erotic stuff, the author replied with a brief, yet to the point "endlessly".
+
+Signifying that Echidna also has an inexhaustible curiousity about all things erotic.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エキドナちゃんはエロい事に興味がありますか<br/>
+A：津々
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #673](https://twitter.com/LoremIpsumVerb/status/1510270639374012424)
+
+Though Otto is said to resemble his mother the most, in "The Search Chronicle for the Missing Boy 4", Roswaal claims Otto got his eye and hair colour from his father instead.
+
+But, given their official designs, this can only be chalked to be a mistake.
+
+（29卷虎之穴，父母设定与动画有异）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
