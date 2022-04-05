@@ -9545,6 +9545,32 @@ But, given their official designs, this can only be chalked to be a mistake.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #674](https://twitter.com/LoremIpsumVerb/status/1510582385401806854)
+
+As soon as the journey to Picoutatte began, Beatrice has been in a state of near-constant rest, conserving her energy as she's unable to receive mana from anyone but Subaru.
+
+She will likely stay like that until they find Subaru in Vollachia.
+
+（29卷虎之穴）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #675](https://twitter.com/LoremIpsumVerb/status/1510995575247941643)
+
+According to the author, the thing which Crusch Karsten is most scared of is the death of someone she is close to.
+
+PS: Made it just in time, today is still Crusch's birthday in Japan, so happy birthday to her!
+
+（18年库珥修生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
