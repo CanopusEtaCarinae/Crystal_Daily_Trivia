@@ -9571,6 +9571,42 @@ PS: Made it just in time, today is still Crusch's birthday in Japan, so happy bi
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #676](https://twitter.com/LoremIpsumVerb/status/1511316229709049858)
+
+A not so uncommon question in the Re: Zero Fandom is whether Patrasche - Subaru's loyal Earth Dragon - will ever take up a human form.
+
+However, the author has denied this several times, saying he absolutely would never have her do so.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：パトラッシュは人化したりとかしないですか？<br/>
+A：絶対にしません。
+</details>
+
+https://twitter.com/nezumiironyanko/status/474591268371062785
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #677](https://twitter.com/LoremIpsumVerb/status/1511674902704754694)
+
+According to the author, if Emilia had to chose names for her children, she would chose something like "Tonnura" if it were a boy, and "Chocholina" if it were a girl.
+
+She doesn't really have a feel for naming things.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エミリアたんは子供の名前、どんな感じのを思いついていたんですか？<br/>
+A：男の子ならトンヌラ。女の子ならチョチョリーナとか付けようとしてました。エミリアたんはセンスもありません。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
