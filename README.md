@@ -9607,6 +9607,19 @@ A：男の子ならトンヌラ。女の子ならチョチョリーナとか付�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #678](https://twitter.com/LoremIpsumVerb/status/1512013552986595332)
+
+According to the author, Felix Argyle's three sizes (Bust, Waist and Hip measurements) are: Flat, Slender and Tiny!
+
+（17年菲利斯生日）
+
+[fc2上的备份](http://rezero.wiki.fc2.com/wiki/twitter%E3%81%BE%E3%81%A8%E3%82%81%202017%20%E3%81%9D%E3%81%AE1)
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
