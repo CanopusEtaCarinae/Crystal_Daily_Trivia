@@ -9621,6 +9621,16 @@ According to the author, Felix Argyle's three sizes (Bust, Waist and Hip measure
 
 ---
 
+#### [Re: Zero Daily Trivia #679](https://twitter.com/LoremIpsumVerb/status/1512456774619701250)
+
+Jorna Mishigure's trademark kiseru is, according to her, a gift from bygone days. This bit of dialogue was added exclusively to Volume 29.
+
+（29卷六章2节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
