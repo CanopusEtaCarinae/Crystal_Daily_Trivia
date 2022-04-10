@@ -42,7 +42,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [501-510](#re-zero-daily-trivia-501) &zwnj; [511-520](#re-zero-daily-trivia-511) &zwnj; [521-530](#re-zero-daily-trivia-521) (21-11) &zwnj; [531-540](#re-zero-daily-trivia-531) &zwnj; [541-550](#re-zero-daily-trivia-541) &zwnj; [551-560](#re-zero-daily-trivia-551) (21-12) &zwnj; [561-570](#re-zero-daily-trivia-561) &zwnj; [572-580](#re-zero-daily-trivia-572) &zwnj; [581-590](#re-zero-daily-trivia-581) (22-01) &zwnj; [591-600](#re-zero-daily-trivia-591)
 
-[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04)
+[601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681)
 
 ---
 
@@ -9626,6 +9626,32 @@ According to the author, Felix Argyle's three sizes (Bust, Waist and Hip measure
 Jorna Mishigure's trademark kiseru is, according to her, a gift from bygone days. This bit of dialogue was added exclusively to Volume 29.
 
 （29卷六章2节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #680](https://twitter.com/LoremIpsumVerb/status/1512863360857034755)
+
+Though perhaps not well known as it lacks an official English translation, Re Zero EX 2 - The Sword Demon Love Song - has a full, official manga called the Shinmeitan manga.
+
+It was serialised in Comic Alive starting from 2018, drawn by Nozaki Tsubata.
+
+（好像单纯就是表达一下恋歌有漫画）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #681](https://twitter.com/LoremIpsumVerb/status/1513141028638937092)
+
+Though well-known that Tappei has written several other Light Novel series, other than Re: Zero, what is less known is that he was a Screenplay Composition Assistant for Pokémon the Movie: The Power of Us.
+
+The movie came out in 2018.
+
+（Ice给了个[日文wikipedia链接](https://ja.wikipedia.org/wiki/%E9%95%B7%E6%9C%88%E9%81%94%E5%B9%B3)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
