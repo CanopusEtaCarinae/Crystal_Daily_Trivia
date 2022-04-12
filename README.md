@@ -9658,6 +9658,29 @@ The movie came out in 2018.
 
 ---
 
+#### [Re: Zero Daily Trivia #682](https://twitter.com/LoremIpsumVerb/status/1513555741063405576)
+
+According to the author, Echidna's favourite words are: "Love", "Dream" and "Hope".
+
+（18年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #683](https://twitter.com/LoremIpsumVerb/status/1513894770665480195)
+
+Today marks the Ten Year Anniversary of the Author of Re: Zero first making his Narou account under the penname "Nezumiironeko"!
+
+Though he would publish Re: Zero a week later, he first published a Short Story called "Another Little Red Riding Hood".
+
+（[小红帽外传](https://ncode.syosetu.com/novelview/infotop/ncode/n9881bd)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
