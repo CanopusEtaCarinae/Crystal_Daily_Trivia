@@ -9681,6 +9681,32 @@ Though he would publish Re: Zero a week later, he first published a Short Story 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #684](https://twitter.com/LoremIpsumVerb/status/1514257747784736776)
+
+According to the author, the biggest trouble Garfiel's Divine Protection brought to him was when he decided to do squats until he became exhausted.
+
+Once he began, he felt fine for an entire week, and couldn't stop until Otto put an end to it.
+
+（17年加菲猫生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #685](https://twitter.com/LoremIpsumVerb/status/1514621198776233986)
+
+Today (15th of April in Japan) is the birthday of Subaru's loyal Earth Dragon - Patrasche! Happy birthday to her!
+
+Patrasche came to the most infamy in the English Community when her name was officially mistranslated as "Patlash" by Yen Press.
+
+（Yen Press官方英译成Patlash）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
