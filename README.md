@@ -9708,6 +9708,20 @@ Patrasche came to the most infamy in the English Community when her name was off
 
 ---
 
+#### [Re: Zero Daily Trivia #686](https://twitter.com/LoremIpsumVerb/status/1514987157957582857)
+
+In Golden Siblings, Frederica found herself in a situation where she was completely naked, chained to an iron bed as prisoner.
+
+This was done to her by Leonardo Baroness, who sought after her Rare Blood.
+
+She was rescued afterwards by Clind.
+
+（Golden Siblings）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
