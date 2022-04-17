@@ -9722,6 +9722,34 @@ She was rescued afterwards by Clind.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #687](https://twitter.com/LoremIpsumVerb/status/1515331339800698881)
+
+In Re: Zero Lost in Memories, the author's favourite card is overwhelmingly bride Emilia, due to its visuals.
+
+Meanwhile, Yusuke Kobayashi's - Subaru's Voice Actor -  picked Sleepwear Ram after the author took Emilia from the equation.
+
+（[LiM新章3采访](https://dengekionline.com/articles/127685/)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #688](https://twitter.com/LoremIpsumVerb/status/1515699086397169671)
+
+Natsuki Subaru has a grip strength of over 70 Kilograms with his dominant hand.
+
+In contrast, the average grip strength for a male under the age of 20 is only said to be about 45 Kilograms.
+
+Meaning Subaru's grip strength is far above average.
+
+（握力出自1卷，[平均数据出处](https://ftp.uws.edu/udocs/public/CSPE_Protocols_and_Care_Pathways/Protocols/Dynamometer_and_Pinch_Gauge.pdf)，Ice这波还挺能延伸）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
