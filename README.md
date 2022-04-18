@@ -2667,6 +2667,7 @@ The fan-art was quickly supplemented by another one of Rem. The original fanarts
 
 https://twitter.com/nanashi111/status/306458580557635584
 <!--多死两次？
+Ex4后记
 https://twitter.com/nezumiironyanko/status/316527276785274880
 非官方来源https://frequ.jp/1893
 https://w.atwiki.jp/aniwotawiki/pages/35051.html
@@ -9745,6 +9746,19 @@ In contrast, the average grip strength for a male under the age of 20 is only sa
 Meaning Subaru's grip strength is far above average.
 
 （握力出自1卷，[平均数据出处](https://ftp.uws.edu/udocs/public/CSPE_Protocols_and_Care_Pathways/Protocols/Dynamometer_and_Pinch_Gauge.pdf)，Ice这波还挺能延伸）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #689](https://twitter.com/LoremIpsumVerb/status/1516052249369354241)
+
+Garfiel has a fondness for objects which are shaped like boxes, in a manner that is inferably typical to cats.
+
+He demonstrated this when he got excited seeing a box-shaped Magicreation Tool while out in Costuul.
+
+（Golden Siblings）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
