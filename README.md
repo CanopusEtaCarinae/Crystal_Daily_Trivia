@@ -9788,6 +9788,19 @@ According to the author, The Crazed Prince - Strongest in the Holy Kingdom of Gu
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+####[Re: Zero Daily Trivia #692](https://twitter.com/LoremIpsumVerb/status/1517116661245128704)
+
+According to the author, Arc Seven is currently only halfway done.
+
+Meaning, that if the Light Novel continues its current adaptation ratio with the Web Novel, Arc Seven could be comprised of eight volumes - the most yet.
+
+（Web十周年问答【待汉化汇总】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
