@@ -9778,7 +9778,7 @@ The author first posted the Prologue on Narou at 21:58, along with 3 further cha
 
 ---
 
-[Re: Zero Daily Trivia #691](https://twitter.com/LoremIpsumVerb/status/1516797798372548608)
+#### [Re: Zero Daily Trivia #691](https://twitter.com/LoremIpsumVerb/status/1516797798372548608)
 
 According to the author, The Crazed Prince - Strongest in the Holy Kingdom of Gusteko - is currently locked up after he killed 15, or 16 of his siblings.
 
@@ -9789,11 +9789,22 @@ According to the author, The Crazed Prince - Strongest in the Holy Kingdom of Gu
 
 ---
 
-####[Re: Zero Daily Trivia #692](https://twitter.com/LoremIpsumVerb/status/1517116661245128704)
+#### [Re: Zero Daily Trivia #692](https://twitter.com/LoremIpsumVerb/status/1517116661245128704)
 
 According to the author, Arc Seven is currently only halfway done.
 
 Meaning, that if the Light Novel continues its current adaptation ratio with the Web Novel, Arc Seven could be comprised of eight volumes - the most yet.
+
+（Web十周年问答【待汉化汇总】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #693](https://twitter.com/LoremIpsumVerb/status/1517472392125493248)
+
+When asked about whether Subaru and Emilia would end up being married to each other, the author told the asker to rest assured, that Re: Zero would have a happy ending.
 
 （Web十周年问答【待汉化汇总】）
 
