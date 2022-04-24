@@ -5755,7 +5755,7 @@ Marcos Gildark possesses a trump card known as "Rock Armour", that allows him to
 <details>
 <summary>（青之继承者，三米的设定仅出现于杂志版，短篇集5未写出）</summary>
 
-![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/images/422-3m.png)
+![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/422-3m.png)
 </details>
 
 [Return to Content](#Content)<br/>
@@ -9816,6 +9816,17 @@ When asked about whether Subaru and Emilia would end up being married to each ot
 #### [Re: Zero Daily Trivia #694](https://twitter.com/LoremIpsumVerb/status/1517838401684361217)
 
 According to the author, the most important arcs of Re: Zero are: Arc One, and the final Arc, Arc Eleven.
+
+（Web十周年问答【待汉化汇总】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #695](https://twitter.com/LoremIpsumVerb/status/1518209197443366917)
+
+According to Tappei, the Witch Cult wasn't a bad organisation originally. However, due to changes at the top and the many wicked ideas of those who joined, its activities became warped.
 
 （Web十周年问答【待汉化汇总】）
 
