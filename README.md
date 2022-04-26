@@ -9782,7 +9782,7 @@ The author first posted the Prologue on Narou at 21:58, along with 3 further cha
 
 According to the author, The Crazed Prince - Strongest in the Holy Kingdom of Gusteko - is currently locked up after he killed 15, or 16 of his siblings.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9795,7 +9795,7 @@ According to the author, Arc Seven is currently only halfway done.
 
 Meaning, that if the Light Novel continues its current adaptation ratio with the Web Novel, Arc Seven could be comprised of eight volumes - the most yet.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9806,7 +9806,7 @@ Meaning, that if the Light Novel continues its current adaptation ratio with the
 
 When asked about whether Subaru and Emilia would end up being married to each other, the author told the asker to rest assured, that Re: Zero would have a happy ending.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9817,7 +9817,7 @@ When asked about whether Subaru and Emilia would end up being married to each ot
 
 According to the author, the most important arcs of Re: Zero are: Arc One, and the final Arc, Arc Eleven.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9828,7 +9828,7 @@ According to the author, the most important arcs of Re: Zero are: Arc One, and t
 
 According to Tappei, the Witch Cult wasn't a bad organisation originally. However, due to changes at the top and the many wicked ideas of those who joined, its activities became warped.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9841,7 +9841,20 @@ From Arc Six, the author's favourite chapter titles are: "Good Loser" and "Shaul
 
 For Shaula's named chapter, he also thought "Tomorrow's Tomorrow" would have made a good title, but he ultimately ended up going with her name.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #697](https://twitter.com/LoremIpsumVerb/status/1518934291215958023)
+
+Frederica has "rare blood" - blood that is said to react strongly to mana and even captivate dragons.
+
+However, Tappei implied that someone else who has rare blood exists and has already met Subaru in the main story. It's unknown who this is.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。此汇总的[来源](https://twitter.com/yumito_Re/status/1516796572993867780)对应问题未提到486，大概要等以后更详细的资源】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
