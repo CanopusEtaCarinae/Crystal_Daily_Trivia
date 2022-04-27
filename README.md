@@ -9860,6 +9860,19 @@ However, Tappei implied that someone else who has rare blood exists and has alre
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #698](https://twitter.com/LoremIpsumVerb/status/1519300614303408131)
+
+When asked whether Liliana Masquerade and Archi Elior would be active again in the future, the author replied that Liliana would be, though perhaps not as much as she was in Arc Five.
+
+Whereas, with Archi, the author said it was a spoiler.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
