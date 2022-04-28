@@ -9873,6 +9873,19 @@ Whereas, with Archi, the author said it was a spoiler.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #699](https://twitter.com/LoremIpsumVerb/status/1519671830843437056)
+
+According to the author, in Mimagau IF Fembaru's boobs weren't that big.
+
+In addition, when asked about what the names of the people from the Roswaal Mansion would be, the author said to look forward to Mimagau's Arc 2!
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
