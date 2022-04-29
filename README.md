@@ -9886,6 +9886,10 @@ In addition, when asked about what the names of the people from the Roswaal Mans
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [#700 七百条纪念](https://twitter.com/LoremIpsumVerb/status/1520027748349136896)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
