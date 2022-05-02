@@ -44,6 +44,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
+[701-710](#re-zero-daily-trivia-601) (22-05)
+
 ---
 
 #### [Re: Zero Daily Trivia #1](https://twitter.com/LoremIpsumVerb/status/1266327774425427968)
@@ -9888,6 +9890,45 @@ In addition, when asked about what the names of the people from the Roswaal Mans
 ---
 
 #### [#700 七百条纪念](https://twitter.com/LoremIpsumVerb/status/1520027748349136896)
+
+---
+
+#### [Re: Zero Daily Trivia #701](https://twitter.com/LoremIpsumVerb/status/1520401768202526720)
+
+The Re: Zero Web Novel saw its most views in July 2016, with a total of over 33 million page views, with over 2.3 million of them unique.
+
+The most of which (~1.7 million) came on the 18th of July, after the episode "The Greed of a Pig" aired.
+
+（[没见过的统计页面](https://kasasagi.hinaproject.com/access/monthpv/ncode/n2267be/)，不明觉厉）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #702](https://twitter.com/LoremIpsumVerb/status/1520761595198070786)
+
+(2022-05-01)
+
+When asked if there is a branching point where Emilia and Subaru would be married together and have children, just like Natsuki Rem in the IF Route, the author replied that there is. That there definitely is.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】。[本条有专门截取录音](https://vocaroo.com/1cF4bdzLXpmf)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #703](https://twitter.com/LoremIpsumVerb/status/1521114840638668800)
+
+When asked whether there'd be any possibilities for future side stories featuring the dead Sin Archbishops, the author replied that there wouldn't be.
+
+That is namely because he isn't confident he can write any good stories about them.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---
 <!-- Other notes:
