@@ -44,7 +44,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-601) (22-05)
+[701-710](#re-zero-daily-trivia-701) (22-05)
 
 ---
 
@@ -9926,6 +9926,19 @@ When asked whether there'd be any possibilities for future side stories featurin
 That is namely because he isn't confident he can write any good stories about them.
 
 （Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #704](https://twitter.com/LoremIpsumVerb/status/1521478490419257345)
+
+According to Tappei in the 10 Year Anniversary Space, there are only seven Witch Factors, which generally can't be split, Gluttony being a special case.
+
+However, this has caused major stir as this information is contradicted in the novels.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】。Ice另思考了与三章及二期BD全卷剧情的关系）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
