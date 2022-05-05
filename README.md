@@ -9945,6 +9945,18 @@ However, this has caused major stir as this information is contradicted in the n
 
 ---
 
+#### [Re: Zero Daily Trivia #705](https://twitter.com/LoremIpsumVerb/status/1521921501729112066)
+
+The author has expressed that he does not think he is the type who wants to see a live action adaptation for Re: Zero.
+
+Namely, because he doesn't think it's possible to capture Emilia's cuteness in live action.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】。Ice另思考了与三章及二期BD全卷剧情的关系）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
