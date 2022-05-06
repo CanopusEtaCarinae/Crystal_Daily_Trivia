@@ -9951,7 +9951,20 @@ The author has expressed that he does not think he is the type who wants to see 
 
 Namely, because he doesn't think it's possible to capture Emilia's cuteness in live action.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】。Ice另思考了与三章及二期BD全卷剧情的关系）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #706](https://twitter.com/LoremIpsumVerb/status/1522300481229377536)
+
+When it comes to talent for art among members of the Emilia Camp, the author would rank them as such:
+
+Roswaal > Ram > Otto > Subaru >>> Emilia.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
