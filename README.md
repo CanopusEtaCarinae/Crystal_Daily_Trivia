@@ -9983,6 +9983,17 @@ Since then, the author has said the pochette likely contains snacks for Emilia.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #708](https://twitter.com/LoremIpsumVerb/status/1522953536316841985)
+
+According to the author, the chances of *all* the Witches coming back to life is pretty low.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
