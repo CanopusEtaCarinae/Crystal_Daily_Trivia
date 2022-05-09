@@ -9994,6 +9994,31 @@ According to the author, the chances of *all* the Witches coming back to life is
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #709](https://twitter.com/LoremIpsumVerb/status/1523305301285478405)
+
+When asked if yandere Emilia would come back at some point in the story, the author replied saying that after Arc Four, Emilia was pretty mentally stable, so he did not think "Mindbroken Emilia" would be showing up again.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #710](https://twitter.com/LoremIpsumVerb/status/1523671013250441221)
+
+According to the author, Rem will receive another named chapter to go along with the one she got in Arc Two. He stated this as early as February 2013.
+
+This fact was confirmed again recently, during the the ten year anniversary space.
+
+（13年推文：https://twitter.com/nezumiironyanko/status/297334266017243136<br/>
+Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
