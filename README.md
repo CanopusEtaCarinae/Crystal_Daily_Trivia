@@ -44,7 +44,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-701) (22-05)
+[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711)
 
 ---
 
@@ -10014,6 +10014,20 @@ This fact was confirmed again recently, during the the ten year anniversary spac
 
 （13年推文：https://twitter.com/nezumiironyanko/status/297334266017243136<br/>
 Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #711](https://twitter.com/LoremIpsumVerb/status/1524026721065967618)
+
+According to the author, Beatrice's birthday is a spoiler which will be revealed in the final arc.
+
+For now, if fans want to celebrate it, the author has suggested to do so on March 17th, as that was the day "Choose Me" broadcasted.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[原推](https://twitter.com/yumito_Re/status/1516796572993867780)】）
+<!--贝蒂生日 https://twitter.com/nezumiironyanko/status/860576425048285184-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
