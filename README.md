@@ -9869,7 +9869,7 @@ When asked whether Liliana Masquerade and Archi Elior would be active again in t
 
 Whereas, with Archi, the author said it was a spoiler.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)，[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10039,6 +10039,19 @@ For now, if fans want to celebrate it, the author has suggested to do so on Marc
 According to the author, the first Vollachian Emperor was a tyrant who was friends with none other than Reid Astrea.
 
 The author may write about this time period 400 years ago sometime in the future, in which he might show up.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #713](https://twitter.com/LoremIpsumVerb/status/1524759961947058177)
+
+According to the author, his favourite chapter in the story is the one where Emilia and Subaru quarrel.
+
+It's unclear if he is referring to the quarrel from Arc 3 or Arc 4 with his answer, or both.
 
 （Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
 
