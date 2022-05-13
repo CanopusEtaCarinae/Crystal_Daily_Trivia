@@ -10059,6 +10059,17 @@ It's unclear if he is referring to the quarrel from Arc 3 or Arc 4 with his answ
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #714](https://twitter.com/LoremIpsumVerb/status/1525115442054017024)
+
+According to the author, his favourite line in the entirety  of Re: Zero so far is: "Choose Me".
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
