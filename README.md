@@ -4,7 +4,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。
 
-（注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故出处待定的也就到此条为止了）
+（注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故大部分出处在此后就不必再待定。然而在小说十周年语音问答中仍有部分出处因资源不全待定，会再特别注明）
 
 <details>
 <summary>【出处待完善】</summary>
@@ -23,6 +23,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
 
+十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
 </details>
 
@@ -10065,6 +10066,19 @@ It's unclear if he is referring to the quarrel from Arc 3 or Arc 4 with his answ
 According to the author, his favourite line in the entirety  of Re: Zero so far is: "Choose Me".
 
 （Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #715](https://twitter.com/LoremIpsumVerb/status/1525469397854322691)
+
+The author of Re: Zero, Nagatsuki Tappei, has been writing novels since around the age of 15.
+
+Meaning, that as of now, he has been writing novels for just over 20 years. An impressive feat!
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。Ice虽提到长月15岁起写小说是十周年问答提到，但此汇总的来源（即上面提过的两个版本的推文汇总[[1]](https://twitter.com/yumito_Re/status/1516796572993867780)[[2]](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)）并未收录此条，大概要等以后更详细的资源】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
