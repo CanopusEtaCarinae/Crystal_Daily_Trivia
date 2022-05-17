@@ -10097,6 +10097,34 @@ As for the rest of the title, currently, he claimed that he doesn't really remem
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #717](https://twitter.com/LoremIpsumVerb/status/1526285292172369922)
+
+Today, May 17th in Japan, is Heinkel Astrea's birthday! Happy Birthday Heinkel!
+
+After Louanna fell into her Sleeping Beauty condition, Heinkel would sleep on the floor rather than the bed in his own room, since his slumbering wife lay in it.
+
+（生日在十周年问答公布，睡地板出自Once Upon a Time in Lugunica）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #718](https://twitter.com/LoremIpsumVerb/status/1526557215322214406)
+
+When asked in 2014 about whether Subaru would marry Emilia and become royalty if she were to win the selection and become king, the author replied that to begin with, he didn't know whether Emilia would take Subaru as her husband.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：物語がどんな終わりを迎えるかわかりませんが、もしこのままエミリアが王様になったらスバルの立ち位置とか役目ってどうなるのですか？エミリアと結婚して王族？近衛騎士に就職？それとも使用人根性が抜けなくて今と変わらなかったり？<br/>
+A：まず、エミリアたんがスバルを婿にしてくれるかがわからない。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
