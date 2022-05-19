@@ -10126,6 +10126,31 @@ A：まず、エミリアたんがスバルを婿にしてくれるかがわか�
 
 ---
 
+#### [Re: Zero Daily Trivia #719](https://twitter.com/LoremIpsumVerb/status/1526971548439040000)
+
+According to Tappei, Reinhard's Blessing of the Phoenix won't activate if his soul is destroyed when killed.
+
+Meaning, if the Life Sword was used against him, there'd perhaps be a chance to kill him, though likely a Blessing to counter it would pop up
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #720](https://twitter.com/LoremIpsumVerb/status/1527270113388466176)
+
+Aldebaran has a specific type of amnesia where he lacks episodic memories of himself.
+
+In the Web Novel, Al felt like he'd been saved by Subaru being there, reaffirming that his earth memories were real and not because he'd gone crazy.
+
+Ice所用出处就是类似的一条[#271](#re-zero-daily-trivia-271)那里也提到过的Web三章13，没有提到其他问答了
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
