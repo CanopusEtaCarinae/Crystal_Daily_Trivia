@@ -45,7 +45,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711)
+[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721)
 
 ---
 
@@ -10146,6 +10146,19 @@ Aldebaran has a specific type of amnesia where he lacks episodic memories of him
 In the Web Novel, Al felt like he'd been saved by Subaru being there, reaffirming that his earth memories were real and not because he'd gone crazy.
 
 Ice所用出处就是类似的一条[#271](#re-zero-daily-trivia-271)那里也提到过的Web三章13，没有提到其他问答了
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #721](https://twitter.com/LoremIpsumVerb/status/1527643207009554433)
+
+Throughout all of Re: Zero so far, Echidna has NEVER called Emilia by her name.
+
+The only instance where it happened was by accident in the Web Novel of Kasaneru, however, this was fixed in the Light Novel version.
+
+（强欲if文库修正了？回头也得验证一眼）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
