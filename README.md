@@ -10164,6 +10164,19 @@ The only instance where it happened was by accident in the Web Novel of Kasaneru
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #722](https://twitter.com/LoremIpsumVerb/status/1527985569195778052)
+
+According to the author, Emilia is the type who forgets her own birthday, but not that of other people.
+
+Thus, others surprise her with a surprise party, making her realise its her birthday, to which, she would feel delighted.
+
+（15年EMT生日推文回复：https://twitter.com/nezumiironyanko/status/647070088160411648。不知道Ice在底下为什么回复说17年了……）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
