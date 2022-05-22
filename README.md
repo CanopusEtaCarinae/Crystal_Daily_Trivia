@@ -10171,7 +10171,20 @@ According to the author, Emilia is the type who forgets her own birthday, but no
 
 Thus, others surprise her with a surprise party, making her realise its her birthday, to which, she would feel delighted.
 
-（15年EMT生日推文回复：https://twitter.com/nezumiironyanko/status/647070088160411648。不知道Ice在底下为什么回复说17年了……）
+（15年EMT生日推文回复：https://twitter.com/nezumiironyanko/status/647070088160411648）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #723](https://twitter.com/LoremIpsumVerb/status/1528353335593603075)
+
+Over 400 years ago, Echidna was renown as the Witch of Wisdom rather than the Witch of Greed.
+
+Her reputation and beauty was so famed, that she was even sometimes asked by the King of a country that he'd take her as his favourite concubine.
+
+（二期BD全卷特典 强欲IF）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
