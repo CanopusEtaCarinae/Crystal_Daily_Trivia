@@ -10201,6 +10201,17 @@ Emilia claims she can eat just about anything, however, the one item of food she
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #725](https://twitter.com/LoremIpsumVerb/status/1529077639532650496)
+
+When asked whether Subaru could ever go back to his original world again, the author replied that he wasn't sure - not because it was a spoiler or anything - but because he really didn't know whether it was possible.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -10280,5 +10291,7 @@ https://twitter.com/nezumiironyanko/status/843489782328057858
 死归 五秒前 https://twitter.com/nezumiironyanko/status/347923782024970241
 
 贝蒂生日 https://twitter.com/nezumiironyanko/status/860576425048285184
+
+if 大罪 trivia 89
 
 -->
