@@ -10213,6 +10213,37 @@ When asked whether Subaru could ever go back to his original world again, the au
 
 ---
 
+#### [Re: Zero Daily Trivia #726](https://twitter.com/LoremIpsumVerb/status/1529570150109806593)
+
+According to Tappei, if Subaru takes in all the Witch Factors (Sloth, Wrath, Gluttony, Lust, Greed, Pride & Envy), he becomes a being that contains all desires. i.e. "Human".
+
+He likened it to someone eating a Human-Human Fruit from One Piece.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：魔女因子って一個しか取り込めないのですか？複数可なら「スバル×すべての魔女因子＝？」とした場合、？には何が入るのですか？<br/>
+A：怠惰、憤怒、暴食、色欲、強欲、傲慢、嫉妬の全ての因子を取り込み、ナツキ・スバルはあらゆる欲望を内包した存在――すなわち、『人間』になる！！ヒトヒトの実を人が食べたみたいな結果に落ち着きそう。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #727](https://twitter.com/LoremIpsumVerb/status/1529807312659038209)
+
+When asked about which order the Royal Candidate Camps would be active in the story, the author replied as such.
+
+Currently, in Arc 7, Priscilla's Camp is active, then perhaps he said the order would be:
+
+Felt Camp > Crusch Camp > All Camps.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
