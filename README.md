@@ -10268,6 +10268,10 @@ According to the author, Emilia is the type to enthusiastically always use rock 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [#730 两周年纪念](https://twitter.com/LoremIpsumVerb/status/1530913699350855681)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
