@@ -45,7 +45,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721)
+[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731)
 
 ---
 
@@ -10270,6 +10270,19 @@ According to the author, Emilia is the type to enthusiastically always use rock 
 ---
 
 #### [#730 两周年纪念](https://twitter.com/LoremIpsumVerb/status/1530913699350855681)
+
+---
+
+#### [Re: Zero Daily Trivia #731](https://twitter.com/LoremIpsumVerb/status/1531261195486887936)
+
+Though known that Re: Zero has several official games, what's less known is that the first one was Re: Zero - DEATH OR KISS -
+
+The game features the Beauty Queen Royal Selection, where Subaru has to break a curse by kissing the girls involved.
+
+（PS2/PSV 游戏Death or Kiss）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---
 <!-- Other notes:
