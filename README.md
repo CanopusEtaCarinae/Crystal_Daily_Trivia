@@ -10285,6 +10285,19 @@ The game features the Beauty Queen Royal Selection, where Subaru has to break a 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #732](https://twitter.com/LoremIpsumVerb/status/1531624841358581760)
+
+The author has mentioned before that he would like to see some of the IF Routes animated.
+
+However, he said it would be difficult, and at this point in time, only Kasaneru IF would be possible, if it were to happen.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
