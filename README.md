@@ -10298,6 +10298,19 @@ However, he said it would be difficult, and at this point in time, only Kasaneru
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #733](https://twitter.com/LoremIpsumVerb/status/1532004479893229570)
+
+The reason Emilia cut her hair short in Kasaneru IF remains unknown.
+
+Subaru speculated it could be because she was trying to attract his attention or trying to make it easier to do her getup, or maybe she was trying to look more like Rem.
+
+（二期BD全卷特典 强欲IF。486猜测原因为特典加笔）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
