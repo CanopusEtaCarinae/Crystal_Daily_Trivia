@@ -10311,6 +10311,19 @@ Subaru speculated it could be because she was trying to attract his attention or
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #734](https://twitter.com/LoremIpsumVerb/status/1532365046688493569)
+
+According to Echidna, the oldest and most rational among the Witches is none other than the Witch of Sloth Sekhmet.
+
+However, when she gets angry, she really doesn't do it half-baked, making her no match for the other Witches bar envy.
+
+（Web四章12节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
