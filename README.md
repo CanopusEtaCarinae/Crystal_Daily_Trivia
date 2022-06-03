@@ -10324,6 +10324,17 @@ However, when she gets angry, she really doesn't do it half-baked, making her no
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #735](https://twitter.com/LoremIpsumVerb/status/1532743007665016834)
+
+Though not officially licensed, the Re: Zero Tanpenshuu (Short Story Collection) series already sports a vast array of Fan Translations with the stark majority of the stories within already translated.
+
+（这个大概是讲短篇集英肉的事。Ice在出处里也给的是[WCT](https://witchculttranslation.com/side-content-updated)的非正篇翻译进度）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
