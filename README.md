@@ -10336,6 +10336,18 @@ Though not officially licensed, the Re: Zero Tanpenshuu (Short Story Collection)
 
 ---
 
+#### [Re: Zero Daily Trivia #736](https://twitter.com/LoremIpsumVerb/status/1533110694865997825)
+
+According to the author, Wilhelm would die both in a good and bad way if he knew that it was love at first sight for both him and Theresia.
+
+Namely because he never thought they were interested in each other from the start.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
