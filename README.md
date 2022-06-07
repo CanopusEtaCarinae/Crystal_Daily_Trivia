@@ -10348,6 +10348,32 @@ Namely because he never thought they were interested in each other from the star
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #737](https://twitter.com/LoremIpsumVerb/status/1533485445492969472)
+
+According to Tappei, if Subaru becomes Beatrice's "That Person", Beatrice would become his puppet and do everything he told her to.
+
+Tappei considered going down that route in Oboreru IF but instead gave her the end seen in the route.
+
+（愤怒IF+补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #738](https://twitter.com/LoremIpsumVerb/status/1533851280535433216)
+
+After the end of Oboreru IF, Emilia rushed over to Subaru's corpse after he was killed by Ram.
+
+Even the author said he truly doesn't know what happened after, in regards to whether she ended up killing Ram or suiciding due to Subaru's death.
+
+（愤怒IF+补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
