@@ -10374,6 +10374,30 @@ Even the author said he truly doesn't know what happened after, in regards to wh
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #739](https://twitter.com/LoremIpsumVerb/status/1534214474080702464)
+
+According to the author, Subaru dying at the end of Ayamatsu IF is said to be the only time in the story where he died happily, without any feelings of guilt.
+
+（傲慢IF+补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #740](https://twitter.com/LoremIpsumVerb/status/1534548030623449088)
+
+Despite their relationship in the main series, in the Re: Zero Academy IF (School IF), Emilia is unable to hear her pet cat - Puck's voice.
+
+The only one in the IF who is able to hear it and communicate with him is Subaru.
+
+（学园篇3，4）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
