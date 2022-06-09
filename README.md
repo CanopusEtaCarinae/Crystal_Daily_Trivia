@@ -10398,6 +10398,7 @@ The only one in the IF who is able to hear it and communicate with him is Subaru
 [Return to top](#crystals-daily-trivias)
 
 ---
+
 <!-- Other notes:
 
 莱傲天视角避免
