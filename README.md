@@ -45,7 +45,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731)
+[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741)
 
 ---
 
@@ -10301,6 +10301,8 @@ However, he said it would be difficult, and at this point in time, only Kasaneru
 
 #### [Re: Zero Daily Trivia #733](https://twitter.com/LoremIpsumVerb/status/1532004479893229570)
 
+(2022-06-01)
+
 The reason Emilia cut her hair short in Kasaneru IF remains unknown.
 
 Subaru speculated it could be because she was trying to attract his attention or trying to make it easier to do her getup, or maybe she was trying to look more like Rem.
@@ -10399,6 +10401,18 @@ The only one in the IF who is able to hear it and communicate with him is Subaru
 
 ---
 
+#### [Re: Zero Daily Trivia #741](https://twitter.com/LoremIpsumVerb/status/1534917404664414208)
+
+Though vaguely depicted, the start of Oboreru IF shows Ram pursuing Subaru along the Gustekan border and strangling him, almost killing him.
+
+However, she runs out of mana just before she can, and that was what led to Subaru kidnapping her.
+
+（愤怒IF+补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
