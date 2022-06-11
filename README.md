@@ -10413,6 +10413,32 @@ However, she runs out of mana just before she can, and that was what led to Suba
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #742](https://twitter.com/LoremIpsumVerb/status/1532004479893229570)
+
+Alec Hoshin, also known as Hoshin of the Wastes, was originally a hermit, who lived a life of loneliness.
+
+Had he not been found by Satella, he would have died a wretched death, having once attempted to take his own life.
+
+（异世界四重奏剧场版特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #743](https://twitter.com/LoremIpsumVerb/status/1535616712204230662)
+
+According to the author, even Reinhard, strongest in Re: Zero, cannot beat Ainz from Overlord if they were to battle.
+
+Even if compensated in ability, likely no one in Isekai Quartet would be able to beat the characters from Overlord
+
+（异世界四重奏剧场版采访【资源待定】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
