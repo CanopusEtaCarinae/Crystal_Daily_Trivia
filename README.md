@@ -10439,6 +10439,7 @@ Even if compensated in ability, likely no one in Isekai Quartet would be able to
 [Return to top](#crystals-daily-trivias)
 
 ---
+
 <!-- Other notes:
 
 莱傲天视角避免
