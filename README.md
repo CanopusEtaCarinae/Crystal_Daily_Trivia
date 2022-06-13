@@ -4107,6 +4107,7 @@ Roswaal: Sage
 Subaru: Gadabout
 
 （18年骡子生日）
+<!--另：https://twitter.com/nezumiironyanko/status/879746401348993025 -->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10440,6 +10441,29 @@ Even if compensated in ability, likely no one in Isekai Quartet would be able to
 
 ---
 
+#### [Re: Zero Daily Trivia #744](https://twitter.com/LoremIpsumVerb/status/1535992365491666944)
+
+The author, along with the director of Isekai Quartet, confirmed in an interview that Alec Hoshin's name is a pun based on the Japanese word for "wasteland".
+
+荒れ地 (Wasteland) is pronounced as Arechi. Alec is pronounced as Areku.
+
+（异世界四重奏剧场版采访【资源待定，据Ice说在附赠小册子中】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #745](https://twitter.com/LoremIpsumVerb/status/1536323949528760321)
+
+Despite having eight husbands in the past by the age of 18, starting with Jorah Pendleton, and ending with Leip Barielle, Priscilla Barielle is still a virgin.
+
+（放弃追随者之日？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -10521,5 +10545,7 @@ https://twitter.com/nezumiironyanko/status/843489782328057858
 贝蒂生日 https://twitter.com/nezumiironyanko/status/860576425048285184
 
 if 大罪 trivia 89
+
+RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
 
 -->
