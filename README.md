@@ -10464,6 +10464,19 @@ Despite having eight husbands in the past by the age of 18, starting with Jorah 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #746](https://twitter.com/LoremIpsumVerb/status/1536700656903507968)
+
+The flower garden where Subaru and Emilia had their first date at was actually the key visual used to advertise Re: Zero's OVA: Memory Snow.
+
+Their date was actually fully animated, but only shown on specific slot machines in Japan.
+
+（[老贼推文](https://twitter.com/nezumiironyanko/status/1227614990779072512)，[柏青哥视频](https://www.youtube.com/watch?v=6Z0Lqf9F9Hw)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
