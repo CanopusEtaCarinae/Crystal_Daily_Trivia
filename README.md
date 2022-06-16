@@ -10477,6 +10477,32 @@ Their date was actually fully animated, but only shown on specific slot machines
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #747](https://twitter.com/LoremIpsumVerb/status/1537133949134295046)
+
+Hoshin's Mark, which depicts the Katakana letter "ホ" (Ho), can be found emblazoned on apparel belonging to members of the Hoshin Trading Company
+
+The mark was first depicted on Alec Hoshin's cane, a gift to him from Farsale Lugunica
+
+（异世界四重奏剧场版特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #748](https://twitter.com/LoremIpsumVerb/status/1537379871546040322)
+
+Back in 2013, the author stated that the final boss of Re: Zero had the words: "Why must love fade?" planned as dialogue.
+
+Naturally, those words were later said by Echidna in the story; it's unknown if she got those words from someone else.
+
+https://twitter.com/nezumiironyanko/status/362197424720199680
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -10560,5 +10586,7 @@ https://twitter.com/nezumiironyanko/status/843489782328057858
 if 大罪 trivia 89
 
 RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
+
+咚 解释https://twitter.com/nezumiironyanko/status/835500824608415746
 
 -->
