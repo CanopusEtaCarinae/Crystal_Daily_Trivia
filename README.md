@@ -10503,6 +10503,21 @@ https://twitter.com/nezumiironyanko/status/362197424720199680
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #749](https://twitter.com/LoremIpsumVerb/status/1537719646601859073)
+
+Emilia has a specific speech quirk where she pronounces the word sugoku (really) as sugooku (reaaally).
+
+She got this trait from Fortuna, her aunt, who later became her adoptive mom.
+
+It's unknown who Fortuna got it from.
+
+（Web四章99，文库14卷一章3节。【四重奏剧场版据说Hoshin也有？待定】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
