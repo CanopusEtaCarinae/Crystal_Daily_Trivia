@@ -10518,6 +10518,19 @@ It's unknown who Fortuna got it from.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #750](https://twitter.com/LoremIpsumVerb/status/1538066144912887808)
+
+According to Tappei in a rare 2015 interview, the idea of having Subaru loop was NOT part of his first story concept.
+
+Return by Death was added after he talked to his friend about having the incompetent protagonist try and help the heroine.
+
+（2015年采访，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538066694387781632)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
