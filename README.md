@@ -45,7 +45,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741)
+[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751)
 
 ---
 
@@ -10526,6 +10526,19 @@ According to Tappei in a rare 2015 interview, the idea of having Subaru loop was
 Return by Death was added after he talked to his friend about having the incompetent protagonist try and help the heroine.
 
 （2015年采访，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538066694387781632)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #751](https://twitter.com/LoremIpsumVerb/status/1538469712702619651)
+
+According to the author, inspiration for Subaru's character development came from Popp from Dragon Quest: The Adventure of Dai.
+
+Popp's development from being cowardly is something which he claimed was definitely reflected in Subaru.
+
+（2015年采访，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538469863936733184)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
