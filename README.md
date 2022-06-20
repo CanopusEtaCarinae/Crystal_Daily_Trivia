@@ -10434,7 +10434,7 @@ According to the author, even Reinhard, strongest in Re: Zero, cannot beat Ainz 
 
 Even if compensated in ability, likely no one in Isekai Quartet would be able to beat the characters from Overlord
 
-（异世界四重奏剧场版采访【资源待定】）
+（异世界四重奏剧场版采访〔特典小册〕）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10447,7 +10447,7 @@ The author, along with the director of Isekai Quartet, confirmed in an interview
 
 荒れ地 (Wasteland) is pronounced as Arechi. Alec is pronounced as Areku.
 
-（异世界四重奏剧场版采访【资源待定，据Ice说在附赠小册子中】）
+（异世界四重奏剧场版采访〔特典小册〕）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10525,7 +10525,7 @@ According to Tappei in a rare 2015 interview, the idea of having Subaru loop was
 
 Return by Death was added after he talked to his friend about having the incompetent protagonist try and help the heroine.
 
-（2015年采访，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538066694387781632)）
+（2015年采访〔[2015]このWeb小説がすご——長月達平インタビュー〕 ，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538066694387781632)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10538,7 +10538,20 @@ According to the author, inspiration for Subaru's character development came fro
 
 Popp's development from being cowardly is something which he claimed was definitely reflected in Subaru.
 
-（2015年采访，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538469863936733184)）
+（2015年采访〔[2015]このWeb小説がすご——長月達平インタビュー〕，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538469863936733184)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #752](https://twitter.com/LoremIpsumVerb/status/1538809470351986689)
+
+According to the author in a 2015 interview, YuYu Hakusho, originally by Togashi Yoshiro (creator of Hunter x Hunter), was the very first Anime he watched.
+
+He listed it as being an Anime that influences his writings in Re: Zero.
+
+（2015年采访〔[2015]このWeb小説がすご——長月達平インタビュー〕，完整资源待译，[此处出处](https://twitter.com/LoremIpsumVerb/status/1538809550823890945)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
