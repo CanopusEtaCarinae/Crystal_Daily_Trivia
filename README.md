@@ -10557,6 +10557,19 @@ He listed it as being an Anime that influences his writings in Re: Zero.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #753](https://twitter.com/LoremIpsumVerb/status/1539196843149692932)
+
+According to the author, Reinhard van Astrea has a Divine Protection that allows him to break down alcohol. Meaning he can't get drunk, even if he wanted to.
+
+Meanwhile, although he doesn't drink much, Julius owns a lot of fine wine.
+
+（OVA1特典小册访谈）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
