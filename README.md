@@ -10570,6 +10570,23 @@ Meanwhile, although he doesn't drink much, Julius owns a lot of fine wine.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #754](https://twitter.com/LoremIpsumVerb/status/1539573223712587777)
+
+In the first ever Re: Zero character popularity poll, conducted at an autograph session in 2014, the top 5 were:
+
+Rem - 18 Votes
+Emilia - 14 Votes
+Beatrice - 12 Votes
+Wilhelm - 10 Votes
+Tappei - 4 Votes
+
+（[投票相关推文搜索结果](https://twitter.com/search?q=from%3ARezero_official%20since%3A2014-7-1%20%20until%3A2014-7-5&src=typed_query&f=live)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
