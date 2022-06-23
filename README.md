@@ -10564,7 +10564,7 @@ According to the author, Reinhard van Astrea has a Divine Protection that allows
 
 Meanwhile, although he doesn't drink much, Julius owns a lot of fine wine.
 
-（OVA1特典小册访谈）
+（OVA1特典小册访谈） <!--资料集-> 映画-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10582,6 +10582,21 @@ Wilhelm - 10 Votes
 Tappei - 4 Votes
 
 （[投票相关推文搜索结果](https://twitter.com/search?q=from%3ARezero_official%20since%3A2014-7-1%20%20until%3A2014-7-5&src=typed_query&f=live)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #755](https://twitter.com/LoremIpsumVerb/)
+
+According to its screenwriter, the Bond of Ice OVA initially had another original part planned for its middle.
+
+It would have been another scene depicting the Snow Festival, with everyone building snow huts, and Subaru and Rem chatting with each other.
+
+However, it was decided it would be cut, as it wouldn't have really meshed well with the serious tone of the story.
+
+（OVA2特典小册访谈） <!--资料集-> 映画-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
