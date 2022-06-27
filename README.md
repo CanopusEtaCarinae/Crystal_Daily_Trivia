@@ -10602,6 +10602,52 @@ However, it was decided it would be cut, as it wouldn't have really meshed well 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #756](https://twitter.com/LoremIpsumVerb/status/1540291639901671424)
+
+Unbeknownst to many now, in 2017 the founder of Oculus - Palmer Luckey - attempted to fund an Anime adaptation for Rem IF.
+
+He updated in 2020 that he was still trying to make it happen, but was a lot more difficult than he originally expected.
+
+https://twitter.com/PalmerLuckey/status/867882483638980609 <br/>
+【[这个图的来源网址暂时不晓得](https://twitter.com/LoremIpsumVerb/status/1540291810966360065/photo/2)】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+Re: Zero Daily Trivia #757
+
+According to the author, his favourite chapter titles before Arc 5 are:
+
+- Arc 1, Ch. 22: Starting Life in Another World from Zero<br/>
+- Arc 3, Ch. 84: That's All This Story Is About<br/>
+- Arc 4, Ch. 126: Attack of Guiltilaw, Ebony King of the Forest!
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：お気に入りのサブタイはなんですかー？<br/>
+A：『ゼロから始まる異世界生活』『ただそれだけの物語』『森の漆黒の王、ギルティラウの襲撃！』あたりは好きです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #758](https://twitter.com/LoremIpsumVerb/status/1541011048098136065)
+
+According to the author, Reinhard has been able to use mana to make himself stronger ever since he was born.
+
+He has also answered that it was a spoiler whether there will be any situations where he will become unable to do so.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -10638,7 +10684,7 @@ https://docs.google.com/document/d/1Cm_tWVacTStjqwiuOy1HZceV1uPMZxKifnqpT3jWpJY/
 
 红蝎 https://twitter.com/LoremIpsumVerb/status/1301211591397068800
 
-魔女强度https://twitter.com/nezumiironyanko/status/341516699889172481
+魔女强度排名https://twitter.com/nezumiironyanko/status/341516699889172481
 
 多娜台词 https://twitter.com/nezumiironyanko/status/362197424720199680
 
