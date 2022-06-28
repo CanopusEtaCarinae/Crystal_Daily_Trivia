@@ -10617,7 +10617,7 @@ https://twitter.com/PalmerLuckey/status/867882483638980609 <br/>
 
 ---
 
-Re: Zero Daily Trivia #757
+#### [Re: Zero Daily Trivia #757](https://twitter.com/LoremIpsumVerb/status/1540656361780002816)
 
 According to the author, his favourite chapter titles before Arc 5 are:
 
@@ -10643,6 +10643,32 @@ According to the author, Reinhard has been able to use mana to make himself stro
 He has also answered that it was a spoiler whether there will be any situations where he will become unable to do so.
 
 （Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #759](https://twitter.com/LoremIpsumVerb/status/1541433592944918529)
+
+Clind can use his Authority to teleport people instantaneously between locations in Lugunica.
+
+However, to do this, he requires magic as compensation. He received 4 pieces of such from Roswaal to teleport Emilia, Anastasia and Otto's groups.
+
+（Stand by me Pleiades 1话）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #760](https://twitter.com/LoremIpsumVerb/status/1541724639801622534)
+
+Lugunica has Bird Mail which allows those who can afford it to send letters attached to special trained birds.
+
+The system was introduced by Roswaal J Mathers, with special seals used on the birds to conceal them so to avoid theft and crashes.
+
+（Stand by me Pleiades 1话）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
