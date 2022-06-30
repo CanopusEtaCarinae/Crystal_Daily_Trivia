@@ -10687,6 +10687,19 @@ What's less known is that they also illustrated Tappei's first ever Light Novel 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #762](https://twitter.com/LoremIpsumVerb/status/1542480029103398914)
+
+When Tappei began writing Arc 4, he envisioned it to be shorter than Arc 3.
+
+Little did he know, Arc 4 would turn out to nearly be as long as Arc 1-3 combined, a testament to his writing style where he doesn't always rigidly stick to a plan.
+
+https://twitter.com/nezumiironyanko/status/334650981394550784
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
