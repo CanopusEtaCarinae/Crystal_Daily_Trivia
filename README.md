@@ -10700,6 +10700,19 @@ https://twitter.com/nezumiironyanko/status/334650981394550784
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #763](https://twitter.com/LoremIpsumVerb/status/1542835734134116352)
+
+According to Tappei, Emilia's character has changed a tad since Re: Zero began.
+
+She was originally presented as being more sharp and knowledgeable, however, as the story progressed, she became more ditzy and adorable as she is now.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)，此条像是Q43但好像又不太一样，待确认】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
