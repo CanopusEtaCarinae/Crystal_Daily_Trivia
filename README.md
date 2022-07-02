@@ -10707,7 +10707,20 @@ According to Tappei, Emilia's character has changed a tad since Re: Zero began.
 
 She was originally presented as being more sharp and knowledgeable, however, as the story progressed, she became more ditzy and adorable as she is now.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)，此条像是Q43但好像又不太一样，待确认】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)。此条像是Q43但好像又不太一样，待确认】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #764](https://twitter.com/LoremIpsumVerb/status/1543221670080651264)
+
+According to the author, Felix Argyle's Healing Magic is fairly flexible, not counting cases of instant death.
+
+However, even he cannot grow back arms (or limbs in general) which have been completely obliterated or burned to a crisp.
+
+（18年菲利斯生日，[貌似无提问者的推](https://twitter.com/nezumiironyanko/status/952943667068547072)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
