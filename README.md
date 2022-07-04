@@ -10737,6 +10737,17 @@ According to the author, when Meili grows up she would probably try to dress lik
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #766](https://twitter.com/LoremIpsumVerb/status/1543918410882600960)
+
+According to the author, the way Wilhelm van Astrea ideally wanted to die was by growing old with his wife, Theresia, and then dying before her.
+
+（18年剑鬼生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
