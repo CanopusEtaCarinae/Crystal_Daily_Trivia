@@ -10748,6 +10748,19 @@ According to the author, the way Wilhelm van Astrea ideally wanted to die was by
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #767](https://twitter.com/LoremIpsumVerb/status/1544274688884482049)
+
+Cecilus and Arakiya live together in a rundown shack on the latter's land. Their tableware is separated by colour so that Arakiya doesn't use his by accident.
+
+Nevertheless, she's forced to touch them because Cecilus never does the washing-up.
+
+（Sword Identity，21节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
