@@ -10761,6 +10761,21 @@ Nevertheless, she's forced to touch them because Cecilus never does the washing-
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #768](https://twitter.com/LoremIpsumVerb/status/1544647563084693505)
+
+Though well known that neither Wilhelm, Ram or Rem were envisioned in the original Re: Zero plot, what's less known is that characters like Petra Leyte and Otto Suwen were also not part of it.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：3章の活躍で自分の好きなキャラワンツーフィニッシュを見事飾ったヴィル爺とレムですが、初期プロットではそれぞれ存在しなかった、今ほど活躍する予定のなかったキャラと聞いて驚きました。他にもそういうキャラはいますか？ペトラとか微妙にそれっぽいなと思ったり。<br/>
+A：ぺトラもオットーもいないね
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
