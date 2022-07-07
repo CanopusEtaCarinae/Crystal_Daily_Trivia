@@ -10776,6 +10776,21 @@ A：ぺトラもオットーもいないね
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #769](https://twitter.com/LoremIpsumVerb/status/1545013335825022977)
+
+According to the author, Julius Euculius' first impression of Subaru was as follows:
+
+"He's holding hands with Emilia-sama, I guess he must be a lost child."
+
+PS: As most will know, it's Julius' birthday today, so happy birthday!
+
+（18年6154生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
