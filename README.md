@@ -2669,7 +2669,7 @@ The fan-art was quickly supplemented by another one of Rem. The original fanarts
 (By: nanashi111)
 
 https://twitter.com/nanashi111/status/306458580557635584
-<!--多死两次？
+<!--多死两次？Trivia 770
 Ex4后记
 https://twitter.com/nezumiironyanko/status/316527276785274880
 非官方来源https://frequ.jp/1893
@@ -10786,6 +10786,17 @@ According to the author, Julius Euculius' first impression of Subaru was as foll
 PS: As most will know, it's Julius' birthday today, so happy birthday!
 
 （18年6154生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #770](https://twitter.com/LoremIpsumVerb/status/1545391126525378561)
+
+According to the author, when he got the very first fanart of Re: Zero, which was one of Petelgeuse (see Trivia No. 189), he got so happy that he ended up making Subaru die twice more than he'd originally planned in Arc Three.
+
+（[Trivia 189(190)](#re-zero-daily-trivia-189190)相关、[老贼16年推文](https://twitter.com/nezumiironyanko/status/791965257426018304)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
