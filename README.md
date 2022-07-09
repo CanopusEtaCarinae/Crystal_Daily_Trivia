@@ -45,7 +45,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761)
+[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771)
 
 ---
 
@@ -10703,6 +10703,8 @@ https://twitter.com/nezumiironyanko/status/334650981394550784
 
 #### [Re: Zero Daily Trivia #763](https://twitter.com/LoremIpsumVerb/status/1542835734134116352)
 
+(2022-07-01)
+
 According to Tappei, Emilia's character has changed a tad since Re: Zero began.
 
 She was originally presented as being more sharp and knowledgeable, however, as the story progressed, she became more ditzy and adorable as she is now.
@@ -10796,7 +10798,21 @@ PS: As most will know, it's Julius' birthday today, so happy birthday!
 
 According to the author, when he got the very first fanart of Re: Zero, which was one of Petelgeuse (see Trivia No. 189), he got so happy that he ended up making Subaru die twice more than he'd originally planned in Arc Three.
 
-（[Trivia 189(190)](#re-zero-daily-trivia-189190)相关、[老贼16年推文](https://twitter.com/nezumiironyanko/status/791965257426018304)）
+（[Trivia 189(190)](#re-zero-daily-trivia-189190) 相关、[老贼16年推文](https://twitter.com/nezumiironyanko/status/791965257426018304)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #771](https://twitter.com/LoremIpsumVerb/status/1545726308679819264)
+
+According to Tappei, if Reinhard had been present during the fight against the White Whale and Petelgeuse, both wouldn't end up being fights at all.
+
+The white whale would have fled and he would have killed Petelgeuse in an instant.
+
+https://twitter.com/nanashi111/status/446132129701695488
+https://twitter.com/nezumiironyanko/status/446251944017801216
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
