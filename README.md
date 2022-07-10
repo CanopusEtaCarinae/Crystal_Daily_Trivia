@@ -10811,8 +10811,21 @@ According to Tappei, if Reinhard had been present during the fight against the W
 
 The white whale would have fled and he would have killed Petelgeuse in an instant.
 
-https://twitter.com/nanashi111/status/446132129701695488
+https://twitter.com/nanashi111/status/446132129701695488<br/>
 https://twitter.com/nezumiironyanko/status/446251944017801216
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #772](https://twitter.com/LoremIpsumVerb/status/1546103461888024578)
+
+According to the author, he would not be able to say what Subaru's Twitter screen name was, if he used it, since it'd be a spoiler.
+
+Meanwhile, Kenichi's would be something like: キューピー＠妻と息子とマヨネーズ (Kewpie@Wife, Son & Mayonnaise)
+
+https://twitter.com/nezumiironyanko/status/424179806901530624
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
