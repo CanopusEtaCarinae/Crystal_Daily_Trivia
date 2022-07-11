@@ -10831,6 +10831,19 @@ https://twitter.com/nezumiironyanko/status/424179806901530624
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #773](https://twitter.com/LoremIpsumVerb/status/1546463304004034560)
+
+According to the author, Elfen Lied was one of the inspirations he used for the Unseen Hands which were part of Petelgeuse's authority.
+
+In Elfen Lied, unseen hands called "Vectors" were used by Diclonii such as Lucy and Nana.
+
+https://twitter.com/nezumiironyanko/status/481069795517808642
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
