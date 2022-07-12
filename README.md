@@ -10844,6 +10844,19 @@ https://twitter.com/nezumiironyanko/status/481069795517808642
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #774](https://twitter.com/LoremIpsumVerb/status/1546826934285484032)
+
+According to Tappei, with Gal Games, Echidna would own every strategy guide, but she would not use them.
+
+She wouldn't care if she finished the game, she would try all choices, to the point where she could die just from entering the protagonist's name.
+
+https://twitter.com/nezumiironyanko/status/435386289437679617
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
