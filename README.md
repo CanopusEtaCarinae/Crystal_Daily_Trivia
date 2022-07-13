@@ -10857,6 +10857,25 @@ https://twitter.com/nezumiironyanko/status/435386289437679617
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #775](https://twitter.com/LoremIpsumVerb/status/1547207319263612931)
+
+Though the author has given canonical information about what kind of panties some of the characters in Re: Zero wear, one that is often overlooked is Minerva.
+
+In 2014, he confirmed that Minerva officially wears striped panties.
+
+<details>
+<summary>（在推文转某ask.fm问答下的提问回复）</summary>
+Q：魔女さん達のそれぞれのイメージカラーを教えてください。例えばエミリアは白と紫、みたいな<br/>
+A：セクメト：黒、灰色。テュフォン：緑、青。ミネルヴァ：青・白。ダフネ：紫、黒。カーミラ：赤、ピンク。エキドナ：白、黒。パンドラ：金、白。ヘクトール：金、茶。
+</details>
+https://twitter.com/417nsuTrySail/status/492289800360038401<br/>
+https://twitter.com/nezumiironyanko/status/492289893880434689
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
