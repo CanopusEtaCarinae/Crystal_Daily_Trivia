@@ -3580,7 +3580,7 @@ Witchbeasts are not as common in The Sacred Vollachian Empire compared to the Ki
 
 In-world legends say that only dragons know what lie beyond the Great Cascade. It's said that they have a paradise all to themselves on the other side of the cascade, occasionally coming to the continent to stretch their wings.
 
-【有印象这个说法但想不起确切出处了……】
+【Visual Complete/台七卷限定B】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -3919,7 +3919,7 @@ A：セクメト＞サテラ＞エキドナ＞カーミラ＞ミネルヴァ＞�
 
 ---
 
-##### [Re: Zero Daily Trivia #284](https://twitter.com/LoremIpsumVerb/status/1368938012135014405)
+#### [Re: Zero Daily Trivia #284](https://twitter.com/LoremIpsumVerb/status/1368938012135014405)
 
 Otto sometimes mentions while drunk that he had quite a reputation of being a playboy, but pretty much everyone dismisses what he says as being lies and for show.
 
@@ -7455,7 +7455,7 @@ Following the purification of Orcos' Lands, news reached Lugunica about Elsa's i
 
 Guards were put on alert, with two in Visual Complete discussing the case. Unfortunately, it would be their last conversation, as the two ran into Elsa there.
 
-【Visual Complete（リゼロビジュアルコンプリート），无汉化资源】
+【Visual Complete（リゼロビジュアルコンプリート）/台七卷限定B】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -7590,7 +7590,7 @@ The convenience store Subaru went to, before being summoned to an isekai, was po
 
 However, it was first mentioned, in the Re Zero Glossary published in Visual Complete, to be an "Out-Off" - a fictional brand.
 
-【Visual Complete（リゼロビジュアルコンプリート），无汉化资源】
+【Visual Complete（リゼロビジュアルコンプリート）/台七卷限定B】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -7603,7 +7603,7 @@ However, it was first mentioned, in the Re Zero Glossary published in Visual Com
 
 It's said that only Dragons know what lies beyond the Great Waterfall. Those Dragons who have nowhere to live have their own paradise there, or so is said, and from there, they occasionally spread their wings to the world's continent.
 
-【从推文回复看又是Visual Complete，大概这资源蛮重要的……另外这条和[#258](#re-zero-daily-trivia-258)重复度高，故当天又发了另一条】
+【Visual Complete/台七卷限定B。另外这条和[#258](#re-zero-daily-trivia-258)重复度高，故当天又发了另一条】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -7618,7 +7618,7 @@ Trivia re-issued to compensate for a duplicate.
 
 According to Reinhard, the population of Lugunica is said to be about 50 Million. However, these numbers are likely being inflated by each of the regional lords for tax collection purposes.
 
-【人口五千万出自三章王选会场。人口被夸大是因为税收不知道有没有原文支持……还是说只是Ice结合[#169](#re-zero-daily-trivia-169)大都市人口的推测？】
+【主要出自Visual Complete/台七卷限定B。人口五千万亦出自三章王选会场】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10870,7 +10870,23 @@ Q：魔女さん達のそれぞれのイメージカラーを教えてくださ�
 A：セクメト：黒、灰色。テュフォン：緑、青。ミネルヴァ：青・白。ダフネ：紫、黒。カーミラ：赤、ピンク。エキドナ：白、黒。パンドラ：金、白。ヘクトール：金、茶。
 </details>
 https://twitter.com/417nsuTrySail/status/492289800360038401<br/>
-https://twitter.com/nezumiironyanko/status/492289893880434689
+https://twitter.com/nezumiironyanko/status/492289893880434689<br/>
+<br/>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #776](https://twitter.com/LoremIpsumVerb/status/1547569290500382733)
+
+According to the author, both a Rim and Rum may also show up somewhere in Re: Zero.
+
+They will likely be Onis and appear in a spinoff if the author still intends to go through with the joke of having a "Ram", "Rem," "Rom", "Rim" and "Rum".
+
+https://twitter.com/nezumiironyanko/status/447748761331048448<br/>
+https://twitter.com/nezumiironyanko/status/432531599020654592<br/>
+<br/>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
