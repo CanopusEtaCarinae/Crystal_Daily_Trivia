@@ -10886,7 +10886,17 @@ They will likely be Onis and appear in a spinoff if the author still intends to 
 
 https://twitter.com/nezumiironyanko/status/447748761331048448<br/>
 https://twitter.com/nezumiironyanko/status/432531599020654592<br/>
-<br/>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #777](https://twitter.com/LoremIpsumVerb/status/1547929537240973316)
+
+According to the author, Annerose Miload - the current head of the Miload Family - is an extreme Emilia freak, with her affection affection towards her second only to Subaru and Puck.
+
+（50集实况解说）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
