@@ -10902,6 +10902,19 @@ According to the author, Annerose Miload - the current head of the Miload Family
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #778](https://twitter.com/LoremIpsumVerb/status/1548297042291593218)
+
+The author in 2014 deemed Roswaal L. Mathers to be the third most unpleasant, pain in the ass character from the male cast of Re: Zero.
+
+Though he didn't mention who Rank 1 and 2 were, my own guess is Petelgeuse and Regulus.
+
+https://twitter.com/nezumiironyanko/status/463615861899542531
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
