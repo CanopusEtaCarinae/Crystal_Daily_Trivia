@@ -10915,6 +10915,19 @@ https://twitter.com/nezumiironyanko/status/463615861899542531
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #779](https://twitter.com/LoremIpsumVerb/status/1548664970304536577)
+
+According to the author, there's no specific protocol for the speeches given during the Knighting Ceremony, so he thinks Emilia probably gave it her all to think of something for it.
+
+Meanwhile, the author specified that Subaru ad-libbed it.
+
+（50集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
