@@ -10928,6 +10928,21 @@ Meanwhile, the author specified that Subaru ad-libbed it.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #780](https://twitter.com/LoremIpsumVerb/status/1549026014482808832)
+
+When asked if there would be a later development where Emilia would learn the actual truth about the stork (babies), the author confirmed that there would be, and that it would result in Emilia avoiding Subaru for a while.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エミリアたんがコウノトリの真実を知る後日談はあるのでしょうかっ…(血涙)<br/>
+A：あるよ（田中要次風）しばらくスバルが避けられます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
