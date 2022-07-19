@@ -45,7 +45,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [601-610](#re-zero-daily-trivia-601) &zwnj; [611-620](#re-zero-daily-trivia-611) (22-02) &zwnj; [621-630](#re-zero-daily-trivia-621) &zwnj; [631-640](#re-zero-daily-trivia-631) &zwnj; [641-650](#re-zero-daily-trivia-641) (22-03) &zwnj; [651-660](#re-zero-daily-trivia-651) &zwnj; [661-670](#re-zero-daily-trivia-661) &zwnj; [671-680](#re-zero-daily-trivia-671) (22-04) &zwnj; [681-690](#re-zero-daily-trivia-681) &zwnj; [691-700](#re-zero-daily-trivia-691)
 
-[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771)
+[701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781)
 
 ---
 
@@ -10938,6 +10938,27 @@ When asked if there would be a later development where Emilia would learn the ac
 Q：エミリアたんがコウノトリの真実を知る後日談はあるのでしょうかっ…(血涙)<br/>
 A：あるよ（田中要次風）しばらくスバルが避けられます。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #781](https://twitter.com/LoremIpsumVerb/status/1549380725283209217)
+
+In Re: Zero's official encyclopaedia, weights of every female character were listed using only metaphors, for politeness.
+
+Emilia is as light as a feather.<br/>
+Rem weighs less than her morningstar.<br/>
+Ram is light enough to put her on your lap.<br/>
+Beatrice weighs more than a Kōjien Dictionary.<br/>
+Felt is as light as a cat.<br/>
+Crusch weighs less than the responsibilities and pressure levied on her.<br/>
+Felix's is a secwet.<br/>
+Priscilla weighs less than the many ornaments she owns.<br/>
+Anastasia's purse is heavier than her.<br/>
+
+（zeropedia）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
