@@ -10965,6 +10965,29 @@ Anastasia's purse is heavier than her.<br/>
 
 ---
 
+#### [Re: Zero Daily Trivia #782](https://twitter.com/LoremIpsumVerb/status/1549769729941929984)
+
+While Subaru is eating the meat pie during the Knighting Ceremony, Subaru suggests he'd savour the taste more if Emilia said "Aah" for him.
+
+Emilia comments that she'd done that before when Subaru was tired; however, she's only done so in a reset loop.
+
+（第2、15卷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #783](https://twitter.com/LoremIpsumVerb/status/1550097432444379138)
+
+According to the author, after the Great Rabbit was sent to another dimension by Beatrice's Al Shamak, it was doomed to keep feeding on itself endlessly, since the place it was sent contained nothing to prey on.
+
+（50集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
