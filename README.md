@@ -4,7 +4,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。
 
-（注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故大部分出处在此后就不必再待定。然而在小说十周年语音问答中仍有部分出处因资源不全待定，会再特别注明）
+（注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故大部分出处在此后就不必再待定，除非Ice本人一时偶尔不方便发的。另外在小说十周年语音问答中仍有部分出处因资源不全待定，会再特别注明）
 
 <details>
 <summary>【出处待完善】</summary>
@@ -22,6 +22,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [505](#re-zero-daily-trivia-505) &nbsp; [507](#re-zero-daily-trivia-507) &nbsp; [515](#re-zero-daily-trivia-515) &nbsp; [521](#re-zero-daily-trivia-521) &nbsp; [528](#re-zero-daily-trivia-528) &nbsp; [541](#re-zero-daily-trivia-541) &nbsp; [541(b)](#re-zero-daily-trivia-541-b) &nbsp; [547](#re-zero-daily-trivia-547) &nbsp; [562](#re-zero-daily-trivia-562) &nbsp; [564](#re-zero-daily-trivia-564) &nbsp; [566](#re-zero-daily-trivia-566) &nbsp; [576](#re-zero-daily-trivia-576) &nbsp; [577](#re-zero-daily-trivia-577) &nbsp; [584](#re-zero-daily-trivia-584) &nbsp; [589](#re-zero-daily-trivia-589) &nbsp; [593](#re-zero-daily-trivia-593)
 
 [605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
+
+[784](#re-zero-daily-trivia-784)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
@@ -10983,6 +10985,19 @@ Emilia comments that she'd done that before when Subaru was tired; however, she'
 According to the author, after the Great Rabbit was sent to another dimension by Beatrice's Al Shamak, it was doomed to keep feeding on itself endlessly, since the place it was sent contained nothing to prey on.
 
 （50集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #784](https://twitter.com/LoremIpsumVerb/status/1550464753453105152)
+
+Tappei has compared Subaru's progression over the story to the Frizz line of spells from Dragon Quest. He reached Frizz in Arc 4, becoming Frizzle a little after "Reason to Believe".
+
+He will eventually reach Kafrizzle, and in ~Arc 11, Kaiser Phoenix.
+
+【出处暂未明确】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
