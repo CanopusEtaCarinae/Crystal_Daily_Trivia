@@ -6968,7 +6968,6 @@ He stated on Narou that Re: Zero was inspired by the Langrisser Game Series.
 －－－－ －－－－<br/>
 2012年 10月22日 22時46分<br/>
 <br/>
-<br/>
 わざわざタイトルまで明記していただいてありがとうございます。<br/>
 下の太郎さまの感想も、おそらく同じ作品のお話だと思います。<br/>
 <br/>
@@ -7382,12 +7381,11 @@ He'd hoped the feedback would be full of people saying "Die Reinhard".
 －－－－ 男性<br/>
 2015年 06月05日 18時48分<br/>
 <br/>
-<br/>
 「あ！　お爺ちゃん助けるために、『死神の加護』消そうと思ったら敵をぶった切るしかないや！」ズバー！　かもしれない。<br/>
 そうじゃないかもしれない。<br/>
 <br/>
-鼠色猫/長月達平
-2015年 06月08日 08時50分
+鼠色猫/長月達平<br/>
+2015年 06月08日 08時50分<br/>
 <br/>
 <br/>
 <br/>
@@ -7398,7 +7396,6 @@ He'd hoped the feedback would be full of people saying "Die Reinhard".
 投稿者： 延志<br/>
 －－－－ －－－－<br/>
 2015年 06月06日 01時00分<br/>
-<br/>
 <br/>
 なー、だよなー？<br/>
 ラインハルト死ねって思うよなー？<br/>
@@ -10997,7 +10994,95 @@ Tappei has compared Subaru's progression over the story to the Frizz line of spe
 
 He will eventually reach Kafrizzle, and in ~Arc 11, Kaiser Phoenix.
 
-【出处暂未明确】
+<details>
+<summary>（感想板）</summary>
+この流れはずるい、そして脱帽です。<br/>
+スバルのはちゃめちゃキャラの理由が明らかにされ<br/>
+さらに過去を乗り越えめっちゃ成長するんだろうなぁ、今まで読み続けてきてよかった。<br/>
+<br/>
+第４章で大体半分くらいなのでしょうか？<br/>
+投稿者： RON<br/>
+30歳～39歳 男性<br/>
+2013年 06月20日 14時31分<br/>
+<br/>
+ＲＯＮさん、ありがとうございます。<br/>
+<br/>
+えー、四章で四割です。なぜなら十章編成で真面目に一歩ずつ進んでるから！<br/>
+とりあえず、四章はスバルの進化第一段階の予定です。進化っつっても、別に強くなったりするアレではありませんが、人間的な問題で。メラからメラミになるところです。<br/>
+メラゾーマとカイザーフェニックスにもいずれご期待ください。<br/>
+<br/>
+鼠色猫/長月達平<br/>
+2013年 06月21日 07時52分<br/>
+<br/>
+<br/>
+
+初コメです。<br/>
+凄く面白いです。<br/>
+<br/>
+『ゼロ』を読むよう勧めてくれた友達に<br/>
+スバルカッコいい！と言ってもあまり共感されません・・・。<br/>
+<br/>
+何故？？<br/>
+<br/>
+スバルって最高にカッコいい主人公なのに！！<br/>
+<br/>
+なんとかして下さい！<br/>
+<br/>
+でもファンにまでイジラレる<br/>
+スバルも素敵。<br/>
+<br/>
+応援してます<br/>
+投稿者： 春子<br/>
+－－－－ －－－－<br/>
+2013年 09月11日 21時59分<br/>
+<br/>
+ありがとうございます！<br/>
+<br/>
+でも、勧めてくれた友達は勧めてくれたわりになにが気に入ってたんだかわかんないね！<br/>
+スバル気に入らなかったら読むの苦痛でしょーがないと思うんだけど、謎だ！<br/>
+<br/>
+でもまあなんとかしてあげるよ！<br/>
+４章のスバル、かなりかっちょいいからね！<br/>
+４章でようやくメラミだから。メラゾーマしてカイザーフェニックスまでまだまだ先だけど、とりあえず４章でメラミだから！<br/>
+<br/>
+鼠色猫/長月達平<br/>
+2013年 09月11日 22時43分<br/>
+<br/>
+<br/>
+良い点<br/>
+<br/>
+思わず感想を書くほどの名シーン、ありがとうございます。スバル、かっこよくなったなぁ…<br/>
+リゼロ史上2番目に好きな話になりました。<br/>
+気になる点<br/>
+<br/>
+そろそろレム成分をください。<br/>
+ベア子の出番も。<br/>
+投稿者： ふらん<br/>
+－－－－ －－－－<br/>
+2014年 05月22日 01時46分<br/>
+<br/>
+ありがとうございます。<br/>
+スバルくん、１章から比べるとちょっとは進歩しましたね。<br/>
+今、メラなので、もうちょっとしたらメラミになります。カイザーフェニックスになるのは、ほぼ最終章ですね。<br/>
+<br/>
+レムはともかく、ベア子はそろそろです。<br/>
+<br/>
+鼠色猫/長月達平<br/>
+2014年 05月23日 19時43分<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #785](https://twitter.com/LoremIpsumVerb/status/1550819147071819778)
+
+In WhiteFox's Anime adaptation, Roswaal B Mathers - the descendant of the original Roswaal - was voice acted by Kouki Koyasu.
+
+Kouki is the son of Takehito Koyasu, who stars as Roswaal himself. Meaning, it was truly a parent-child performance.
+
+（49集实况解说）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -11053,7 +11138,7 @@ https://twitter.com/LoremIpsumVerb/status/1266149202389872641
 
 十一另加？https://mobile.twitter.com/nezumiironyanko/status/378871937499279361
 
-蕾姆在意上 https://twitter.com/nezumiironyanko/status/407867610106036224
+蕾姆在意上 尺寸 宽松 https://twitter.com/nezumiironyanko/status/407867610106036224
 
 没有486的发展もしスバルが存在していなかったら現時点で王戦候補者は全滅する未来
 
@@ -11088,5 +11173,7 @@ if 大罪 trivia 89
 RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
 
 咚 解释https://twitter.com/nezumiironyanko/status/835500824608415746
+
+时间 停 阴魔法 4章 67
 
 -->
