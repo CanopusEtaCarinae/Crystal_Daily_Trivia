@@ -11053,6 +11053,7 @@ He will eventually reach Kafrizzle, and in ~Arc 11, Kaiser Phoenix.
 <br/>
 思わず感想を書くほどの名シーン、ありがとうございます。スバル、かっこよくなったなぁ…<br/>
 リゼロ史上2番目に好きな話になりました。<br/>
+<br/>
 気になる点<br/>
 <br/>
 そろそろレム成分をください。<br/>
@@ -11081,6 +11082,21 @@ He will eventually reach Kafrizzle, and in ~Arc 11, Kaiser Phoenix.
 In WhiteFox's Anime adaptation, Roswaal B Mathers - the descendant of the original Roswaal - was voice acted by Kouki Koyasu.
 
 Kouki is the son of Takehito Koyasu, who stars as Roswaal himself. Meaning, it was truly a parent-child performance.
+
+（49集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Overlord Daily Trivia #786（该日非Re0 Trivia，Ice开了个玩笑。故具体内容不在此展示）](https://twitter.com/LoremIpsumVerb/status/1551213342198489088)
+
+---
+
+#### [Re: Zero Daily Trivia #787](https://twitter.com/LoremIpsumVerb/status/1551560849353064454)
+
+According to the author, in "Love Me Down to My Blood and Guts", if Elsa hadn't been distracted by Meili crying out when the ceiling collapsed, she could have fatally wounded Garfiel with a fragment of glass she was hiding, and won.
 
 （49集实况解说）
 
