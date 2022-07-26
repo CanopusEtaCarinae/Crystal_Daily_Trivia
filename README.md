@@ -11098,7 +11098,20 @@ Kouki is the son of Takehito Koyasu, who stars as Roswaal himself. Meaning, it w
 
 According to the author, in "Love Me Down to My Blood and Guts", if Elsa hadn't been distracted by Meili crying out when the ceiling collapsed, she could have fatally wounded Garfiel with a fragment of glass she was hiding, and won.
 
-（49集实况解说）
+（48集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #788](https://twitter.com/LoremIpsumVerb/status/1551921682436308992)
+
+Both Al and Subaru are unable to whistle properly.
+
+Subaru felt a sense of familiarity with it, since he couldn't whistle despite practising in the past, and asked Al about it, with the latter saying it was because his lips weren't intact.
+
+（Web三章43节，文库6卷二章3节）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
