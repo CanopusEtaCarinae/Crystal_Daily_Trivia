@@ -11117,6 +11117,32 @@ Subaru felt a sense of familiarity with it, since he couldn't whistle despite pr
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #789](https://twitter.com/LoremIpsumVerb/status/1552322851067379713)
+
+As far as the now ten year old Annerose Miload can remember, her butler - Clind - has not changed at all in appearance or way of being.
+
+Meaning, it's highly likely that Clind does not age at all.
+
+（Stand by me Pleiades 2话）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #790](https://twitter.com/LoremIpsumVerb/status/1552621736759377920)
+
+There are many legends left about Reid Astrea.
+
+Some of the most famous ones include him partaking in a battle where he slew 100 Dragons, as well as leaving behind a record of 6000 undefeated victories on Vollachia's Gladiator Island.
+
+（Web六章58节，文库24卷二章6节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
