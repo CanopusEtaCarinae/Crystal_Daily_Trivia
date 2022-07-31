@@ -11167,6 +11167,19 @@ Among the roles he's been cast in, including Sora from No Game No Life, the one 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #793](https://twitter.com/LoremIpsumVerb/status/1553699289435611137)
+
+During the ten years that Garfiel and Frederica were apart, Frederica tried to remain in communication by sending him letters.
+
+However, due to his stubbornness, Garfiel never sent her back one even once.
+
+（46集实况解说，14卷七章3节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
