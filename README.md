@@ -9785,7 +9785,7 @@ The author first posted the Prologue on Narou at 21:58, along with 3 further cha
 
 According to the author, The Crazed Prince - Strongest in the Holy Kingdom of Gusteko - is currently locked up after he killed 15, or 16 of his siblings.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9798,7 +9798,7 @@ According to the author, Arc Seven is currently only halfway done.
 
 Meaning, that if the Light Novel continues its current adaptation ratio with the Web Novel, Arc Seven could be comprised of eight volumes - the most yet.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9809,7 +9809,7 @@ Meaning, that if the Light Novel continues its current adaptation ratio with the
 
 When asked about whether Subaru and Emilia would end up being married to each other, the author told the asker to rest assured, that Re: Zero would have a happy ending.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9820,7 +9820,7 @@ When asked about whether Subaru and Emilia would end up being married to each ot
 
 According to the author, the most important arcs of Re: Zero are: Arc One, and the final Arc, Arc Eleven.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9831,7 +9831,7 @@ According to the author, the most important arcs of Re: Zero are: Arc One, and t
 
 According to Tappei, the Witch Cult wasn't a bad organisation originally. However, due to changes at the top and the many wicked ideas of those who joined, its activities became warped.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9844,7 +9844,7 @@ From Arc Six, the author's favourite chapter titles are: "Good Loser" and "Shaul
 
 For Shaula's named chapter, he also thought "Tomorrow's Tomorrow" would have made a good title, but he ultimately ended up going with her name.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9857,7 +9857,7 @@ Frederica has "rare blood" - blood that is said to react strongly to mana and ev
 
 However, Tappei implied that someone else who has rare blood exists and has already met Subaru in the main story. It's unknown who this is.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。此汇总的来源（即上面提过的两个版本的推文汇总[[1]](https://twitter.com/yumito_Re/status/1516796572993867780)[[2]](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)）对应问题未提到486，大概要等以后更详细的资源】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】。仅有英肉Q.52提到了其他稀血角色与486有见过，其余汇总未提）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9870,7 +9870,7 @@ When asked whether Liliana Masquerade and Archi Elior would be active again in t
 
 Whereas, with Archi, the author said it was a spoiler.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9883,7 +9883,7 @@ According to the author, in Mimagau IF Fembaru's boobs weren't that big.
 
 In addition, when asked about what the names of the people from the Roswaal Mansion would be, the author said to look forward to Mimagau's Arc 2!
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9913,7 +9913,7 @@ The most of which (~1.7 million) came on the 18th of July, after the episode "Th
 
 When asked if there is a branching point where Emilia and Subaru would be married together and have children, just like Natsuki Rem in the IF Route, the author replied that there is. That there definitely is.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】。[本条有专门截取录音](https://vocaroo.com/1cF4bdzLXpmf)）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】。[本条有专门截取录音](https://vocaroo.com/1cF4bdzLXpmf)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9926,7 +9926,7 @@ When asked whether there'd be any possibilities for future side stories featurin
 
 That is namely because he isn't confident he can write any good stories about them.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9939,7 +9939,7 @@ According to Tappei in the 10 Year Anniversary Space, there are only seven Witch
 
 However, this has caused major stir as this information is contradicted in the novels.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】。Ice另思考了与三章及二期BD全卷剧情的关系）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】。Ice另思考了与三章及二期BD全卷剧情的关系）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9952,7 +9952,7 @@ The author has expressed that he does not think he is the type who wants to see 
 
 Namely, because he doesn't think it's possible to capture Emilia's cuteness in live action.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9965,7 +9965,7 @@ When it comes to talent for art among members of the Emilia Camp, the author wou
 
 Roswaal > Ram > Otto > Subaru >>> Emilia.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9978,7 +9978,7 @@ According to the author, Puck's pochette wasn't originally part of how he had en
 
 Since then, the author has said the pochette likely contains snacks for Emilia.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -9989,7 +9989,7 @@ Since then, the author has said the pochette likely contains snacks for Emilia.
 
 According to the author, the chances of *all* the Witches coming back to life is pretty low.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10000,7 +10000,7 @@ According to the author, the chances of *all* the Witches coming back to life is
 
 When asked if yandere Emilia would come back at some point in the story, the author replied saying that after Arc Four, Emilia was pretty mentally stable, so he did not think "Mindbroken Emilia" would be showing up again.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10014,7 +10014,7 @@ According to the author, Rem will receive another named chapter to go along with
 This fact was confirmed again recently, during the the ten year anniversary space.
 
 （13年推文：https://twitter.com/nezumiironyanko/status/297334266017243136<br/>
-Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10027,7 +10027,7 @@ According to the author, Beatrice's birthday is a spoiler which will be revealed
 
 For now, if fans want to celebrate it, the author has suggested to do so on March 17th, as that was the day "Choose Me" broadcasted.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 <!--贝蒂生日 https://twitter.com/nezumiironyanko/status/860576425048285184-->
 
 [Return to Content](#Content)<br/>
@@ -10041,7 +10041,7 @@ According to the author, the first Vollachian Emperor was a tyrant who was frien
 
 The author may write about this time period 400 years ago sometime in the future, in which he might show up.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10054,7 +10054,7 @@ According to the author, his favourite chapter in the story is the one where Emi
 
 It's unclear if he is referring to the quarrel from Arc 3 or Arc 4 with his answer, or both.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10065,7 +10065,7 @@ It's unclear if he is referring to the quarrel from Arc 3 or Arc 4 with his answ
 
 According to the author, his favourite line in the entirety  of Re: Zero so far is: "Choose Me".
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10078,7 +10078,7 @@ The author of Re: Zero, Nagatsuki Tappei, has been writing novels since around t
 
 Meaning, that as of now, he has been writing novels for just over 20 years. An impressive feat!
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。Ice虽提到长月15岁起写小说是十周年问答提到，但此汇总的来源（即上面提过的两个版本的推文汇总[[1]](https://twitter.com/yumito_Re/status/1516796572993867780)[[2]](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)）并未收录此条，大概要等以后更详细的资源】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】。仅英肉Q.25提到长月15岁起写小说的细节，其余汇总未提）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10091,7 +10091,7 @@ According to the author, the "Re:" in Re: Zero actually comes from the usage of 
 
 As for the rest of the title, currently, he claimed that he doesn't really remember what led to the naming choice.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10132,7 +10132,7 @@ According to Tappei, Reinhard's Blessing of the Phoenix won't activate if his so
 
 Meaning, if the Life Sword was used against him, there'd perhaps be a chance to kill him, though likely a Blessing to counter it would pop up
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10206,7 +10206,7 @@ Emilia claims she can eat just about anything, however, the one item of food she
 
 When asked whether Subaru could ever go back to his original world again, the author replied that he wasn't sure - not because it was a spoiler or anything - but because he really didn't know whether it was possible.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10238,7 +10238,7 @@ Currently, in Arc 7, Priscilla's Camp is active, then perhaps he said the order 
 
 Felt Camp > Crusch Camp > All Camps.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10251,7 +10251,7 @@ Though it's known Tappei decided Arc 1 and 11 from the very start, what's less k
 
 The overall plot was only finalised after meetings on the First Season of the Anime began in 2015.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10262,7 +10262,7 @@ The overall plot was only finalised after meetings on the First Season of the An
 
 According to the author, Emilia is the type to enthusiastically always use rock first when playing rock-paper-scissors.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10292,7 +10292,7 @@ The author has mentioned before that he would like to see some of the IF Routes 
 
 However, he said it would be difficult, and at this point in time, only Kasaneru IF would be possible, if it were to happen.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10344,7 +10344,7 @@ According to the author, Wilhelm would die both in a good and bad way if he knew
 
 Namely because he never thought they were interested in each other from the start.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10641,7 +10641,7 @@ According to the author, Reinhard has been able to use mana to make himself stro
 
 He has also answered that it was a spoiler whether there will be any situations where he will become unable to do so.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10708,7 +10708,7 @@ According to Tappei, Emilia's character has changed a tad since Re: Zero began.
 
 She was originally presented as being more sharp and knowledgeable, however, as the story progressed, she became more ditzy and adorable as she is now.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)。此条像是Q43但好像又不太一样，待确认】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】。基本和暂定汇总中的Q43讲得差不多，英肉Q.40更具体些）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -10732,7 +10732,7 @@ However, even he cannot grow back arms (or limbs in general) which have been com
 
 According to the author, when Meili grows up she would probably try to dress like Elsa and have her hair braid done in the same style as her.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -11148,7 +11148,7 @@ Some of the most famous ones include him partaking in a battle where he slew 100
 
 According to the author, since Julius does not like strong colours, his favourite flower would likely be one that isn't overwhelmingly vibrant, such as a French Hydrangea.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -11189,7 +11189,18 @@ Elves are rare in the world of Re: Zero. This is primarily due to the "Elf Hunti
 
 These hunts targeted half-elves and pure elves, causing their population to decrease.
 
-（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)】）
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #795](https://twitter.com/LoremIpsumVerb/status/1554483157675569152)
+
+According to the author, Anastasia can calculate things so quickly that she can calculate the odds of rolling eight dice and having them all land on 1 in about a second.
+
+（19年安娜生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -11252,6 +11263,8 @@ https://twitter.com/LoremIpsumVerb/status/1266149202389872641
 Great Capella
 
 https://docs.google.com/document/d/1khHu5kAdtWKYzk_GCLOCL679SUcG-Y0nPWQBgX7AQS4/edit#
+
+7-11章情报 #125/126 #658
 
 九神将 twitter https://twitter.com/Rezero_official/status/1205428648318128130
 
