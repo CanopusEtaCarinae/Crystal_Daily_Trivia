@@ -11206,6 +11206,34 @@ According to the author, Anastasia can calculate things so quickly that she can 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #796](https://twitter.com/LoremIpsumVerb/status/1554830988894564352)
+
+The names "Hiain", "Weitz" and "Idra" are likely based off German for the numbers One, Two and Three (Eins, Zwei, Drei).
+
+(Ain)su (Eins) -> Hiain
+Tsuvai (Zwei) -> Vaitsu (Perfect anagram of Weitz)
+Dorai (Drei) -> Idora -> (Perfect anagram of Drei)
+
+【[仅为读者语源猜测](https://twitter.com/LoremIpsumVerb/status/1554831288401440770)】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #797](https://twitter.com/LoremIpsumVerb/status/1555189340581646336)
+
+Had it not been for Coronavirus delaying the broadcast, Re: Zero Season 2 would have ran from April 1, 2020 all the way to September 23, 2020.
+
+Meaning, it would have started on Subaru's birthday and ended on Emilia's.
+
+（37集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
