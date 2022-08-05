@@ -11234,6 +11234,19 @@ Meaning, it would have started on Subaru's birthday and ended on Emilia's.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #798](https://twitter.com/LoremIpsumVerb/status/1555538060875538434)
+
+Despite the main appeal of Re Zero Kinsho being exploring the world & unlocking places on the map, the game closed after a year without officially releasing the full, labelled map.
+
+Fans though were able to obtain it within 48 hours of release
+
+（当时出地图之后光顾着转发完全没注意官方48小时就撤了……就把Ice的[这个推](https://twitter.com/LoremIpsumVerb/status/1416023355069714435)当出处罢先）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
