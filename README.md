@@ -11247,6 +11247,7 @@ Fans though were able to obtain it within 48 hours of release
 [Return to top](#crystals-daily-trivias)
 
 ---
+
 <!-- Other notes:
 
 莱傲天视角避免
