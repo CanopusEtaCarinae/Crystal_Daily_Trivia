@@ -11248,6 +11248,22 @@ Fans though were able to obtain it within 48 hours of release
 
 ---
 
+#### [Re: Zero Daily Trivia #799](https://twitter.com/LoremIpsumVerb/status/1555926560917561344)
+
+In Gluttony IF, Subaru never said "I love you" to Shaula.
+
+However, when he said he would kill her last from those he cared about in the world, those words - according to Tappei - would have been the happiest she'd heard in her entire life.
+
+（暴食IF补充，暂无完整汉化）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [#800 八百条纪念](https://twitter.com/LoremIpsumVerb/status/1556259463870312448)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
