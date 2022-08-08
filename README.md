@@ -49,6 +49,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
+[801-810](#re-zero-daily-trivia-801)
+
 ---
 
 #### [Re: Zero Daily Trivia #1](https://twitter.com/LoremIpsumVerb/status/1266327774425427968)
@@ -11262,6 +11264,19 @@ However, when he said he would kill her last from those he cared about in the wo
 ---
 
 #### [#800 八百条纪念](https://twitter.com/LoremIpsumVerb/status/1556259463870312448)
+
+---
+
+#### [Re: Zero Daily Trivia #801](https://twitter.com/LoremIpsumVerb/status/1556617566302371852)
+
+Today - the 8th of August - is Felt's birthday. Happy birthday Felt!
+
+According to the author, he made this day her birthday because of how summery and Leo-like (star sign) it felt. This day was also the day Old Man Rom picked her up.
+
+（[22年菲鲁特生日推](https://twitter.com/nezumiironyanko/status/1556602357735378944)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---
 <!-- Other notes:
