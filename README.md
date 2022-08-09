@@ -11163,7 +11163,7 @@ Petelgeuse Romanee-Conti's voice actor is the much decorated Yoshitsugu Matsuoka
 
 Among the roles he's been cast in, including Sora from No Game No Life, the one he's most recognised for is voicing Kirito from Sword Art Online.
 
-（今天这个好像随手一搜就能查到）
+（这个应该不算作品设定了……基本算作品常识应该也不用在意出处）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -11274,6 +11274,19 @@ Today - the 8th of August - is Felt's birthday. Happy birthday Felt!
 According to the author, he made this day her birthday because of how summery and Leo-like (star sign) it felt. This day was also the day Old Man Rom picked her up.
 
 （[22年菲鲁特生日推](https://twitter.com/nezumiironyanko/status/1556602357735378944)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #802](https://twitter.com/LoremIpsumVerb/status/1556994273391919104)
+
+Rie Takahashi is well known for her work voicing Emilia and Satella in Re: Zero.
+
+However, other than these, she's also renown for voicing Megumin from Konosuba, Mikado Anna from Inazuma Eleven & Sumi Sakurasawa from Rent-a-Girlfriend.
+
+（和[#792](#re-zero-daily-trivia-792)意思差不多，出处不重要了）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
