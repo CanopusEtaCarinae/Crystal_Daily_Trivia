@@ -11292,6 +11292,19 @@ However, other than these, she's also renown for voicing Megumin from Konosuba, 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #803](https://twitter.com/LoremIpsumVerb/status/1557342885200203779)
+
+According to the author, after Wilhelm helped defeat the White Whale, he sent a letter to Grimm, Carol and Bordeaux to inform them.
+
+He did not meet up with them in person because he felt too ashamed to show his face.
+
+（18年剑鬼生日。当时应该有两条问答涉及（[[1]](https://twitter.com/nezumiironyanko/status/993648249666813953)[[2]](https://twitter.com/nezumiironyanko/status/993649758018285568)），[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%A8%81%E5%B0%94%E6%B5%B7%E5%A7%86/%E7%8C%AB%E8%AF%AD)似乎只收了第一条。不过两条提问者原推都不可见了，没收的那条提问大概只有[Reddit](https://www.reddit.com/r/Re_Zero/comments/8irr0s/translation_wilhelms_birthday_2018_qa_tweets)版看）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
