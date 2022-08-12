@@ -11316,6 +11316,17 @@ According to the author, using a scale based off "fluffiness", Crusch Karsten's 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #805](https://twitter.com/LoremIpsumVerb/status/1558076351143460864)
+
+During a Q&A for Roswaal's Birthday in 2018, the Author was asked whether Roswaal L. was capable of  martial arts that made use of weapons or the like, to which he replied it would happen in Arc Seven.
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
