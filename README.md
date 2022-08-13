@@ -11327,6 +11327,17 @@ During a Q&A for Roswaal's Birthday in 2018, the Author was asked whether Roswaa
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #806](https://twitter.com/LoremIpsumVerb/status/1558452160001630210)
+
+According to the author, the biggest thing Anastasia Hoshin has ever bought in her life was Ricardo Welkin.
+
+（19年安娜生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%AE%89%E5%A8%9C%E6%96%AF%E5%A1%94%E8%A5%BF%E5%A8%85/%E7%8C%AB%E8%AF%AD)未收录此条，可参见[问答原推](https://twitter.com/aminosuan/status/1105443222375981056)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
