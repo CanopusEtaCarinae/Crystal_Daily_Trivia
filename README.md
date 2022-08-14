@@ -11338,6 +11338,19 @@ According to the author, the biggest thing Anastasia Hoshin has ever bought in h
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #807](https://twitter.com/LoremIpsumVerb/status/1558806279963004929)
+
+According to the author, the current strongest member of the Emilia Camp, were they to fight in the ring, would be Garfiel.
+
+However, if they started from 20 metres, it would be Roswaal. And if 100 metres, Emilia would be close to Roswaal.
+
+（正好出自[老贼当日刚发的推](https://twitter.com/nezumiironyanko/status/1558764868953833472)，现学现卖了）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -11427,5 +11440,9 @@ RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
 咚 解释https://twitter.com/nezumiironyanko/status/835500824608415746
 
 时间 停 阴魔法 4章 67
+
+怠惰 画 多死 #770
+
+EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/1558764868953833472 #807
 
 -->
