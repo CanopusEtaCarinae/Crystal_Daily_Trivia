@@ -11445,4 +11445,6 @@ RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
 
 EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/1558764868953833472 #807
 
+章节长度 #192/193 https://discord.com/channels/779185920670171136/779190786771255306/1008710503998173204
+
 -->
