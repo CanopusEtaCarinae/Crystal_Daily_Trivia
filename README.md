@@ -11351,6 +11351,17 @@ However, if they started from 20 metres, it would be Roswaal. And if 100 metres,
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #808](https://twitter.com/LoremIpsumVerb/status/1559187540707627011)
+
+According to the author, if Elsa went to a barbeque she'd have someone cook her a bunch of Horumonyaki (Japanese cuisine made from beef or pork offal - including intestines) and eat that.
+
+（18年猎肠生日） <!--fandom 很多很多内脏-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
