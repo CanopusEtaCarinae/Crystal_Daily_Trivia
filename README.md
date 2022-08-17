@@ -11362,6 +11362,39 @@ According to the author, if Elsa went to a barbeque she'd have someone cook her 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #809](https://twitter.com/LoremIpsumVerb/status/1559550499111813122)
+
+Something special today! I updated the last-known locations map I made for Volume 27. It's now updated all the way up to Volume 31!
+
+Keep in mind, there's still a lot of guesswork involved and some places aren't labelled. Make sure to zoom in!
+
+<details>
+<summary>（Ice制作31卷结尾角色分布地图，点击展开看大图）</summary>
+
+![](https://pbs.twimg.com/media/FaSilPRWQAArUYi?format=jpg&name=4096x4096)
+
+[另有27卷版参考](https://twitter.com/LoremIpsumVerb/status/1433228276328194050)
+
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #810](https://twitter.com/LoremIpsumVerb/status/1559898270243201024)
+
+According to the author, Theresia van Astrea can run the 50m Sprint in around two seconds.
+
+Though he mentioned it wouldn't be much use as a reference, given it was about one of the stronger characters in his story.
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
