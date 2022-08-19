@@ -49,7 +49,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801)
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811)
 
 ---
 
@@ -11396,6 +11396,31 @@ Though he mentioned it wouldn't be much use as a reference, given it was about o
 
 ---
 
+#### [Re: Zero Daily Trivia #811](https://twitter.com/LoremIpsumVerb/status/1560274381527347200)
+
+Yorna's character is modelled after high-ranking courtesans in Japanese history known as Oiran, while Tanza's is modelled after Kamuro.
+
+Kamuro were young girls who served as apprentices to courtesans, eventually taking on the role themselves.
+
+【应该算读者自己从日本文化考证的设定？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #812](https://twitter.com/LoremIpsumVerb/status/1560602337881702406)
+
+According to the author, Old Man Rom prefers to eat "Getemono", food that is typically regarded as bizarre or not typically eaten, including charred snake.
+
+Even Felt discouraging him is not enough to make him stop.
+
+（18年罗姆爷生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
