@@ -11421,6 +11421,19 @@ Even Felt discouraging him is not enough to make him stop.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #813](https://twitter.com/LoremIpsumVerb/status/1560990043291799557)
+
+The popular Re: Zero smartphone game - Lost in Memories - has to this date received at least over 3 million downloads.
+
+This number was last officially reported in February 2021, meaning this number has likely increased since then.
+
+【手游相关新闻，Ice这回没标出处】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
