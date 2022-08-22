@@ -11435,6 +11435,31 @@ This number was last officially reported in February 2021, meaning this number h
 
 ---
 
+#### [Re: Zero Daily Trivia #814](https://twitter.com/LoremIpsumVerb/status/1561355943786319878)
+
+Today is the 4 year anniversary of Witch Cult Translations - the leading Fan TL group for Re Zero's Web Novel & Side Stories
+
+We started off as a small group and have since expanded to bring as much content as we can! Here's to many more years to come!
+
+（WCT四周年）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #815](https://twitter.com/LoremIpsumVerb/status/1561700212829147136)
+
+According to the author, the English monologue Subaru gave at the start of Memory Snow was purposely mispronounced.
+
+Subaru's voice actor, Yusuke Kobayashi, lived abroad, so he might have been able to pronounce it far more accurately.
+
+（OVA1）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
