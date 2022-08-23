@@ -11460,6 +11460,7 @@ Subaru's voice actor, Yusuke Kobayashi, lived abroad, so he might have been able
 [Return to top](#crystals-daily-trivias)
 
 ---
+
 <!-- Other notes:
 
 莱傲天视角避免
