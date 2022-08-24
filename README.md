@@ -11461,6 +11461,20 @@ Subaru's voice actor, Yusuke Kobayashi, lived abroad, so he might have been able
 
 ---
 
+#### [Re: Zero Daily Trivia #816](https://twitter.com/LoremIpsumVerb/status/1562081977888657411)
+
+According to the author, if Subaru were to give Anastasia Hoshin a sales pitch about mayonnaise, he would easily be able to win her over on the idea.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルがアナさんにマヨネーズ売り込みに行ったらどうなりますかね？<br/>
+A：カモにされる……！
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
