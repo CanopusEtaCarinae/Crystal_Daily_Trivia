@@ -11475,6 +11475,21 @@ A：カモにされる……！
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #817](https://twitter.com/LoremIpsumVerb/status/1562439595731460096)
+
+According to the author, Russell Fellow's merchant battle strength ranks about the same as Goku when he's fighting normally on the planet Namek.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：アナスタシアさんからみたラッセルさんの商人戦闘力はいくらぐらいですかね？フリーザから見たギニューぐらい？<br/>
+A：なんで格下？普通にナメック星で戦ったときの悟空さだと思いますが。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
