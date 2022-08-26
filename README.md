@@ -11490,6 +11490,23 @@ A：なんで格下？普通にナメック星で戦ったときの悟空さだ�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #818](https://twitter.com/LoremIpsumVerb/status/1562813799953940480)
+
+According to the author, if Kenichi - Subaru's father - had been present when Julius beat up Subaru in Arc Three, he would have probably just watched over it.
+
+Only those who can't read the mood would have intervened there.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：賢一がスバルがユリウスにぼこぼこにされていた場面に立ち会ったとしたらどのように行動していたでしょうか？<br/>
+A：見守ったと思います。あそこで割り込むのは空気読めない奴だけです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
