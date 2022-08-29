@@ -49,7 +49,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) <!--&zwnj; [821-830](#re-zero-daily-trivia-821)-->
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821)
 
 ---
 
@@ -11526,6 +11526,30 @@ Grimm Fauzen was born in a small village called Fleur, situated outside the capi
 He left the village at the age of fifteen for the Capital, and after a while of working menial jobs there, he joined the army wanting to be a hero.
 
 （Ex2剑鬼恋歌）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #821](https://twitter.com/LoremIpsumVerb/status/1563908513511907330)
+
+Natsuki Subaru, Otto Suwen and Garfiel Tinsel have all cross-dressed together to attend a party between Arc Four and Five.
+
+They were known by their alter-egos Natsumi Schwartz, Audrey Souffle and Garnet Thuram. Their outfits are shown below.
+
+（三马鹿女神像篇）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #822](https://twitter.com/LoremIpsumVerb/status/1564216291358941184)
+
+Just like Rie Takahashi voices both Emilia and Satella in the original, Emilia's English Dub's voice actor - Kayli Mills - voices Satella as well.
+
+（英版动画配音）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
