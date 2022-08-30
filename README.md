@@ -11555,6 +11555,7 @@ Just like Rie Takahashi voices both Emilia and Satella in the original, Emilia's
 [Return to top](#crystals-daily-trivias)
 
 ---
+
 <!-- Other notes:
 
 莱傲天视角避免
