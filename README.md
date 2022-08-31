@@ -11556,6 +11556,29 @@ Just like Rie Takahashi voices both Emilia and Satella in the original, Emilia's
 
 ---
 
+#### [Re: Zero Daily Trivia #823](https://twitter.com/LoremIpsumVerb/status/1564645117415284737)
+
+Rather like both Emilia and Echidna, Beatrice is also completely tone deaf.
+
+（短篇集2）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #824](https://twitter.com/LoremIpsumVerb/status/1564947861829087233)
+
+According to the author, if Rem is a 10 in maid power, Frederica Baumann would be a 15.
+
+Meanwhile Ram would be a 2 and Petra an 8.
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
