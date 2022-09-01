@@ -49,7 +49,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821)
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09)
 
 ---
 
@@ -11579,6 +11579,12 @@ Meanwhile Ram would be a 2 and Petra an 8.
 [Return to top](#crystals-daily-trivias)
 
 ---
+<!--
+#### [Re: Zero Daily Trivia #825]()
+
+(2022-09-01)
+
+-->
 <!-- Other notes:
 
 莱傲天视角避免
