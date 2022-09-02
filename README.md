@@ -11579,12 +11579,21 @@ Meanwhile Ram would be a 2 and Petra an 8.
 [Return to top](#crystals-daily-trivias)
 
 ---
-<!--
-#### [Re: Zero Daily Trivia #825]()
+
+#### [Re: Zero Daily Trivia #825](https://twitter.com/LoremIpsumVerb/status/1565344223527837696)
 
 (2022-09-01)
 
--->
+According to Tappei, one of Frederica's hobbies is collecting dolls and putting cute clothes on them
+
+She does so because she doesn't think cute clothing looks good on her large body. She also gets satisfied by Petra trying on different outfits for her
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
