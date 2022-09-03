@@ -11594,6 +11594,19 @@ She does so because she doesn't think cute clothing looks good on her large body
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #826](https://twitter.com/Canopus_alphCar/status/1565743000927367170)
+
+According to Tappei, if Subaru were to give Frederica a nickname, just like he did to Emilia (Emilia-tan), Rem (Rem-rin), Ram (Ram-chi), Beatrice (Beako), and so on, he would go with "Rika-chama".
+
+A specific nod to the popular VN, Higurashi.
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
