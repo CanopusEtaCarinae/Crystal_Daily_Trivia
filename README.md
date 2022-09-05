@@ -11608,6 +11608,40 @@ A specific nod to the popular VN, Higurashi.
 
 ---
 
+#### [Re: Zero Daily Trivia #827](https://twitter.com/LoremIpsumVerb/status/1566055914171289602)
+
+When asked about what the win-loss ratio was for the "battles" Frederica and Garfiel waged when they were younger, the author responded that Garfiel had lost every single one of them.
+
+（18年芙蕾生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%8A%99%E8%95%BE%E5%BE%B7%E8%8E%89%E5%8D%A1/%E7%8C%AB%E8%AF%AD)未收录此条，[原推](https://twitter.com/nezumiironyanko/status/1071070578524573696)提问者不可见。原问题大概只有[Reddit](https://www.reddit.com/r/Re_Zero/comments/a4qv2c/translation_fredericas_birthday_2018_qa_tweets)英肉存档可看）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #828](https://twitter.com/LoremIpsumVerb/status/1566358657901551616)
+
+Re: Zero so far has its first three Arcs fully adapted in Manga format, with its fourth Arc being currently serialised.
+
+In addition to that, EX 2 is also fully adapted as a manga, as well as The Frozen Bond.
+
+（漫画化）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #829](https://twitter.com/LoremIpsumVerb/status/1566767099195834370)
+
+Felix Argyle takes a fair amount of pride in holding the title of "Blue", as the title was originally held by his master - Garritch Fabless - the man who taught him Healing Magic.
+
+（青之继承者）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
