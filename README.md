@@ -11642,6 +11642,17 @@ Felix Argyle takes a fair amount of pride in holding the title of "Blue", as the
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #830](https://twitter.com/LoremIpsumVerb/status/1567115645971357696)
+
+According to the author, Felix Argyle's grip strength is only a measly 20kg or so.
+
+（19年菲利斯生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%AE%89%E5%A8%9C%E6%96%AF%E5%A1%94%E8%A5%BF%E5%A8%85/%E7%8C%AB%E8%AF%AD)上零大仅在另一问答简要提及，可参见[问答原推](https://twitter.com/nezumiironyanko/status/1088130263392038913)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
