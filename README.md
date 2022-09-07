@@ -49,7 +49,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09)
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831)
 
 ---
 
@@ -11647,7 +11647,18 @@ Felix Argyle takes a fair amount of pride in holding the title of "Blue", as the
 
 According to the author, Felix Argyle's grip strength is only a measly 20kg or so.
 
-（19年菲利斯生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%AE%89%E5%A8%9C%E6%96%AF%E5%A1%94%E8%A5%BF%E5%A8%85/%E7%8C%AB%E8%AF%AD)上零大仅在另一问答简要提及，可参见[问答原推](https://twitter.com/nezumiironyanko/status/1088130263392038913)）
+（19年菲利斯生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%8F%B2%E8%8E%89%E4%B8%9D/%E7%8C%AB%E8%AF%AD)上零大仅在另一问答简要提及，可参见[问答原推](https://twitter.com/nezumiironyanko/status/1088130263392038913)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #831](https://twitter.com/LoremIpsumVerb/status/1567448589760069635)
+
+According to the author, Roswaal is actually fond of the nickname "Ros-chi" that Subaru gave him.
+
+（18年骡子生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
