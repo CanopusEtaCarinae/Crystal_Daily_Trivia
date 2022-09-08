@@ -11664,6 +11664,17 @@ According to the author, Roswaal is actually fond of the nickname "Ros-chi" that
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #832](https://twitter.com/LoremIpsumVerb/status/1567872256713293825)
+
+According to the author, Roswaal L. Mather's top speed when flying is likely over 100 km/h, faster than an Earth Dragon, and probably on par with a Flying Dragon.
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
