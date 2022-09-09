@@ -11675,6 +11675,17 @@ According to the author, Roswaal L. Mather's top speed when flying is likely ove
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #833](https://twitter.com/LoremIpsumVerb/status/1568220173768613888)
+
+According to Tappei, Roswaal L. Mathers' first impression of Emilia was something like: "What a cute doll"; however, that impression morphed (as of Roswaal's 2018 Birthday Q&A) into "Lectured by a doll, what a loss of fa~ce indeed!"
+
+（18年骡子生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
