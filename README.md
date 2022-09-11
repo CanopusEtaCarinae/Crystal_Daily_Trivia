@@ -11687,6 +11687,27 @@ According to Tappei, Roswaal L. Mathers' first impression of Emilia was somethin
 
 ---
 
+#### [Re: Zero Daily Trivia #834
+
+According to the author, Dona Tea is both tasteless and odourless.
+
+（18年多娜生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%89%BE%E5%A5%87%E5%A4%9A%E5%A8%9C/%E7%8C%AB%E8%AF%AD)未收录此条，可参见[问答原推](https://twitter.com/nezumiironyanko/status/955849100804505600)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #835](https://twitter.com/LoremIpsumVerb/status/1568918274246582274)
+
+According to the author, a cup of Dona Tea would cost 500 Yen plus tax. At a Value Added Tax rate of 10%, this would put the total at 550 Yen currently, or about 4 USD.
+
+（18年多娜生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%89%BE%E5%A5%87%E5%A4%9A%E5%A8%9C/%E7%8C%AB%E8%AF%AD)未收录此条，[原推](https://twitter.com/nezumiironyanko/status/955852783915220992)提问者不可见。原问题大概只有[Reddit](https://www.reddit.com/r/Re_Zero/comments/7t7rk4/translation_echidnas_birthday_2018_qa_tweets)英肉存档可看）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
