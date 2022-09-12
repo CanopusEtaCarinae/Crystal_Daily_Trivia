@@ -11708,6 +11708,17 @@ According to the author, a cup of Dona Tea would cost 500 Yen plus tax. At a Val
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #836](https://twitter.com/LoremIpsumVerb/status/1569281416713601026)
+
+Despite its complexness, Echidna's voice actor, Maaya Sakamoto, only required one take to record the Witch of Greed's speech in Episode 37 of the Anime adaptation.
+
+（37集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
