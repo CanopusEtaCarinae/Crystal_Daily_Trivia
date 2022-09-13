@@ -11815,4 +11815,6 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 章节长度 #192/193 https://discord.com/channels/779185920670171136/779190786771255306/1008710503998173204
 
+作息 起居：ask.fm スバルの一日
+
 -->
