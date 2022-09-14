@@ -11719,6 +11719,34 @@ Despite its complexness, Echidna's voice actor, Maaya Sakamoto, only required on
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #837](https://twitter.com/LoremIpsumVerb/status/1569689858074972162)
+
+Though almost impossible to enumerate, the Re Zero character who has received the most proto-arts (art pieces that use a design before an official one is revealed) is likely Melinda.
+
+Her leading proto-design was designed by [@Ringo1748607337](https://twitter.com/Ringo1748607337)
+
+【同人角色设计相关，具体没关注过……】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #838](https://twitter.com/LoremIpsumVerb/status/1569989079529234432)
+
+According to the author in 2014, we will be shown a part where Roswaal and Beatrice talk together and reminisce about the bygone days when Echidna was alive in Roswaal L.'s named chapter.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：>どんな話が読みたいか ロズワールとベア子がエキドナ存命の頃の在りし日を思い出し語り合う話とか読みたいです<br/>
+A：ありがとうございます。ロズワールが拒否るので、そのお話は『ロズワール・Ｌ・メイザース』回にご期待ください。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
