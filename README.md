@@ -6,6 +6,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 （注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故大部分出处在此后就不必再待定，除非Ice本人一时偶尔不方便发的。另外在小说十周年语音问答中仍有部分出处因资源不全待定，会再特别注明）
 
+（注2：自约[#816](#re-zero-daily-trivia-816)起Ice似乎是因Schedule Tweets功能不支持回复而断更来源，故自此起Trivia出处又需要我自己找了……找不到的依旧会按之前的格式标注）
+
 <details>
 <summary>【出处待完善】</summary>
 
@@ -23,7 +25,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
 
-[784](#re-zero-daily-trivia-784)
+[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
@@ -11687,7 +11689,7 @@ According to Tappei, Roswaal L. Mathers' first impression of Emilia was somethin
 
 ---
 
-#### [Re: Zero Daily Trivia #834
+#### [Re: Zero Daily Trivia #834](https://twitter.com/LoremIpsumVerb/status/1568645477343584262)
 
 According to the author, Dona Tea is both tasteless and odourless.
 
@@ -11748,6 +11750,41 @@ A：ありがとうございます。ロズワールが拒否るので、その�
 
 ---
 
+#### [Re: Zero Daily Trivia #839](https://twitter.com/LoremIpsumVerb/status/1570419163624972288)
+
+According to the author, there are no such things as Orcs in the world of Re: Zero.
+
+This is a deviation from most Isekai Fantasy stories, which tend to include the popular fantasy creature as part of their world building.
+
+<details>
+<summary>【在ask.fm搜オーク只搜到很个别看起来关系不大的……比如这个……Ice中断提供source之后也不好确认了】</summary>
+Q：スバルがオークという言葉を聞いたら彼の異世界知識はどんなイメージをはじきだしますか？<br/>
+A：まあ、一般的なファンタジーに出てくる悪いオークさんだろうなぁ。最近は女騎士の方がどんどん残念になっているイメージなので、逆に紳士的なオークさんも増えている気がするが。
+
+（仅因涉及オーク才放这充数，很可能出处并非此条）
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #840](https://twitter.com/LoremIpsumVerb/status/1570767710207647744)
+
+The Re: Zero Web Novel currently only has three chapters which have a title completely written in English.
+
+These chapters are:
+
+- Arc 4, Chapter 72: ＢＡＤＥＮＤ１, ５, １１<br/>
+- Arc 6, Chapter 79: READY STEADY GO<br/>
+- Arc 7, Chapter 75: I know
+
+（Web版标题）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
