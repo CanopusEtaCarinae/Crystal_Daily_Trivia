@@ -11165,7 +11165,7 @@ Petelgeuse Romanee-Conti's voice actor is the much decorated Yoshitsugu Matsuoka
 
 Among the roles he's been cast in, including Sora from No Game No Life, the one he's most recognised for is voicing Kirito from Sword Art Online.
 
-（这个应该不算作品设定了……基本算作品常识应该也不用在意出处）
+（动画配音相关内容应该不算作品本身设定了……基本算作品常识应该也不用在意出处）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -11791,6 +11791,19 @@ These chapters are:
 According to the author, Old Man Rom doesn't have a single happy childhood memory. His childhood was sheer hell.
 
 （18年罗姆爷生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #842](https://twitter.com/LoremIpsumVerb/status/1571529491066761216)
+
+Tamura Yukari is the voice actress who voices Priscilla Barielle.
+
+She's also renown for voicing Zesshi Zetsumei from Overlord, Jibril from No Game No Life, Rika Furude from Higurashi and Mine from Akame Ga Kill!
+
+（类似[#792](#re-zero-daily-trivia-792)，动画配音相关）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
