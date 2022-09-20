@@ -11809,6 +11809,32 @@ She's also renown for voicing Zesshi Zetsumei from Overlord, Jibril from No Game
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #843](https://twitter.com/LoremIpsumVerb/status/1571888344291606528)
+
+According to the author, Wilhelm van Astrea's household skills are practically non-existent, both now and in the past.
+
+He can't even make tea.
+
+（18年剑鬼生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #844](https://twitter.com/LoremIpsumVerb/status/1572203923787620354)
+
+The author is infamous for posting updates to the Re: Zero Web Novel at 1:00 AM Japanese Time, making it so his dedicated readers have to stay up to read them when they drop.
+
+From the 585 posts available on Narou, 429 of them were posted at 1:00 AM.
+
+（Web发文时刻）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
