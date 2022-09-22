@@ -11836,6 +11836,65 @@ From the 585 posts available on Narou, 429 of them were posted at 1:00 AM.
 
 ---
 
+#### [Re: Zero Daily Trivia #845](https://twitter.com/LoremIpsumVerb/status/1572634390492229633)
+
+A tunnel called the "Everlasting Darkness" was dug between Vollachia and Lugunica by the Mole People to escape persecution due to the story of Iris and the King of Thorns.
+
+The tunnel is located in Shamrock Valley, a land said to be haunted by Hollows.
+
+（Stand by me Pleiades 3话）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #846](https://twitter.com/LoremIpsumVerb/status/1572905365917863936)
+
+According to Tappei in 2014, he has plans on doing a twist where Emilia kills Subaru in the story.
+
+He already knew back then when it would be most interesting to do it, and it comes as a natural reverse to already doing Subaru killing Emilia.
+
+<details>
+<summary>（感想板）</summary>
+良い点<br/>
+ここ数話の満足感が極まり過ぎて、すごく久しぶりに感想書きます！<br/>
+<br/>
+やっぱリゼロは他の作品と比べても次元違いに面白いです。<br/>
+<br/>
+今後も楽しみにしてます。<br/>
+<br/>
+一言<br/>
+スバルとエミリアの仲が漸く進展してきました。<br/>
+個人的に「スバル死亡後の世界の話」と並んで期待してるのが「スバルがエミリアに殺される」展開なんだが、そういうのはもうないのかな？互いに深い話をしてない四章で見れると思ってたが。<br/>
+絶対スバルの心を粉砕してくれると思う。<br/>
+<br/>
+という訳でちょっと想像してみた。<br/>
+雪のふる森の中で手足を凍らされたスバル。「嘘つきぃ！」と涙を流しながらスコップで土を穴の中のスバルにかけていくエミリア。<br/>
+「違う！誤解だ！」弁解するスバルの顔にも土が被せられて…。<br/>
+生き埋めエンド。完。<br/>
+<br/>
+何か凄く興奮するな！？<br/>
+投稿者： 忠仁<br/>
+－－－－ －－－－<br/>
+2014年 05月24日 05時02分<br/>
+<br/>
+久しぶりね……私のことなんて、忘れちゃったのかと思ったわ。<br/>
+ふふ、どうせあなたも、若い子の方が好きなんでしょう？　男ってみんなそう。しょせん、一夜の夢……シャボン玉……帰る家もなく、さまようジプシー……。<br/>
+<br/>
+<br/>
+スバルがエミリアを殺す展開やったんだから、その逆も然り。<br/>
+どこでやるのが一番面白いのかは俺が知ってるから、そこは安心しておきたまえよ。<br/>
+ただ、その性癖は俺とは話が合わないのでやめてくださいお願いします。<br/>
+<br/>
+鼠色猫/長月達平<br/>
+2014年 05月26日 12時02分<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
