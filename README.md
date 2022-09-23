@@ -6,7 +6,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 （注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故大部分出处在此后就不必再待定，除非Ice本人一时偶尔不方便发的。另外在小说十周年语音问答中仍有部分出处因资源不全待定，会再特别注明）
 
-（注2：自约[#816](#re-zero-daily-trivia-816)起Ice似乎是因Schedule Tweets功能不支持回复而断更来源，故自此起Trivia出处又需要我自己找了……找不到的依旧会按之前的格式标注）
+（注2：自约[#816](#re-zero-daily-trivia-816)起Ice似乎是因Schedule Tweets功能不支持回复而断更来源，故自此起Trivia出处又需要我自己找了……找不到的依旧会按之前的格式标注。[#845](#re-zero-daily-trivia-845)起恢复标注来源）
 
 <details>
 <summary>【出处待完善】</summary>
@@ -1795,7 +1795,7 @@ The author mentioned that he has this idea planned for the XXX Battle in Arc Eig
 
 https://twitter.com/nezumiironyanko/status/347925526373101568
 （[零大7-11章情报](http://tieba.baidu.com/p/7276964431)）
-<!-- EMT 486 杀 感想板 老贼回复2014-05-26 12:02 回复 2014-05-24 5:02
+<!-- EMT 486 杀 感想板 老贼回复2014-05-26 12:02 回复 2014-05-24 5:02 -- trivia 846
 スバルがエミリアを殺す展開やったんだから、その逆も然り。
 どこでやるのが一番面白いのかは俺が知ってるから、そこは安心しておきたまえよ。
 ただ、その性癖は俺とは話が合わないのでやめてくださいお願いします。
@@ -11889,6 +11889,21 @@ He already knew back then when it would be most interesting to do it, and it com
 <br/>
 鼠色猫/長月達平<br/>
 2014年 05月26日 12時02分<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #847](https://twitter.com/LoremIpsumVerb/status/1573299668611747841)
+
+When asked who he would want to be from Re Zero, if he had the opportunity to switch souls with them, Tappei said he'd become Puck, dive into Emilia's silver hair and huff deeply to his heart's content before coming back.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：もし猫さんがリゼロキャラの誰かに中身だけ(精神だけ)成り替わるとしたら、誰がいいですか？<br/>
+A：パックになってエミリアたんの銀髪にもぐって思うさまハフハフして帰ってくる
 </details>
 
 [Return to Content](#Content)<br/>
