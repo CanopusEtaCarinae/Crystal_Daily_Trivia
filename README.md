@@ -11910,6 +11910,19 @@ A：パックになってエミリアたんの銀髪にもぐって思うさま�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #848](https://twitter.com/LoremIpsumVerb/status/1573635233420902400)
+
+Ever since Rem woke up with amnesia, she has been using the first person pronoun 私 (watashi) to refer to herself rather than using her own name.
+
+Back when she had her memories, she would always refer to herself using her name, Rem.
+
+（七章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
