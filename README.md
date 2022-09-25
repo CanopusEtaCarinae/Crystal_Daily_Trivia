@@ -1481,7 +1481,7 @@ Priscilla Barielle possesses a wide array of abilities; among them, she has the 
 
 She can also use Yang Magic, including the spell "Akra". However this magic was cut in the LN.
 
-（[三章web角色设定](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949/)，Web三章9节〔アルラ〕）
+（[三章web角色设定](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949)，Web三章9节〔アルラ〕）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -11918,6 +11918,17 @@ Ever since Rem woke up with amnesia, she has been using the first person pronoun
 Back when she had her memories, she would always refer to herself using her name, Rem.
 
 （七章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #849](https://twitter.com/LoremIpsumVerb/status/1574033594317668352)
+
+According to the author, Carmilla's Authority of Lust is so strong, that when she captivates people with it, they are only able to see and feel her even if suddenly skewered by a sword or burning in a raging fire.
+
+（[三章web角色设定](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
