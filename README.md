@@ -51,7 +51,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841)
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) <!--&zwnj; [851-860](#re-zero-daily-trivia-851)-->
 
 ---
 
@@ -11929,6 +11929,19 @@ Back when she had her memories, she would always refer to herself using her name
 According to the author, Carmilla's Authority of Lust is so strong, that when she captivates people with it, they are only able to see and feel her even if suddenly skewered by a sword or burning in a raging fire.
 
 （[三章web角色设定](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/698949)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #850](https://twitter.com/LoremIpsumVerb/status/1574373664514088961)
+
+According to Tappei, Aldebaran is one of the most important characters in the story.
+
+When his circumstances are revealed, one of the three great mysteries in Re: Zero will also be revealed. His main arc was slated in 2014 to be Arc 7.
+
+https://twitter.com/nezumiironyanko/status/465877926454378497
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
