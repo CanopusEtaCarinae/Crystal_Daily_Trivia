@@ -51,7 +51,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) <!--&zwnj; [851-860](#re-zero-daily-trivia-851)-->
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851)
 
 ---
 
@@ -11942,6 +11942,45 @@ According to Tappei, Aldebaran is one of the most important characters in the st
 When his circumstances are revealed, one of the three great mysteries in Re: Zero will also be revealed. His main arc was slated in 2014 to be Arc 7.
 
 https://twitter.com/nezumiironyanko/status/465877926454378497
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #851](https://twitter.com/LoremIpsumVerb/status/1574820291460698140)
+
+Petra has currently made an oath that cannot be broken with the Mole People, promising them a chance to meet and talk to Emilia.
+
+The proof of this oath is engraved on her body. If she breaks it, she will forfeit her life.
+
+（Stand by me Pleiades 4话）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #852](https://twitter.com/LoremIpsumVerb/status/1575096336424509440)
+
+According to the author in 2015, if all of the candidates for the Royal Selection were turned back into being little girls, they would surprisingly all probably still get really attached to Subaru.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：王選候補者たちが幼児退行……幼女であったとして、どの程度スバル君に懐きますか？<br/>
+A：これが恐ろしいことにたぶん全員なつく。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #853](https://twitter.com/LoremIpsumVerb/status/1575472412027658241)
+
+According to the author, the amount of Od left in Anastasia Hoshin's body is so little that had Scarfdona continued to use magic using her body, she would have quickly died.
+
+（19年安娜生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
