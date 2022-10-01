@@ -6,7 +6,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 （注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故大部分出处在此后就不必再待定，除非Ice本人一时偶尔不方便发的。另外在小说十周年语音问答中仍有部分出处因资源不全待定，会再特别注明）
 
-（注2：自约[#816](#re-zero-daily-trivia-816)起Ice似乎是因Schedule Tweets功能不支持回复而断更来源，故自此起Trivia出处又需要我自己找了……找不到的依旧会按之前的格式标注。[#845](#re-zero-daily-trivia-845)起恢复标注来源）
+（注2：自约[#816](#re-zero-daily-trivia-816)起Ice似乎是因Schedule Tweets功能不支持回复而断更来源，故自此起Trivia出处又需要我自己找了……找不到的依旧会按之前的格式标注。[#845](#re-zero-daily-trivia-845)起恢复标注来源，不过个别感觉Ice解释不够我又找不太清楚的还是会标上）
 
 <details>
 <summary>【出处待完善】</summary>
@@ -25,7 +25,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
 
-[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839)
+[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839) &nbsp; [854](#re-zero-daily-trivia-854)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
@@ -11981,6 +11981,23 @@ A：これが恐ろしいことにたぶん全員なつく。
 According to the author, the amount of Od left in Anastasia Hoshin's body is so little that had Scarfdona continued to use magic using her body, she would have quickly died.
 
 （19年安娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #854](https://twitter.com/LoremIpsumVerb/status/1575897051682029570)
+
+According to Tappei, if Subaru went to the world of Konosuba, he reckons he would fall in love with Aqua because he embodies the author's own tastes.
+
+Subaru would take Aqua along so to live under one roof with her.
+
+<details>
+<summary>【说是出自16年对老贼和素晴作者的采访，但截图具体自哪本周边暂时没有翻到……】</summary>
+
+![](https://pbs.twimg.com/media/Fd62HNbWAAU_DVb?format=png)
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
