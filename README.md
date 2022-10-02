@@ -25,7 +25,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
 
-[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839) &nbsp; [854](#re-zero-daily-trivia-854)
+[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839) &nbsp; [854](#re-zero-daily-trivia-854) &nbsp; [854](#re-zero-daily-trivia-854)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
@@ -11997,6 +11997,23 @@ Subaru would take Aqua along so to live under one roof with her.
 <summary>【说是出自16年对老贼和素晴作者的采访，但截图具体自哪本周边暂时没有翻到……】</summary>
 
 ![](https://pbs.twimg.com/media/Fd62HNbWAAU_DVb?format=png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #855](https://twitter.com/LoremIpsumVerb/status/1576264720029405184)
+
+According to Tappei, if Aqua was instead isekai'd to the world of Re: Zero, she would end up having her raiment stolen by a thug.
+
+Subaru would help her find it and exchange his phone for it from Felt, who got it due to its value.
+
+<details>
+<summary>【出处为和#854一样的采访，同上未找到确切是哪个周边……】</summary>
+
+![](https://pbs.twimg.com/media/FeAEjTRXkAIYwJr?format=png)
 </details>
 
 [Return to Content](#Content)<br/>
