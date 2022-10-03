@@ -25,7 +25,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
 
-[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839) &nbsp; [854](#re-zero-daily-trivia-854) &nbsp; [854](#re-zero-daily-trivia-854)
+[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839) &nbsp; [854](#re-zero-daily-trivia-854) &nbsp; [855](#re-zero-daily-trivia-855) &nbsp; [856](#re-zero-daily-trivia-856)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
@@ -12011,9 +12011,24 @@ According to Tappei, if Aqua was instead isekai'd to the world of Re: Zero, she 
 Subaru would help her find it and exchange his phone for it from Felt, who got it due to its value.
 
 <details>
-<summary>【出处为和#854一样的采访，同上未找到确切是哪个周边……】</summary>
+<summary>【出处为和[#854](#re-zero-daily-trivia-854)一样的采访，同上未找到确切是哪个周边……】</summary>
 
 ![](https://pbs.twimg.com/media/FeAEjTRXkAIYwJr?format=png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #856](https://twitter.com/LoremIpsumVerb/status/1576608943484256256)
+
+Both Nagatsuki Tappei and Maruyama Kugane, authors of Re: Zero and Overlord respectively, started out by writing Fan Fiction before transitioning to writing their own works, as stated in a 2020 interview.
+
+<details>
+<summary>【出处又是个不知道怎么找的采访，还是我太菜了……】</summary>
+
+![](https://pbs.twimg.com/media/FeE9l-JX0AIdv4W?format=png)
 </details>
 
 [Return to Content](#Content)<br/>
