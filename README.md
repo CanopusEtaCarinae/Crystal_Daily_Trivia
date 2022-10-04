@@ -12035,6 +12035,32 @@ Both Nagatsuki Tappei and Maruyama Kugane, authors of Re: Zero and Overlord resp
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #857](https://twitter.com/LoremIpsumVerb/status/1576906292043522048)
+
+Costuul, one of the five Great Cities of Lugunica, is rumoured to have once been a Dragon nest.
+
+The city is home to rich deposits of ore that account for the majority of Lugunica's magic stone industry.
+
+（奥托悲喜行商录【个人怀疑老贼在这篇把商业都市和矿山都市混了】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #858](https://twitter.com/LoremIpsumVerb/status/1577254635114401793)
+
+After being kidnapped by Leonardo in Golden Siblings due to her rare blood and being stripped naked, Frederica was then rescued by Clind.
+
+After freeing her from her restraints, Clind gave Frederica his own jacket to cover herself up.
+
+（Golden Siblings〔后篇〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
