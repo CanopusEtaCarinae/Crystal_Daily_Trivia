@@ -2,7 +2,7 @@
 
 Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
-部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。
+部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。<!--detail标题链接无效-->
 
 （注：自[#631](#re-zero-daily-trivia-631)起Ice决定在发Trivia的同时附上来源，故大部分出处在此后就不必再待定，除非Ice本人一时偶尔不方便发的。另外在小说十周年语音问答中仍有部分出处因资源不全待定，会再特别注明）
 
@@ -51,7 +51,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851)
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) <!--&zwnj; [861-870](#re-zero-daily-trivia-861)-->
 
 ---
 
@@ -11989,6 +11989,8 @@ According to the author, the amount of Od left in Anastasia Hoshin's body is so 
 
 #### [Re: Zero Daily Trivia #854](https://twitter.com/LoremIpsumVerb/status/1575897051682029570)
 
+(2022-10-01)
+
 According to Tappei, if Subaru went to the world of Konosuba, he reckons he would fall in love with Aqua because he embodies the author's own tastes.
 
 Subaru would take Aqua along so to live under one roof with her.
@@ -12011,7 +12013,7 @@ According to Tappei, if Aqua was instead isekai'd to the world of Re: Zero, she 
 Subaru would help her find it and exchange his phone for it from Felt, who got it due to its value.
 
 <details>
-<summary>【出处为和[#854](#re-zero-daily-trivia-854)一样的采访，同上未找到确切是哪个周边……】</summary>
+<summary>【出处为和#854一样的采访，同上未找到确切是哪个周边……】</summary>
 
 ![](https://pbs.twimg.com/media/FeAEjTRXkAIYwJr?format=png)
 </details>
@@ -12062,6 +12064,33 @@ After freeing her from her restraints, Clind gave Frederica his own jacket to co
 
 ---
 
+#### [Re: Zero Daily Trivia #859](https://twitter.com/LoremIpsumVerb/status/1577663516491890689)
+
+According to the author, Beatrice's clothes are actually made of mana. She has total freedom over changing them at will and refashioning them.
+
+（二期BD5特典）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #860](https://twitter.com/LoremIpsumVerb/status/1577983255646814209)
+
+The Re: Zero Web Novel is now over 7 million characters in length, making it the 26th longest Web Novel on "Let's Become a Novelist", despite only being on its 7th Arc out of a total of 11.
+
+Huge congrats for this milestone!
+
+<details>
+<summary>（当前篇幅——截至本trivia）</summary>
+
+![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/characters_221006.png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
