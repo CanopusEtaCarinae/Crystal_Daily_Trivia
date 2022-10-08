@@ -12104,6 +12104,19 @@ It's unknown if this tidbit was planned as foreshadowing.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #862](https://twitter.com/LoremIpsumVerb/status/1578729463755337729)
+
+In Re: Zero, Dragons (like Volcanica) and lesser Dragons (like Earth, Sky and Water Dragons) are denoted with the kanji 龍 and 竜 respectively.
+
+When Capella is in her dragon form, she is only described using "竜" - the one for lesser dragons.
+
+（龍与竜，[参见零大总结](https://tieba.baidu.com/p/6884627965)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -12164,7 +12177,7 @@ https://docs.google.com/document/d/1khHu5kAdtWKYzk_GCLOCL679SUcG-Y0nPWQBgX7AQS4/
 
 7-11章情报 #125/126 #658
 
-龍 竜 区别 https://tieba.baidu.com/p/6884627965
+龍 竜 区别 https://tieba.baidu.com/p/6884627965 #862
 
 九神将 twitter https://twitter.com/Rezero_official/status/1205428648318128130
 
