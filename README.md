@@ -12117,6 +12117,26 @@ When Capella is in her dragon form, she is only described using "竜" - the one 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #863](https://twitter.com/LoremIpsumVerb/status/1579099157008371713)
+
+According to Tappei, if Subaru were to pet Emilia, Rem, Beatrice and Ram's heads, the girls would react as follows:
+
+Emilia: "What's up?"<br/>
+Rem: "More please."<br/>
+Beatrice: "I-If you want to pet me, I don't mind in fact."<br/>
+Ram: "So arrogant."<br/>
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルになでなでされた時の女性陣の反応を教えてください！<br/>
+A：エミリア「どうしたの？」レム「もっとお願いします」ベア子「な、撫でたいなら構わんのよ」ラム「頭が高い」以下略
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
