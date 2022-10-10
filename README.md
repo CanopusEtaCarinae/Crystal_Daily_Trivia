@@ -12137,6 +12137,17 @@ A：エミリア「どうしたの？」レム「もっとお願いします」�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #864](https://twitter.com/LoremIpsumVerb/status/1579447584330223618)
+
+According to the author, since Subaru was summoned into the world with only the clothes on his back, Rem likely mass-produced both the typical tracksuit he wears, as well as his underwear.
+
+（[一期新编集第3集实况](https://twitter.com/nezumiironyanko/status/1217463482842411009)，不过[Fandom上](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E5%8A%A8%E7%94%BB%E5%AE%9E%E5%86%B5%E8%A7%A3%E8%AF%B4/%E7%AC%AC%E4%B8%80%E5%AD%A3%E6%96%B0%E7%BC%96%E9%9B%86%E7%89%88#%E6%96%B0%E7%BC%96%E7%AC%AC3%E9%9B%86%E2%80%94%E2%80%942020%E5%B9%B41%E6%9C%8815%E6%97%A5)似乎未收录此条）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
