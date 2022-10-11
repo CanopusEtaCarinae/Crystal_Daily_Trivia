@@ -12148,6 +12148,17 @@ According to the author, since Subaru was summoned into the world with only the 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #865](https://twitter.com/LoremIpsumVerb/status/1579809782713962500)
+
+According to Tappei, if Worcester and Tonkatsu sauce (two extremely similar tasting sauces) existed in the world of Re: Zero, Reinhard would be able to receive a Divine Protection to tell them apart called "The Divine Protection of Worcester."
+
+（[18年莱傲天生日](https://twitter.com/nezumiironyanko/status/947858201969430528)，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%8E%B1%E8%8C%B5%E5%93%88%E9%B2%81%E7%89%B9/%E7%8C%AB%E8%AF%AD)未收录）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
