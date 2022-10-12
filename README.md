@@ -12159,6 +12159,19 @@ According to Tappei, if Worcester and Tonkatsu sauce (two extremely similar tast
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #866](https://twitter.com/LoremIpsumVerb/status/1580157061664423937)
+
+The Dragon Sword Reid - currently carried by the Sword Saint, Reinhard van Astrea - is a sword enshrouded in multiple legends.
+
+One of them is that the first Sword Saint, Reid Astrea, used it to defeat the Divine Dragon, Volcanica.
+
+（Web五章72，似乎文库还没收这句）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
