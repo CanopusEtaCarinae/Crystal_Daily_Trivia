@@ -12172,6 +12172,22 @@ One of them is that the first Sword Saint, Reid Astrea, used it to defeat the Di
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #867](https://twitter.com/LoremIpsumVerb/status/1580547338514624512)
+
+“When you throw information from sidestories into the main story, the readers who happened to miss it will wind up being confused so let's go without any of that” - Subaru, Arc 4 Ch. 100
+
+Just thought it'd be funny to share as a trivia, due to Arc 7.😉
+
+<details>
+<summary>（来自Web四章100节的调侃）</summary>
+「外伝の内容を本編に持ち込むと、たまたま見逃した読者が後で困惑する羽目になるからそういうのはなしでいこうぜ。切り替えて切り替えて、お話ししよう」
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
