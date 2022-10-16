@@ -51,7 +51,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861)
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) <!--&zwnj; [871-880](#re-zero-daily-trivia-871)-->
 
 ---
 
@@ -12188,6 +12188,47 @@ Just thought it'd be funny to share as a trivia, due to Arc 7.😉
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #868](https://twitter.com/LoremIpsumVerb/status/1580896320776155137)
+
+Reinhard van Astrea has used the Dragon Sword Reid a total of 4 times.
+
+Once was against Cecilus Segmunt, at the end of EX 4.
+
+Once was against a revived Theresia van Astrea, in Arc 5.
+
+The other times are spoilers, according to Tappei.
+
+（Ex4对青光是第三次，再加水门对前代一次。18年莱傲天生日问答亦有提及）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #869](https://twitter.com/LoremIpsumVerb/status/1581263926955687936)
+
+When asked if he had any plans for Felt's chest to get any bigger in the future, the author replied that would be a key point of consideration.
+
+（[18年菲鲁特生日](https://twitter.com/yaya1015130/status/1027124162693754880)，此条[fandom](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E8%8F%B2%E9%B2%81%E7%89%B9/%E9%97%AE%E7%AD%94)未收录）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #870](https://twitter.com/LoremIpsumVerb/status/1581614607201755136)
+
+According to the author, it bothers Rem that her breasts are larger than Ram's, so she wears her maid uniform in a baggier fashion to try fool Ram.
+
+However, Ram doesn't really mind, so Rem is just being overly conscious.
+
+https://twitter.com/nezumiironyanko/status/407867610106036224 <!--【巨】的回复-->
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -12287,5 +12328,7 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 章节长度 #192/193 https://discord.com/channels/779185920670171136/779190786771255306/1008710503998173204
 
 作息 起居：ask.fm スバルの一日
+
+【巨】 trivia 870
 
 -->
