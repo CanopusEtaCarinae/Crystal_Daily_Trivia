@@ -12242,6 +12242,19 @@ He also speaks using dragon cries when talking to earth dragons and cat language
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #872](https://twitter.com/LoremIpsumVerb/status/1582326805582663680)
+
+When Subaru hosted his radio callisthenics for the village, he stamped cards he gave to the children using potatoes with drawings carved into them.
+
+The handkerchief Petra gave Subaru in Season 2 was embroidered with a chibi Puck that came from a stamp
+
+（Web四章6节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
