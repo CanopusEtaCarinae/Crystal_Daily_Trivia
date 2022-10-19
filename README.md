@@ -12255,6 +12255,23 @@ The handkerchief Petra gave Subaru in Season 2 was embroidered with a chibi Puck
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #873](https://twitter.com/LoremIpsumVerb/status/1582696708987027456)
+
+The author came up with the name "Roswaal" just off how it sounded, without it being inspired from anywhere.
+
+Whereas, with the surname "Mathers", with it having a mage-like feel to him, he was likely inspired by Mazus from the RPG Suikoden.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ロズワールの名前の由来はマグレガーメイザースなんでしょうか。ベアトリスの名前の由来はベアトリーチェだと思いますが、他にも名前の元ネタがあるキャラはいますか？<br/>
+A：ラインハルトが銀河英雄伝説の銀河皇帝からいただきましたが、それ以外は特に元ネタはないです。ロズワールも響きで決めたので、「こうしよう！」と思ってどっかから持ってきた名前じゃありません。メイザースが魔法使いっぽいのは、今思い返すと幻想水滸伝２にそんな名前の強い魔法使いがいたようなイメージ？ベア子はベアトリーチェじゃなく、『テディベアみたいに抱っこするのが似合う子』のイメージで『ベア子』の呼び名が先にきて、あとから選んだ感じです。そんぐらいじゃないかな。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
