@@ -12272,6 +12272,17 @@ A：ラインハルトが銀河英雄伝説の銀河皇帝からいただきま�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #874](https://twitter.com/LoremIpsumVerb/status/1583065990325493760)
+
+According to Subaru, he is the sort of person who plays games while looking at websites with walkthroughs on them.
+
+（Web四章12节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
