@@ -12283,6 +12283,19 @@ According to Subaru, he is the sort of person who plays games while looking at w
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #875](https://twitter.com/LoremIpsumVerb/status/1583398706338234369)
+
+The reason Frederica Baumann and Garfiel Tinsel have different surnames is because Reala - their mother - was captured by 2 different demi-human bands.
+
+Tragically, during captivity, it's implied she was raped by 2 different demi-humans from each band.
+
+（Web四章32节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
