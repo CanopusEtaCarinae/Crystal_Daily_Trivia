@@ -12296,6 +12296,19 @@ Tragically, during captivity, it's implied she was raped by 2 different demi-hum
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #876](https://twitter.com/LoremIpsumVerb/status/1583761663269871621)
+
+The blacksnake is renown for being a calamity among calamities and utterly uncontrollable.
+
+Despite that, even though she can't control it with her authority, Pandora can still guide it to a destination as she did in Season Two.
+
+（Web四章119节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
