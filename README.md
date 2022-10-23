@@ -12309,6 +12309,17 @@ Despite that, even though she can't control it with her authority, Pandora can s
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #877](https://twitter.com/LoremIpsumVerb/status/1584139777917714432)
+
+When asked if Roswaal was included among Echidna's love interests, the author replied that he was not.
+
+（19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
