@@ -12320,6 +12320,25 @@ When asked if Roswaal was included among Echidna's love interests, the author re
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #878](https://twitter.com/LoremIpsumVerb/status/1584516236892774400)
+
+According to Tappei, Rem's three yandere rules are:
+
+1) Don't step on Subaru-kun's shadow<br/>
+2) Be careful to not breathe any air Subaru-kun has breathed out<br/>
+3) Clean Subaru-kun's room after he's asleep, and say Good Morning before he wakes up before work
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：作中何度かヤンデレの片鱗をみせたレムですが、他にヤンデレっぽいエピソードがあれば聞きたいです！！<br/>
+A：レムルール①「スバルくんの影は踏まない」レムルール②「スバルくんの吐いた空気は自重して吸わない」レムルール③「スバルくんが寝た後にスバルくんの部屋を掃除し、スバルくんが起きる前におはようの挨拶をしてから仕事をする」
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
