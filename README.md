@@ -12339,6 +12339,19 @@ A：レムルール①「スバルくんの影は踏まない」レムルール�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #879](https://twitter.com/LoremIpsumVerb/status/1584868881977384965)
+
+Reduced to childish babbling in Arc 7, the Sin Archbishop of Gluttony, Rui Arneb, communicates in a series of incomprehensible grunts.
+
+From those, she likes to repeat the word "uau", which is actually her trying to say Subaru's name.
+
+（七章，大概78节算实锤？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
