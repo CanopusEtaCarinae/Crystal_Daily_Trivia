@@ -51,7 +51,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871)
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) <!--&zwnj; [881-890](#re-zero-daily-trivia-881)-->
 
 ---
 
@@ -12347,6 +12347,19 @@ Reduced to childish babbling in Arc 7, the Sin Archbishop of Gluttony, Rui Arneb
 From those, she likes to repeat the word "uau", which is actually her trying to say Subaru's name.
 
 （七章，大概78节算实锤？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #880](https://twitter.com/LoremIpsumVerb/status/1585237658938507264)
+
+The only Royal Candidate who hasn't died in any part of the timeline experienced by Subaru in the main story is Crusch Karsten.
+
+Felt died in Arc 1, Emilia in Arc 3, Priscilla in "Pride, Prejudice and Zombies", and Anastasia in Arc 6.
+
+（截至当前〔2022-10〕剧情汇总。出处trivia里本身也算有了）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
