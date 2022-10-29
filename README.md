@@ -51,7 +51,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) <!--&zwnj; [881-890](#re-zero-daily-trivia-881)-->
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) &zwnj; [881-890](#re-zero-daily-trivia-881)
 
 ---
 
@@ -12360,6 +12360,39 @@ The only Royal Candidate who hasn't died in any part of the timeline experienced
 Felt died in Arc 1, Emilia in Arc 3, Priscilla in "Pride, Prejudice and Zombies", and Anastasia in Arc 6.
 
 （截至当前〔2022-10〕剧情汇总。出处trivia里本身也算有了）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #881](https://mobile.twitter.com/LoremIpsumVerb/status/1585657653044416514)
+
+Something special for today! I've done a full summary for Stand by me Pleiades, Part Five - the new Side Story part that just came out today.
+
+Enjoy!
+
+<details>
+<summary>（Ice的Pleiades短篇1-5总结）</summary>
+
+![](https://pbs.twimg.com/media/FgFi5IGXwAAzdGl?format=png)
+![](https://pbs.twimg.com/media/FgFjEV9X0AA2YCS?format=png)
+![](https://pbs.twimg.com/media/FgFjJEIWQAE7OsC?format=png)
+![](https://pbs.twimg.com/media/FgFjKq6WIAA66Dp?format=png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #882](https://twitter.com/LoremIpsumVerb/status/1585966750474330113)
+
+According to Natsuki Kenichi in the trial, Subaru's dad, the amount of high school girls he has in his phone's contact list numbers close to three digits.
+
+In comparison, Subaru's own contact list barely even reached two digits.
+
+（Web四章17节）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
