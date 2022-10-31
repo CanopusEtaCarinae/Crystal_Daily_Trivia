@@ -12398,6 +12398,45 @@ In comparison, Subaru's own contact list barely even reached two digits.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #883](https://twitter.com/LoremIpsumVerb/status/1586363905366016003)
+
+According to the author, if he were to rank the Royal Section candidates based off how good they are at singing, it would be:
+
+Priscilla > Anastasia > Crusch > Felt >>>>>>> Emilia
+
+（19年安娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #884](https://twitter.com/LoremIpsumVerb/status/1586705328938303489)
+
+According to Tappei, Frederica Baumann's favourite food are Stiroberries, Re: Zero's version of strawberries.
+
+She secretly soaks them in honey, bottling them for her own personal use, and when work ends, she enjoys eating them one at a time.
+
+（17年芙蕾生日〔实际问答推迟至次年1月2日〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #885](https://twitter.com/LoremIpsumVerb/status/1587060906206367745)
+
+When asked how you would translate the words "I love you" into Echidna's style, Tappei replied saying you'd find it written over a span of around four pages in Volume 12.
+
+Of course, he was referring to Echidna's grand speech to Subaru.
+
+（19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -12499,5 +12538,7 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 作息 起居：ask.fm スバルの一日
 
 【巨】 trivia 870
+
+未来台词 https://tieba.baidu.com/photo/p?kw=re%E4%BB%8E%E9%9B%B6%E5%BC%80%E5%A7%8B%E5%BC%82%E4%B8%96%E7%95%8C%E7%94%9F%E6%B4%BB&flux=1&tid=6313667217&pic_id=6b7215cb39dbb6fd4e5d33560624ab18962b37e0&pn=1&fp=2&see_lz=1
 
 -->
