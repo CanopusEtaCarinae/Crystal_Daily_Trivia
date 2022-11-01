@@ -12437,6 +12437,21 @@ Of course, he was referring to Echidna's grand speech to Subaru.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #886](https://twitter.com/LoremIpsumVerb/status/1587437322370535424)
+
+According to the author, Al isn't that strong, ranking somewhere around upper-middle. He's around about the same strength ranking as Mimi and such.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：アルってどれくらい強いんですか？<br/>
+A：強くないよ。中の上。ミミとかとそんな変わりません。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
