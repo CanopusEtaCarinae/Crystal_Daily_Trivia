@@ -12453,6 +12453,31 @@ A：強くないよ。中の上。ミミとかとそんな変わりません。
 
 ---
 
+#### [Re: Zero Daily Trivia #887](https://twitter.com/LoremIpsumVerb/status/1587819887963013122)
+
+According to Tappei, Priscilla is overwhelmingly resistant to tickling.
+
+She would glare coldly at the person tickling her and they, unable to bear her gaze, would regret trying, with the inevitable "Death" that would likely arise the moment they quit.
+
+（18年寡妇生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E6%99%AE%E8%8E%89%E5%B8%8C%E6%8B%89/%E7%8C%AB%E8%AF%AD)未收录此条，[原推](https://twitter.com/nezumiironyanko/status/1038425561377296384)提问者不可见。原问题大概只有[Reddit](https://www.reddit.com/r/Re_Zero/comments/9ejfwd/translation_priscillas_birthday_2018_qa_tweets/)英肉存档可看）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #888](https://twitter.com/LoremIpsumVerb/status/1588153933624737794)
+
+According to the author, the person that Joshua Euculius - Julius' adopted younger brother - dislikes the most, is himself.
+
+How depressing, poor Joshua.
+
+（19年Joshua生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
