@@ -12502,6 +12502,7 @@ According to the author, if Garfiel visited a sushi restaurant, the way he'd gre
 [Return to top](#crystals-daily-trivias)
 
 ---
+
 <!-- Other notes:
 
 莱傲天视角避免
