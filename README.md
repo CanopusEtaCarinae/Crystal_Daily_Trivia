@@ -51,7 +51,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [701-710](#re-zero-daily-trivia-701) (22-05) &zwnj; [711-720](#re-zero-daily-trivia-711) &zwnj; [721-730](#re-zero-daily-trivia-721) &zwnj; [731-740](#re-zero-daily-trivia-731) (22-06) &zwnj; [741-750](#re-zero-daily-trivia-741) &zwnj; [751-760](#re-zero-daily-trivia-751) &zwnj; [761-770](#re-zero-daily-trivia-761) (22-07) &zwnj; [771-780](#re-zero-daily-trivia-771) &zwnj; [781-790](#re-zero-daily-trivia-781) &zwnj; [791-800](#re-zero-daily-trivia-791) (22-08)
 
-[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) &zwnj; [881-890](#re-zero-daily-trivia-881) <!--&zwnj; [891-900](#re-zero-daily-trivia-891)-->
+[801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) &zwnj; [881-890](#re-zero-daily-trivia-881) (22-11) &zwnj; [891-900](#re-zero-daily-trivia-891)
 
 ---
 
@@ -12440,6 +12440,8 @@ Of course, he was referring to Echidna's grand speech to Subaru.
 
 #### [Re: Zero Daily Trivia #886](https://twitter.com/LoremIpsumVerb/status/1587437322370535424)
 
+(2022-11-01)
+
 According to the author, Al isn't that strong, ranking somewhere around upper-middle. He's around about the same strength ranking as Mimi and such.
 
 <details>
@@ -12503,6 +12505,31 @@ According to the author, if Garfiel visited a sushi restaurant, the way he'd gre
 
 ---
 
+#### [Re: Zero Daily Trivia #891](https://twitter.com/LoremIpsumVerb/status/1589263730193276928)
+
+The author has only ever repeated a chapter title once thus far in the Re: Zero Web Novel.
+
+That title is "Fhrend", appearing in Arc 4, Chapter 39 and recently in Arc 7, Chapter 85.
+
+（《友人》标题七章重现）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #892](https://twitter.com/LoremIpsumVerb/status/1589615646337552384)
+
+The first character to receive a named chapter in Re: Zero was Rem.
+
+As well as that, she was also the first character to receive an IF story, both in the Web Novel, and as a published Light Novel.
+
+（第一篇名前回、IF）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
