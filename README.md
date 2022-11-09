@@ -12530,6 +12530,19 @@ As well as that, she was also the first character to receive an IF story, both i
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #893](https://twitter.com/LoremIpsumVerb/status/1590014639081156608)
+
+According to Tappei, Felix was once set as one of his 5 candidates for final boss in Re: Zero.
+
+It would have been something like him falling to darkness, using his magic to control everyone. But, thanks to Crusch, this didn't happen.
+
+（[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
