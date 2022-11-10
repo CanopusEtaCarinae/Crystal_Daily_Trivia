@@ -12543,6 +12543,21 @@ It would have been something like him falling to darkness, using his magic to co
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #894](https://mobile.twitter.com/LoremIpsumVerb/status/1590357444085313536)
+
+According to the author, Subaru's special skills (from Earth) include: playing cat's cradle, bamboo-copters, spinning tops, singing to his own musical accompaniment, sculpting, bed making, ironing, sewing, and such.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルの特技を教えてください<br/>
+A：あやとり、竹トンボ、コマ回し、弾き語り、彫刻、ベッドメイキング、アイロンかけ、裁縫、その他エトセトラ
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -12636,6 +12651,8 @@ RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
 时间 停 阴魔法 4章 67
 
 怠惰 画 多死 #770
+
+怠惰 名字坑 重要 Web三章设定
 
 EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/1558764868953833472 #807
 
