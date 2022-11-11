@@ -4000,9 +4000,9 @@ Contrary to popular belief, Re: Zero was originally planned to have nine arcs, n
 Sometime after Arc two was added, Tappei decided to add yet another Arc to the story, pushing the total to eleven. The Arc he decided to add in the end is unknown
 
 
-https://mobile.twitter.com/nezumiironyanko/status/378871937499279361
+https://twitter.com/nezumiironyanko/status/378871937499279361
 
-【看起来是出自 https://mobile.twitter.com/nezumiironyanko/status/378871937499279361 和[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)，不过不太确定……】
+【看起来是出自 https://twitter.com/nezumiironyanko/status/378871937499279361 和[签名会](https://rezero.fandom.com/zh/wiki/%E5%AD%98%E6%A1%A3:%E7%AD%BE%E5%90%8D%E4%BC%9A)，不过不太确定……】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
@@ -12366,7 +12366,7 @@ Felt died in Arc 1, Emilia in Arc 3, Priscilla in "Pride, Prejudice and Zombies"
 
 ---
 
-#### [Re: Zero Daily Trivia #881](https://mobile.twitter.com/LoremIpsumVerb/status/1585657653044416514)
+#### [Re: Zero Daily Trivia #881](https://twitter.com/LoremIpsumVerb/status/1585657653044416514)
 
 Something special for today! I've done a full summary for Stand by me Pleiades, Part Five - the new Side Story part that just came out today.
 
@@ -12544,7 +12544,7 @@ It would have been something like him falling to darkness, using his magic to co
 
 ---
 
-#### [Re: Zero Daily Trivia #894](https://mobile.twitter.com/LoremIpsumVerb/status/1590357444085313536)
+#### [Re: Zero Daily Trivia #894](https://twitter.com/LoremIpsumVerb/status/1590357444085313536)
 
 According to the author, Subaru's special skills (from Earth) include: playing cat's cradle, bamboo-copters, spinning tops, singing to his own musical accompaniment, sculpting, bed making, ironing, sewing, and such.
 
@@ -12552,6 +12552,28 @@ According to the author, Subaru's special skills (from Earth) include: playing c
 <summary>（ask.fm：）</summary>
 Q：スバルの特技を教えてください<br/>
 A：あやとり、竹トンボ、コマ回し、弾き語り、彫刻、ベッドメイキング、アイロンかけ、裁縫、その他エトセトラ
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #895](https://twitter.com/LoremIpsumVerb/status/1590724907440431104)
+
+This is what a typical day looked like for Subaru when he was a hikikomori:
+
+4 AM: Sleep<br/>
+12 PM: Wake up, 4 hours of hobbies<br/>
+4 PM: 2 hour nap<br/>
+6 PM: Get up and have dinner<br/>
+7 PM: Hobbies (Internet, Manga, Weight Training)<br/>
+12 AM: Hobbies until bedtime at 4<br/>
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルの一日ってどんな感じなんです？ 現実世界と異世界の両方教えてくだしゃい<br/>
+A：現実『朝４時就寝→昼１２時起床→趣味の研鑽に４時間費やす→２時間昼寝して１８時起床→夜ごはん→１９時から趣味（ネット・漫画・筋トレ）→０時から４時まで趣味の研鑽→寝て終了。異世界『５時半起床→レムラムと朝のミーティング→６時にエミリアの日課に合流→７時前に村でラジオ体操→８時前に戻り朝食→朝食後、片付けしながらラムと昼まで雑用→１２時過ぎに昼食→片付け、午後の雑用→レムラムと戯れる→１６時過ぎに手が空き、ベアトリスと遊ぶ→１８時前後に夕食準備の手伝い→１９時夕食→２０時夜の片付けと、勉強会→２２時前後にエミリアにお休みの挨拶→２３時前に就寝。ぐらいの感じです。
 </details>
 
 [Return to Content](#Content)<br/>
@@ -12658,7 +12680,7 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 章节长度 #192/193 https://discord.com/channels/779185920670171136/779190786771255306/1008710503998173204
 
-作息 起居：ask.fm スバルの一日
+作息 起居：ask.fm スバルの一日 #895
 
 【巨】 trivia 870
 
