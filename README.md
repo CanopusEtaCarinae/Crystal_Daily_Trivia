@@ -25,7 +25,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [605](#re-zero-daily-trivia-605) &nbsp; [610](#re-zero-daily-trivia-610) &nbsp; [617](#re-zero-daily-trivia-617) &nbsp; [618](#re-zero-daily-trivia-618) &nbsp; [625](#re-zero-daily-trivia-625)
 
-[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839) &nbsp; [854](#re-zero-daily-trivia-854) &nbsp; [855](#re-zero-daily-trivia-855) &nbsp; [856](#re-zero-daily-trivia-856)
+[784](#re-zero-daily-trivia-784) &nbsp; [839](#re-zero-daily-trivia-839) &nbsp; [854](#re-zero-daily-trivia-854) &nbsp; [855](#re-zero-daily-trivia-855) &nbsp; [856](#re-zero-daily-trivia-856) &nbsp; [896](#re-zero-daily-trivia-896)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
@@ -12575,6 +12575,30 @@ This is what a typical day looked like for Subaru when he was a hikikomori:
 Q：スバルの一日ってどんな感じなんです？ 現実世界と異世界の両方教えてくだしゃい<br/>
 A：現実『朝４時就寝→昼１２時起床→趣味の研鑽に４時間費やす→２時間昼寝して１８時起床→夜ごはん→１９時から趣味（ネット・漫画・筋トレ）→０時から４時まで趣味の研鑽→寝て終了。異世界『５時半起床→レムラムと朝のミーティング→６時にエミリアの日課に合流→７時前に村でラジオ体操→８時前に戻り朝食→朝食後、片付けしながらラムと昼まで雑用→１２時過ぎに昼食→片付け、午後の雑用→レムラムと戯れる→１６時過ぎに手が空き、ベアトリスと遊ぶ→１８時前後に夕食準備の手伝い→１９時夕食→２０時夜の片付けと、勉強会→２２時前後にエミリアにお休みの挨拶→２３時前に就寝。ぐらいの感じです。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #896](https://twitter.com/LoremIpsumVerb/status/1591079809307873280)
+
+Fans of the series are known to have gifted all sorts of weird and wonderful things to the author as a token of appreciation.
+
+Among them, perhaps the most peculiar gift was the time he was gifted land on the moon in Roswaal's name.
+
+【看起来似乎和[Web十周年问答](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)有关，不过这条trivia似乎不是在讲问题本身的事……[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)似乎也不是很具体地对应trivia本身……大概要等了解具体的大佬帮忙解释】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #897](https://twitter.com/LoremIpsumVerb/status/1591430586316775424)
+
+According to the author, mayonnaise doesn't do much for Otto Suwen; however, he wouldn't bother expressing this in front of the people who like it.
+
+（19年奥托生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
