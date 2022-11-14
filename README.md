@@ -12605,6 +12605,18 @@ According to the author, mayonnaise doesn't do much for Otto Suwen; however, he 
 
 ---
 
+#### [Re: Zero Daily Trivia #898](https://twitter.com/LoremIpsumVerb/status/1591819625591103488)
+
+According to the author, Roswaal likely didn't know about the purpose of the pendant Subaru wore in the Kasaneru Route, in regards to it allowing him to meet Echidna.
+
+That's likely because Echidna told Subaru not to tell him.
+
+（19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
