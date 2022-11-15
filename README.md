@@ -12617,6 +12617,23 @@ That's likely because Echidna told Subaru not to tell him.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #899](https://twitter.com/LoremIpsumVerb/status/1592171324524630018)
+
+Though seemingly obvious, the fact that Subaru fell in love with Emilia at first sight is actually outright stated in the official text.
+
+The place it's stated is Subaru's official Arc Three Manga profile.
+
+<details>
+<summary>（三章漫画单行本第03话扉页）</summary>
+
+![](https://pbs.twimg.com/media/FhiHacNWIAAgLSp?format=png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
