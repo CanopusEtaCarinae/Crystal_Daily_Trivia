@@ -53,7 +53,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) &zwnj; [881-890](#re-zero-daily-trivia-881) (22-11) &zwnj; [891-900](#re-zero-daily-trivia-891)
 
-<!--[901-910](#re-zero-daily-trivia-901)-->
+[901-910](#re-zero-daily-trivia-901)
 
 ---
 
@@ -12638,6 +12638,19 @@ The place it's stated is Subaru's official Arc Three Manga profile.
 ---
 
 #### [#900 九百条纪念](https://twitter.com/LoremIpsumVerb/status/1592577139693719552)
+
+---
+
+#### [Re: Zero Daily Trivia #901](https://twitter.com/LoremIpsumVerb/status/1592891728058781697)
+
+Moguro Hagane, the 8th ranking Divine General of the Vollachian Empire, is part of the Steelfolk tribe.
+
+Ironically enough, his name is actually based off Japanese, and can literally translated to something like "Digger Steel".
+
+（ 潜る〔Moguru〕鋼〔Hagane 〕。[零大七章93节梗概](https://rezero.fandom.com/zh/f/p/4400000000000041743)也有解释）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---
 <!-- Other notes:
