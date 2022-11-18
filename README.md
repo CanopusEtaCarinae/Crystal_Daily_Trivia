@@ -12653,6 +12653,19 @@ Ironically enough, his name is actually based off Japanese, and can literally tr
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #902](https://twitter.com/LoremIpsumVerb/status/1593274341533286400)
+
+According to the author, Echidna, in her lifetime, set an island afloat just ahead of the Great Waterfall and lived there.
+
+It's unknown if this was the same place her palace was showcased in "Loving the Days Gone By".
+
+（19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
