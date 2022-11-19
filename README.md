@@ -12666,6 +12666,21 @@ It's unknown if this was the same place her palace was showcased in "Loving the 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #903](https://twitter.com/LoremIpsumVerb/status/1593652268720603137)
+
+When asked what stuff Emilia is better at than Subaru except looks and fighting strength, the author replied that it was hard for him to find anything Subaru beat Emilia at, except pluckiness and stuff like being taller when sitting.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エミリアたんがスバルに勝っているところは、容姿と戦闘力以外になにがありますか？<br/>
+A：スバルの方こそ、根性以外でエミリアたんに勝ってるところを探すのが難しいよ。座高とか？
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
