@@ -12681,6 +12681,19 @@ A：スバルの方こそ、根性以外でエミリアたんに勝ってると�
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #904](https://twitter.com/LoremIpsumVerb/status/1594073504118349827)
+
+According to the author, there was some sort of a chance that Subaru's tracksuit was a gift for his birthday from his parents.
+
+He speculated that perhaps it was custom-made for him, given it has the letter "N" on it.
+
+（Web十周年问答【不过目前的[汇总翻译](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)以及参考的两个原推[[1]](https://twitter.com/yumito_Re/status/1516796572993867780)[[2]](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)似乎未收录。仅[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)有明确来源】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -12752,6 +12765,8 @@ https://twitter.com/nezumiironyanko/status/843489782328057858
 怠惰 权能 愿 https://twitter.com/nezumiironyanko/status/1081185297281429504
 
 拉姆 怠惰 附身 https://twitter.com/nezumiironyanko/status/858982749369020416
+
+拉姆 白鲸 房间 收拾 https://twitter.com/nezumiironyanko/status/764966382551248896
 
 雷德无加护-web5章79
 
