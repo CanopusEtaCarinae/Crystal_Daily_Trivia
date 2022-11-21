@@ -12694,6 +12694,19 @@ He speculated that perhaps it was custom-made for him, given it has the letter "
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #905](https://twitter.com/LoremIpsumVerb/status/1594422867860590592)
+
+According to Tappei, the throne in Pandemonium which Subaru sat on in Oboreru was a genuine Meteor. Thanks to that, it enabled the throne room to weather Reinhard's attack
+
+Its inner workings were similar to Elsa's cape, but far more effective
+
+（18年猎肠生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
