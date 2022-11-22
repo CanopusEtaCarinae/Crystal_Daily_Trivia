@@ -12707,6 +12707,32 @@ Its inner workings were similar to Elsa's cape, but far more effective
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #906](https://twitter.com/LoremIpsumVerb/status/1594818065656684549)
+
+Kadomon Risch, colloquially known as the "Appa Man", used to work in connection with smugglers.
+
+In the Web Novel version of Arc Three, he helped smuggle Subaru into the upper ward of the noble district for the candidate speeches.
+
+（Web三章12）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #907](https://twitter.com/LoremIpsumVerb/status/1595036714732486658)
+
+Patrasche, Subaru's loyal Earth Dragon, takes her name from the 1872 novel (and adaptations thereof) "A Dog of Flanders".
+
+Other references to this work are found in Re: Zero, including the city of Flanders and Subaru's phone ringtone.
+
+（这个应该算读者可以自行考证出来的信息了）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
