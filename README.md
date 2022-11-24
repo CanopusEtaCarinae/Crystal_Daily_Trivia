@@ -1765,7 +1765,7 @@ Tappei has mentioned that Emilia will go through three "heroine" transformations
 https://twitter.com/nezumiironyanko/status/295163540787040256<br/>
 https://twitter.com/nezumiironyanko/status/333918902616731648
 <!--
-https://twitter.com/search?q=4%E7%AB%A0%20%E3%83%92%E3%83%AD%E3%82%A4%E3%83%B3%20(from%3Anezumiironyanko)&src=typed_query&f=top
+https://twitter.com/search?q=4%E7%AB%A0%20%E3%83%92%E3%83%AD%E3%82%A4%E3%83%B3%20(from%3Anezumiironyanko)&src=typed_query&f=top  (转变/变化/变身)
 Q：スバルの変身はあと一回ですか？もうちょっとありますか？<br/>
 A：あと２回変身するね。-->
 
@@ -12733,6 +12733,31 @@ Other references to this work are found in Re: Zero, including the city of Fland
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #908](https://twitter.com/LoremIpsumVerb/status/1595398722892009472)
+
+Not including side content and other bonuses, Tappei has consistently published Re Zero Light Novel volumes without taking any break of over 4 months since serialisation began in January 2014.
+
+On average, he has published a volume per 71 days.
+
+（统计信息直接看原推文回复罢……）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #909](https://twitter.com/LoremIpsumVerb/status/1595751326570647553)
+
+According to the author, Anastasia Hoshin's favourite food is daisukiyaki with alcohol. Contrary to expectations, she's a rather heavy drinker.
+
+（18年安娜生日，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%AE%89%E5%A8%9C%E6%96%AF%E5%A1%94%E8%A5%BF%E5%A8%85/%E7%8C%AB%E8%AF%AD)未收录）<br/>
+https://twitter.com/nezumiironyanko/status/972438354871513090
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
 <!-- Other notes:
 
 莱傲天视角避免
@@ -12778,6 +12803,8 @@ https://docs.google.com/document/d/1Cm_tWVacTStjqwiuOy1HZceV1uPMZxKifnqpT3jWpJY/
 https://twitter.com/LoremIpsumVerb/status/1266149202389872641
 
 掰腕飞 https://twitter.com/nezumiironyanko/status/860502409621024770
+
+486 EMT 转变/变化/变身 trivia 123(124)
 
 八章？ https://twitter.com/nezumiironyanko/status/347925526373101568
 
