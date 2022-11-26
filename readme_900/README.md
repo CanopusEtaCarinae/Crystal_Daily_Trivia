@@ -9,7 +9,9 @@
 
 ### Content
 
-[901-910](#re-zero-daily-trivia-901) <!--&zwnj; [911-920](#re-zero-daily-trivia-911)-->
+[1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
+
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911)
 
 ---
 
@@ -128,5 +130,35 @@ https://twitter.com/nezumiironyanko/status/972438354871513090
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #910](https://twitter.com/LoremIpsumVerb/status/1596138054762258434)
+
+After the Witch Factor of Greed chose Regulus Corneas, he murdered not only his family and the people in his village, but also in the town that had forced him to live there, and worse still, he destroyed his entire home country in retaliation.
+
+（19卷强欲名前回）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #911](https://twitter.com/LoremIpsumVerb/status/1596450950557814785)
+
+Once again, a special trivia; I've summarised Stand by me Pleiades, Part 6 - the final part of this half a year side story sequence.
+
+Hope you all enjoy! This part was really good, in my opinion. <!--1-5:trivia #881-->
+
+<details>
+<summary>（Ice的Pleiades短篇6总结）</summary>
+
+![](https://pbs.twimg.com/media/Fie7gF3XkAInTL4?format=png)
+![](https://pbs.twimg.com/media/Fie7lpCWYAA-rQi?format=png)
+![](https://pbs.twimg.com/media/Fie7n3JXgAIwLZt?format=png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---

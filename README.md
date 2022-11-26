@@ -29,9 +29,9 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
-因github仓库首页显示限制，后续内容转至下一文件：
+因github仓库首页显示限制，后续内容另起文档：
 
-[901-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md)
+[901-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
 </details>
 
@@ -57,9 +57,9 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) &zwnj; [881-890](#re-zero-daily-trivia-881) (22-11) &zwnj; [891-900](#re-zero-daily-trivia-891)
 
-因github仓库首页显示限制，后续内容转至下一文件：
+因github仓库首页显示限制，后续内容另起文档：
 
-[901-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md)
+[901-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
 ---
 
@@ -12378,7 +12378,7 @@ Felt died in Arc 1, Emilia in Arc 3, Priscilla in "Pride, Prejudice and Zombies"
 
 Something special for today! I've done a full summary for Stand by me Pleiades, Part Five - the new Side Story part that just came out today.
 
-Enjoy!
+Enjoy! <!--6:trivia #911-->
 
 <details>
 <summary>（Ice的Pleiades短篇1-5总结）</summary>
@@ -12647,7 +12647,7 @@ The place it's stated is Subaru's official Arc Three Manga profile.
 
 ---
 
-[后续部分因github首页无法显示过长内容转至下一文件](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md)
+[后续部分因github首页无法显示过长内容转至下一文档](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
 <!-- Other notes:
 
