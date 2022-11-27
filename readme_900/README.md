@@ -162,3 +162,14 @@ Hope you all enjoy! This part was really good, in my opinion. <!--1-5:trivia #88
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #912](https://twitter.com/LoremIpsumVerb/status/1596833777913065477)
+
+After Regulus' heart inside Emilia's body was crushed and the latter lost his permanent invincibility, Emilia punished Regulus first by hitting him with an ice hammer and then by punching and kicking him 53 times; one for each of his wives.
+
+（19卷第五章第3节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---

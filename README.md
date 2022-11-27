@@ -29,7 +29,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 十周年问答资源待补：[697](#re-zero-daily-trivia-697) &nbsp; [715](#re-zero-daily-trivia-715)
 
-因github仓库首页显示限制，后续内容另起文档：
+**因github仓库首页显示限制，后续内容另起文档：**
 
 [901-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
@@ -57,7 +57,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [801-810](#re-zero-daily-trivia-801) &zwnj; [811-820](#re-zero-daily-trivia-811) &zwnj; [821-830](#re-zero-daily-trivia-821) (22-09) &zwnj; [831-840](#re-zero-daily-trivia-831) &zwnj; [841-850](#re-zero-daily-trivia-841) &zwnj; [851-860](#re-zero-daily-trivia-851) (22-10) &zwnj; [861-870](#re-zero-daily-trivia-861) &zwnj; [871-880](#re-zero-daily-trivia-871) &zwnj; [881-890](#re-zero-daily-trivia-881) (22-11) &zwnj; [891-900](#re-zero-daily-trivia-891)
 
-因github仓库首页显示限制，后续内容另起文档：
+**因github仓库首页显示限制，后续内容另起文档：**
 
 [901-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
