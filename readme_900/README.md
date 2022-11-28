@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911)
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)-->
 
 ---
 
@@ -171,5 +171,17 @@ After Regulus' heart inside Emilia's body was crushed and the latter lost his pe
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #913](https://twitter.com/LoremIpsumVerb/status/1597218050268631041)
+
+According to the author, the kind of alcohol Crusch Karsten likes is one that resembles brandy. She can be seen drinking it when meeting Subaru in Volume 5.
+
+（19年库珥修生日，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%BA%93%E7%8F%A5%E4%BF%AE/%E7%8C%AB%E8%AF%AD)未收录）<br/>
+https://twitter.com/nezumiironyanko/status/981542879272173569
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
