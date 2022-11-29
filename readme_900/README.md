@@ -185,3 +185,16 @@ https://twitter.com/nezumiironyanko/status/981542879272173569
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #914](https://twitter.com/LoremIpsumVerb/status/1597520959438991360)
+
+Despite apparently never visiting the Pleiades Watchtower, let alone reaching its top, Emilia felt a strange sense of déjà vu about the handprints left on the monolith.
+
+One of them even perfectly overlapped with her own hand.
+
+（Web六章88节，文库25卷八章5节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
