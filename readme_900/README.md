@@ -198,3 +198,16 @@ One of them even perfectly overlapped with her own hand.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #915](https://twitter.com/LoremIpsumVerb/status/1597939247457394689)
+
+When the author began to do Birthday Q&A's for his characters in 2017, he purposely announced he couldn't do one for Emilia.
+
+This was because there was still heaps of stuff he hasn't talked about, with Emilia being full of mysteries.
+
+https://twitter.com/nezumiironyanko/status/911575957986697216
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
