@@ -212,3 +212,28 @@ https://twitter.com/nezumiironyanko/status/911575957986697216
 
 ---
 
+#### [Re: Zero Daily Trivia #916](https://twitter.com/LoremIpsumVerb/status/1598298248585924608)
+
+Though not known by many, Re: Zero and Mushoku Tensei have a collaboration short novel written by the two authors.
+
+The short story is illustrated by Yuka Fujikawa, the artist for Mushoku Tensei's manga adaptation.
+
+（莓大佬译文：https://tieba.baidu.com/p/6936529656）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #917](https://twitter.com/LoremIpsumVerb/status/1598667822019772417)
+
+In the Web Novel version of Re: Zero, Kadomon mentions hobbits as being a type of Demi-Human that are occasionally seen in the Royal Capital.
+
+Meaning Hobbits, at least in Web Novel canon, exist in Re: Zero.
+
+（Web三章27节〔ホビット〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
