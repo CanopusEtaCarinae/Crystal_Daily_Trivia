@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)--> <!--&zwnj; [931-940](#re-zero-daily-trivia-931)-->
 
 ---
 
@@ -232,6 +232,23 @@ In the Web Novel version of Re: Zero, Kadomon mentions hobbits as being a type o
 Meaning Hobbits, at least in Web Novel canon, exist in Re: Zero.
 
 （Web三章27节〔ホビット〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #918](https://twitter.com/LoremIpsumVerb/status/1599028065581305856)
+
+According to the author, Priscilla Barielle would probably be the only one among the Royal Candidates who wouldn't react in shock if her mansion burnt down.
+
+On the contrary, according to the author, she would probably laugh.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：王候補者のみなさんは、自分の屋敷が全焼したらどう思うんですか？<br/>
+A：王選候補に限らず、大体の人が家が燃えたらショックを受けると思います。プリシラだけは笑うかもしれませんが。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
