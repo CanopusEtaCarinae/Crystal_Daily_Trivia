@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)--> <!--&zwnj; [931-940](#re-zero-daily-trivia-931)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)--> <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)-->
 
 ---
 
@@ -248,6 +248,21 @@ On the contrary, according to the author, she would probably laugh.
 <summary>（ask.fm：）</summary>
 Q：王候補者のみなさんは、自分の屋敷が全焼したらどう思うんですか？<br/>
 A：王選候補に限らず、大体の人が家が燃えたらショックを受けると思います。プリシラだけは笑うかもしれませんが。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #919](https://twitter.com/LoremIpsumVerb/status/1599361222805426176)
+
+According to the author, if the original plot for Arc Four had been followed, only Echidna would have shown up from the Witches.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：４章って、プロット通りだったら、スバルとエミリアとロズワールと魔女組ぐらいしか出番なかったんですか？ 無駄にメンツが濃いな。薄いキャラが足りませんね、オットーとか。<br/>
+A：ガーフィールとフレデリカもいたよ？魔女組は逆にエキドナ単体だった。まあ、でもそこまで変わらんよ。
 </details>
 
 [Return to Content](#Content)<br/>

@@ -673,7 +673,6 @@ Emilia has one of the highest pools of mana available, presumably at her peak, b
 
 However, since she is still honing her control over her magical talent, at this point in the story her strength is comparable to Priscilla.
 
-
 <details>
 <summary>（18年寡妇生日；ask.fm：）</summary>
 Q：今までに登場したキャラクターで、保持できるマナの量上位10名あげるなら誰ですか?<br/>
