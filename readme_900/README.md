@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)--> <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)--> <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)-->
 
 ---
 
@@ -214,6 +214,8 @@ https://twitter.com/nezumiironyanko/status/911575957986697216
 
 #### [Re: Zero Daily Trivia #916](https://twitter.com/LoremIpsumVerb/status/1598298248585924608)
 
+(2022-12-01)
+
 Though not known by many, Re: Zero and Mushoku Tensei have a collaboration short novel written by the two authors.
 
 The short story is illustrated by Yuka Fujikawa, the artist for Mushoku Tensei's manga adaptation.
@@ -264,6 +266,17 @@ According to the author, if the original plot for Arc Four had been followed, on
 Q：４章って、プロット通りだったら、スバルとエミリアとロズワールと魔女組ぐらいしか出番なかったんですか？ 無駄にメンツが濃いな。薄いキャラが足りませんね、オットーとか。<br/>
 A：ガーフィールとフレデリカもいたよ？魔女組は逆にエキドナ単体だった。まあ、でもそこまで変わらんよ。
 </details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #920](https://twitter.com/LoremIpsumVerb/status/1599735746679607297)
+
+Though it's well known that Beatrice speaks using the verbal tic "kashira" (I suppose), translations don't typically reflect that Beatrice speaks with another verbal tic in Japanese, ending some of her sentences with "no yo" (in fact).
+
+（贝蒂口癖与翻译？）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
