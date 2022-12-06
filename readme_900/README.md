@@ -282,3 +282,4 @@ Though it's well known that Beatrice speaks using the verbal tic "kashira" (I su
 [Return to top](#crystals-daily-trivias)
 
 ---
+
