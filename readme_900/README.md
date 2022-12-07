@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) <!--&zwnj; [921-930](#re-zero-daily-trivia-921)--> <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)-->
 
 ---
 
@@ -283,3 +283,15 @@ Though it's well known that Beatrice speaks using the verbal tic "kashira" (I su
 
 ---
 
+#### [Re: Zero Daily Trivia #921](https://twitter.com/LoremIpsumVerb/status/1600131163699281920)
+
+Priscilla Barielle has so far been depicted to have kissed several characters in the series.
+
+From them, these include Liliana, Arakiya, Al and a girl from the village of Coffleton. Each time, the kiss was for a stated non-romantic purpose.
+
+（水门都市篇、红莲的残影、傲慢与偏见与僵尸）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
