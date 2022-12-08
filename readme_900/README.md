@@ -295,3 +295,33 @@ From them, these include Liliana, Arakiya, Al and a girl from the village of Cof
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #922](https://twitter.com/LoremIpsumVerb/status/1600515549682860034)
+
+Back when Arc Three of the Re: Zero Web Novel was first written and Priscilla was introduced, many readers thought she was a lolibaba due to the ambiguity in her description.
+
+Many readers ended up being surprised by her busty official design.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：プリシラ様はもっとちっちゃくてペッタン娘だと思うとった<br/>
+A：ロリババアだと思ってたやつ多いよな。最初から巨乳って書いてたっちゅうねん
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #923](https://twitter.com/LoremIpsumVerb/status/1600848084032180227)
+
+The character who has appeared in most Re: Zero covers (including Tanpenshuu, EX and Zeropedia) is Emilia, with a whopping 10 cover appearances from a possible 46.
+
+That puts her at around 20% chance of appearing on any given Re: Zero cover.
+
+（46：正传32、短篇集1-8、外传1-5、Zeropedia；EMT占正传1，9，14，18，短篇集1，2，3，7，8，Zeropedia）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
