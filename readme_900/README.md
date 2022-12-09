@@ -325,3 +325,4 @@ That puts her at around 20% chance of appearing on any given Re: Zero cover.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
