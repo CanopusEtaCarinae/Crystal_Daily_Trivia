@@ -326,3 +326,23 @@ That puts her at around 20% chance of appearing on any given Re: Zero cover.
 
 ---
 
+#### [Re: Zero Daily Trivia #924](https://twitter.com/LoremIpsumVerb/status/1601307354058100736)
+
+According to Tappei, this is how each Royal Candidate defines what it means to live.
+
+Emilia "To do your best"<br/>
+Felt "To eat to your heart's content"<br/>
+Ana. "To never stop walking"<br/>
+Crusch "To not bring shame upon oneself"<br/>
+Priscilla "To be happy under me"
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：王選メンバーに質問です。『生きることとは何ですか』)<br/>
+A：エミリア「が、がんばること」フェルト「腹いっぱい食えるようにすること」アナスタシア「歩くのをやめんこと」クルシュ「自分に恥じないようにすること」プリシラ「妾の下で幸せになることよの」
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
