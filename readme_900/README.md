@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)-->
 
 ---
 
@@ -340,6 +340,21 @@ Priscilla "To be happy under me"
 <summary>（ask.fm：）</summary>
 Q：王選メンバーに質問です。『生きることとは何ですか』)<br/>
 A：エミリア「が、がんばること」フェルト「腹いっぱい食えるようにすること」アナスタシア「歩くのをやめんこと」クルシュ「自分に恥じないようにすること」プリシラ「妾の下で幸せになることよの」
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #925](https://twitter.com/LoremIpsumVerb/status/1601646224842424320)
+
+When asked in 2014 about how he thought Rem ended up becoming so popular, the author replied with a simple "Everyone loves maids."
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：レムが何故人気でたか。ねこさんの分析は？<br/>
+A：みんなメイド大好きだなぁ
 </details>
 
 [Return to Content](#Content)<br/>
