@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)-->
 
 ---
 
@@ -359,5 +359,16 @@ A：みんなメイド大好きだなぁ
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #926](https://twitter.com/LoremIpsumVerb/status/1602016825814159360)
+
+According to the author, if one of the Pearlbaton triplets were to die, and the others tried to take that burden using their Divine Protection of Trisection, they would also perish along with them.
+
+（18年三姐弟生日，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%9C%9C%E8%9C%9C/%E7%8C%AB%E8%AF%AD)未收录，Ice也未标注本次来源，可能为[此条](https://twitter.com/nezumiironyanko/status/993114444841418758)或[此条](https://twitter.com/nezumiironyanko/status/993114708835094528)。其中第二条提问者不可见，仅有[英肉](https://www.reddit.com/r/Re_Zero/comments/8hsvzj/translation_mimi_hetaro_and_tiveys_birthday_2018)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---
