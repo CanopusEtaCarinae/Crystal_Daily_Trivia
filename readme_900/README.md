@@ -372,3 +372,16 @@ According to the author, if one of the Pearlbaton triplets were to die, and the 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #927](https://twitter.com/LoremIpsumVerb/status/1602370616983707648)
+
+Though well known in Japan, Natsuki Subaru's name literally translates to something like: Pleiades Vegetable-Moon.
+
+His name, Subaru (昴) represents the constellation, whereas his surname Natsuki (菜月) consists of the components for vegetable & moon.
+
+（这算是把汉字也当素材造了个trivia……？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
