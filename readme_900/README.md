@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -380,6 +380,18 @@ Though well known in Japan, Natsuki Subaru's name literally translates to someth
 His name, Subaru (昴) represents the constellation, whereas his surname Natsuki (菜月) consists of the components for vegetable & moon.
 
 （这算是把汉字也当素材造了个trivia……？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #928](https://twitter.com/LoremIpsumVerb/status/1602370616983707648)
+
+According to the author, Felt's most exquisite skill is her deft manner of pickpocketing. This is despite having the natural disadvantage of having short fingers, which makes it naturally harder from the getgo.
+
+（18年菲鲁特生日，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%8F%B2%E9%B2%81%E7%89%B9/%E7%8C%AB%E8%AF%AD)未收录）<br/>
+https://twitter.com/nezumiironyanko/status/1027261189733068800
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias---from-901)
