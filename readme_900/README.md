@@ -397,3 +397,20 @@ https://twitter.com/nezumiironyanko/status/1027261189733068800
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+[#929因WCT有事本日无Trivia](https://twitter.com/LoremIpsumVerb/status/1603122141301309440)
+
+---
+
+#### [Re: Zero Daily Trivia #930](https://twitter.com/LoremIpsumVerb/status/1603456888439508992)
+
+The green earrings Priscilla is frequently depicted wearing, which she later lost in the battle of the five bastions, were actually a gift from her fourth husband.
+
+Not much information exists about her husbands other than Jorah and Leip.
+
+（七章95）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
