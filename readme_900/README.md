@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) <!--&zwnj; [931-940](#re-zero-daily-trivia-931)--> <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -412,5 +412,20 @@ Not much information exists about her husbands other than Jorah and Leip.
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #931](https://twitter.com/LoremIpsumVerb/status/1603865936854777856)
+
+According to the author, a way to win over Echidna is by first defying her expectations and imagination, then you need to keep satisfying her curiousity.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エキドナたんを口説き落とすにはどうすればいいですか<br/>
+A：エキドナの予想と想像を裏切り、好奇心を満たし続けることが必要です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
