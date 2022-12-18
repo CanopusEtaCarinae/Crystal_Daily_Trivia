@@ -429,3 +429,14 @@ A：エキドナの予想と想像を裏切り、好奇心を満たし続ける�
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #932](https://twitter.com/LoremIpsumVerb/status/1604197116393697280)
+
+Though well known that the Crystal Palace is situated right in the middle of the Imperial capital, Lupugana, what's less known is there's a giant reservoir located right behind it, and the star-shaped ramparts are surrounded by water.
+
+【32卷？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
