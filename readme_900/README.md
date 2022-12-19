@@ -440,3 +440,29 @@ Though well known that the Crystal Palace is situated right in the middle of the
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #933](https://twitter.com/LoremIpsumVerb/status/1604600491043950592)
+
+Re: Zero is full of characters who have whacky names like Lululala and Henehehe, but when it comes to the character who has the longest name, there is no character with a longer name than the elf chef "Dias Lepunzo Elemanso Oplane Fatsbalm VI"
+
+（天才厨师Dias的名字）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #934](https://twitter.com/LoremIpsumVerb/status/1604828378770571266)
+
+According to the author, the only way to get Elsa Granhiert to love you is to literally become an intestine.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エルザ姐さんと愛し合うにはどうしたらいいのでしょうか。<br/>
+A：腸に成る
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
