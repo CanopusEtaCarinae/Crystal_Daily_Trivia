@@ -467,3 +467,17 @@ A：腸に成る
 
 ---
 
+#### [Re: Zero Daily Trivia #935](https://twitter.com/LoremIpsumVerb/status/1605288099382284289)
+
+According to the author, the biggest cause of marital arguments between Wilhelm and Theresia was the fact that Wilhelm didn't talk enough.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ｳﾞｨﾙﾍﾙﾑさんとﾃﾚｼｱさんの夫婦喧嘩って大体何が原因で起こるんですか？？<br/>
+A：ヴィルヘルムさんの言葉足らずで起きます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
