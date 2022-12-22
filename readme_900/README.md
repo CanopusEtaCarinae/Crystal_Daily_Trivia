@@ -481,3 +481,49 @@ A：ヴィルヘルムさんの言葉足らずで起きます。
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #936](https://twitter.com/LoremIpsumVerb/status/1605541899917328385)
+
+According to the author, Julius Euculius' then Quasi-Spirit of Yin, Nes, thinks: "I wanna bwe like that...! For Mwaster!" when it sees Beatrice.
+
+A few years later after this comment, Nes has almost achieved that, graduating to Spirit.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ユリウスの闇の準精霊はベアトリスみてどう思ってますかね？<br/>
+A：あたい、あんな風になりたい……！ご主人タマのために！って思ってます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #937](https://twitter.com/LoremIpsumVerb/status/1605909505694367745)
+
+While producing the first season, the staff had difficulty deciding the song to use as Subaru's ringtone
+
+Though they settled on Yoake no Michi from Dog of Flanders, songs like Kanpaku Sengen, The Beard Song & M by Princess Princess were considered too
+
+<details>
+<summary>（动画制作相关采访）</summary>
+
+https://www.animatetimes.com/news/details.php?id=1472111109
+
+**今だから話せる！　爆笑の制作エピソード**
+
+――本作制作にまつわる、今だから話せるエピソードがあれば教えてください。
+
+梅原：本読みの時にあったエピソードですよね。
+
+横谷：これは言ったもん勝ちだよね。皆さん、ツラい状況なのに、あの話になるといつまでもダラダラと話し続けた19話の「白鯨攻略戦」で、白鯨の出現を知らせる着メロですね。オンエアでは『フランダースの犬』のテーマ曲が流れたけど、決まるまで結構、長かったですよね。「関白宣言」はどうだろう？　とか。
+
+梅原：中村さんが「昴」でしたっけ？　僕がプリンセス・プリンセスの「M」で。
+
+……
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
