@@ -527,3 +527,27 @@ https://www.animatetimes.com/news/details.php?id=1472111109
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #938](https://twitter.com/LoremIpsumVerb/status/1606328961213947905)
+
+Starting with Roswaal J. Mathers, Roswaal has been researching and developing a technique to create artificial gates known as "mock-gates".
+
+These gates can at least be implanted into inanimate objects to animate them, like the dolls Karl developed.
+
+（短篇集8蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #939](https://twitter.com/LoremIpsumVerb/status/1606721381374246914)
+
+Back in 2014, one of the very first commercials that aired for Re: Zero was narrated by Nao Toyama, featuring a 14 second voiceover where she mispronounced the series name.
+
+https://www.youtube.com/watch?v=0yvHCMVRrtM
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
