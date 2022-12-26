@@ -551,3 +551,16 @@ https://www.youtube.com/watch?v=0yvHCMVRrtM
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #940](https://twitter.com/LoremIpsumVerb/status/1607038400422641664)
+
+MERRY CHRISTMAS EVERYONE!
+
+Though this detail is typically known to novel readers, Emilia's ice magic does not come from water magic; her natural attribute is fire, just like her aunt Fortuna and Puck, who is the Great Spirit of Fire.
+
+（算是本作设定常识？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
