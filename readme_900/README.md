@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) <!--&zwnj; [941-950](#re-zero-daily-trivia-941)--> <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -559,6 +559,35 @@ MERRY CHRISTMAS EVERYONE!
 Though this detail is typically known to novel readers, Emilia's ice magic does not come from water magic; her natural attribute is fire, just like her aunt Fortuna and Puck, who is the Great Spirit of Fire.
 
 （算是本作设定常识？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #941](https://twitter.com/LoremIpsumVerb/status/1607437996839800837)
+
+According to the author of Mushoku Tensei, he took Re: Zero as his biggest reference when writing the climax of the final volume of his series.
+
+He saw how Tappei was someone who always got results and thus imitated him.
+
+<details>
+<summary>（无职×Re0作者采访）</summary>
+
+https://natalie.mu/comic/pp/mushokutensei
+
+……
+
+孫の手　照れる（笑）。影響を受けたといえば、「無職転生」最終章のクライマックスは「リゼロ」を参考にしています。「リゼロ」がこれだけ主人公を追い詰めているんだから、「無職転生」でもそうしよう、と。できているかどうかはわからないんですが。
+
+> ──かなり重要な箇所で「リゼロ」に影響を受けているということですね。
+
+孫の手　はい、正直そこは「リゼロ」の真似をしました（笑）。でも、そういう他作品のいいところはどんどん真似していきたいと思ってますね。累計1位を獲ったとき、1位になったからって唐突に自分の実力が上がったわけではないんだろうなとは思っていて。じゃあ、自分の実力が上がっていないんだったら、ほかから吸収していかないともっといいものは書けないはずだよねと。そう考えて、いよいよ最後のクライマックスを書かなきゃいけないとなったときに、一番参考にしたのが「リゼロ」でした。
+
+長月　めちゃめちゃニヤニヤしてしまう（笑）。
+
+孫の手　（笑）。あと、そういうふうに作品を「もっとよくしよう、もっとよくしよう」と思えたのは、猫さんのがんばりを見ていたからで。僕は一時期かなり格闘ゲームにのめり込んでいたんですが、そのとき本当に強くなるためにやらなきゃいけない努力を、わかっていたうえでやらなかったんです。でも知り合いにそれを実行して結果を出した人がいて。小説家になろうで同じような努力をしている人は誰だろう、と考えたときに、真っ先に浮かぶのは猫さんだった。だから猫さんのやり方を僕は信頼していて、「こいつは絶対に結果を出す奴だから、真似をしよう」と思いました。そういう創作の姿勢についても、影響を受けていますね。
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
