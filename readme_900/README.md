@@ -593,3 +593,16 @@ https://natalie.mu/comic/pp/mushokutensei
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #942](https://twitter.com/LoremIpsumVerb/status/1607791863678865409)
+
+During Otto's fight with Garfiel in Arc 4, Otto enlisted the help of the forest's wildlife to lend him the mana to cast Al Dona.
+
+They granted him this help due to how much Garfiel had mistreated the forest while training and such to teach him a lesson
+
+（Web四章107节，文库13卷第五章）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
