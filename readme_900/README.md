@@ -606,3 +606,21 @@ They granted him this help due to how much Garfiel had mistreated the forest whi
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #943](https://twitter.com/LoremIpsumVerb/status/1608146858672521216)
+
+Almost each Re: Zero IF Story uses a specific naming convention where the verb "hajimeru" (starting) in Re: Zero's title is replaced.
+
+Kasaneru: Repeating<br/>
+Ayamatsu: Erring<br/>
+Oboreru: Drowning<br/>
+Tsugihagu: Patching<br/>
+Mimagau: Mistaking<br/>
+Aganau: Atoning
+
+（大罪IF标题）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
