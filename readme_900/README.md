@@ -624,3 +624,19 @@ Aganau: Atoning
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #944](https://twitter.com/LoremIpsumVerb/status/1608545886027780096)
+
+According to Tappei, the origin of Otto Suwen's name is as follows:
+
+His forename, Otto, comes from "Whoops, I screwed up", since whoops in Japanese is "ottotto".
+
+Whereas, his surname, Suwen, came about due to his whimsy at the time.
+
+（17年奥托生日，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%A5%A5%E6%89%98/%E7%8C%AB%E8%AF%AD)未收录）<br/>
+https://twitter.com/nezumiironyanko/status/844930336551124992
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
