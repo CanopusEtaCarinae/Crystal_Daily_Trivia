@@ -640,3 +640,16 @@ https://twitter.com/nezumiironyanko/status/844930336551124992
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #945](https://twitter.com/LoremIpsumVerb/status/1608859578334318593)
+
+In the original Web Novel, Emilia was portrayed far different to how she is now
+
+To the point, that in one scene, she mentioned she was willing to do anything for Subaru for helping her in Arc 1, even implying he could do sexual things to her.
+
+（Web二章9节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
