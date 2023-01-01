@@ -653,3 +653,14 @@ To the point, that in one scene, she mentioned she was willing to do anything fo
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #946](https://twitter.com/LoremIpsumVerb/status/1609192324893970433)
+
+According to the author, Warlocks in the world of Re:Zero are so rare that there haven't been any confirmed other than Hector, the Warlock of Tristitia.
+
+（45集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
