@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) <!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01)<!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -659,6 +659,23 @@ To the point, that in one scene, she mentioned she was willing to do anything fo
 According to the author, Warlocks in the world of Re:Zero are so rare that there haven't been any confirmed other than Hector, the Warlock of Tristitia.
 
 （45集实况解说）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #947](https://twitter.com/LoremIpsumVerb/status/1609581699918176257)
+
+(2023-01-01)
+
+The 1st of January is Reinhard van Astrea's birthday, happy birthday!
+
+According to Tappei, it may be difficult to have Reinhard appear in the main story this year, barring Side Stories.
+
+That means he may not appear at least in early Arc 8.
+
+（[22年莱傲天生贺推（也就是此Trivia当日刚发的）](https://twitter.com/nezumiironyanko/status/1609492631649914880)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
