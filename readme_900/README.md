@@ -681,3 +681,26 @@ That means he may not appear at least in early Arc 8.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #948](https://twitter.com/LoremIpsumVerb/status/1609942355246780418)
+
+According to the author in a 2018 interview, the Light Novel that influenced his writing style the most was: "The Ending Chronicle" by Minoru Kawakami.
+
+<details>
+<summary>（18年OVA相关采访）</summary>
+
+https://ure.pia.co.jp/articles/-/345809?page=3
+
+**——小説やマンガなどで影響を受けている作品はありますか？**
+
+自分の中で原書となるラノベが3作品あります。ラノベを書き始めたきっかけを与えてくれた『ラグナロク』。作品の内容的な部分で影響を受けている『されど罪人は竜と踊る』。文体では『終わりのクロニクル』です。
+
+『されど罪人は竜と踊る』と『終わりのクロニクル』はマネをしているというか、引っ張られている感がありますね。
+
+マンガだと『ダイの大冒険』がこの世でいちばん好きなマンガです。魔法使いのポップが色々な試練で凹まされて、また立ち上がるっていうのが、リゼロのスバルと完全に同じパターンじゃないですか（笑）。あの文脈が好きなんですよね。だから、ポップがこの世でいちばん好きなキャラクターです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
