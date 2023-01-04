@@ -704,3 +704,14 @@ https://ure.pia.co.jp/articles/-/345809?page=3
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #949](https://twitter.com/LoremIpsumVerb/status/1610356573628514304)
+
+Ever since Fortuna died over 100 years ago, Emilia has always worn her floral hairpin so that she would always be together with her late foster-mother.
+
+（文库14卷第五章第2节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
