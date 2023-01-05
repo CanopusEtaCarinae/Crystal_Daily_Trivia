@@ -715,3 +715,14 @@ Ever since Fortuna died over 100 years ago, Emilia has always worn her floral ha
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #950](https://twitter.com/LoremIpsumVerb/status/1610725964161454080)
+
+According to the author, Echidna's inability to understand emotion was something she was born with, and her parents were at fault for it too.
+
+（19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
