@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01)<!--&zwnj; [951-960](#re-zero-daily-trivia-951)--> <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -721,6 +721,21 @@ Ever since Fortuna died over 100 years ago, Emilia has always worn her floral ha
 According to the author, Echidna's inability to understand emotion was something she was born with, and her parents were at fault for it too.
 
 （19年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #951](https://twitter.com/LoremIpsumVerb/status/1611122389256966145)
+
+The words used for eclipses in Japanese have 食 in them, relating to eating.
+
+Hence, Solar Eclipse (日食) literally means eating the sun & Lunar Eclipse (月食) eating the moon.
+
+Making the abilities fitting for Gluttony (暴食), meaning excessive eating
+
+（暴食权能设定，出处大概五六章都算罢）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias---from-901)
