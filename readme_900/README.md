@@ -741,3 +741,44 @@ Making the abilities fitting for Gluttony (暴食), meaning excessive eating
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #952](https://twitter.com/LoremIpsumVerb/status/1611471221639593990)
+
+According to Tappei, finding a nickname for Beatrice became a problem after he came up with her character due to Beatrice from Umineko, who is abbreviated as Beato.
+
+He eventually settled on Betty, which was a safe, albeit common choice.
+
+<details>
+<summary>（感想板）</summary>
+はじめまして。<br/>
+正直、ここまでの完成度の作品はネット小説でみたことがありませんでした。<br/>
+<br/>
+いや、完成度というか、登場人物の魅力というか…。<br/>
+名前とか雰囲気的にうみねこのなく頃にのメタ世界が思い浮かばれるのですが(笑)<br/>
+<br/>
+とにもかくにも、セリフ回しや設定、展開のどれをとっても大好物です。<br/>
+<br/>
+どうぞエタることなく、これからも更新を頑張ってください。<br/>
+本当に楽しみにしています。<br/>
+投稿者： 友希<br/>
+18歳～22歳 男性<br/>
+2012年 05月23日 00時21分<br/>
+<br/>
+友希さま、感想ありがとうございます。そしてはじめまして。<br/>
+<br/>
+そこまでお褒めいただくと、恐縮するやら照れるやら鼻が天狗やらでなにがなにやら。<br/>
+<br/>
+うみねこに関してはあとになって「やべ、ベアトリス出したけど名前どう略そう」みたいなときの障害になった記憶ががが。無難にありふれたベティーに落ち着きましたが。<br/>
+<br/>
+色々と問題と長話が多いセリフ回し、穴だらけの設定に予想通りになってしまう展開と、作者の能力不足が情けないやらですが、今後もどうぞお付き合いいただければ幸いです。<br/>
+<br/>
+最後まで物語はできているので、モチベーションが消失しない限りはエタる心配はないと思われます。<br/>
+もうラストまで書きたくてしょうがないのですよ。にぱー。<br/>
+鼠色猫/長月達平<br/>
+2012年 05月23日 22時53分<br/>
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
