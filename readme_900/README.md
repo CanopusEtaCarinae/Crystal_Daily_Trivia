@@ -782,3 +782,16 @@ He eventually settled on Betty, which was a safe, albeit common choice.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #953](https://twitter.com/LoremIpsumVerb/status/1611742929281847296)
+
+From all the side stories that have so far been serialised in Comic Alive, the one that has been waiting the longest to be compiled in a Tanpenshuu or EX version is "The Red Snow on Orcos' Domain".
+
+The story was first released in August 2016.
+
+（赤雪前篇刊登于CA 16年十月号，截至本trivia当日〔2023-01-07〕短篇集仍未收录）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
