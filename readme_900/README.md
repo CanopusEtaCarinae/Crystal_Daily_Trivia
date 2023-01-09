@@ -795,3 +795,14 @@ The story was first released in August 2016.
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #954](https://twitter.com/LoremIpsumVerb/status/1612167555606618113)
+
+According to the author, for a little while after Subaru was conferred his knighthood, when he and Emilia went out together, Emilia would call out and stop people walking by and point at Subaru, boasting "That guy there's my knight."
+
+（当日更新七章99节，以及[17年老贼推文](https://twitter.com/nezumiironyanko/status/861570003304198144)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
