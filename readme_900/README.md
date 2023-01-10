@@ -806,3 +806,16 @@ According to the author, for a little while after Subaru was conferred his knigh
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #955](https://twitter.com/LoremIpsumVerb/status/1612526668752760832)
+
+The iconic surname Romanée-Conti, belonging to Petelgeuse and his clan, actually comes from a renown French wine from Burgundy.
+
+The name was almost changed in the Light Novel, however, most readers when surveyed asked for it not to be changed.
+
+（[出处](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/967544/index.php?p=6)大概和[#128(129)](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#re-zero-daily-trivia-128129)一样？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
