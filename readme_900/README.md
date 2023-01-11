@@ -140,7 +140,7 @@ After the Witch Factor of Greed chose Regulus Corneas, he murdered not only his 
 （19卷强欲名前回）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -159,7 +159,7 @@ Hope you all enjoy! This part was really good, in my opinion. <!--1-5:trivia #88
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -170,7 +170,7 @@ After Regulus' heart inside Emilia's body was crushed and the latter lost his pe
 （19卷第五章第3节）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -195,7 +195,7 @@ One of them even perfectly overlapped with her own hand.
 （Web六章88节，文库25卷八章5节）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -208,7 +208,7 @@ This was because there was still heaps of stuff he hasn't talked about, with Emi
 https://twitter.com/nezumiironyanko/status/911575957986697216
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -223,7 +223,7 @@ The short story is illustrated by Yuka Fujikawa, the artist for Mushoku Tensei's
 （莓大佬译文：https://tieba.baidu.com/p/6936529656）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -236,7 +236,7 @@ Meaning Hobbits, at least in Web Novel canon, exist in Re: Zero.
 （Web三章27节〔ホビット〕）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -253,7 +253,7 @@ A：王選候補に限らず、大体の人が家が燃えたらショックを�
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -268,7 +268,7 @@ A：ガーフィールとフレデリカもいたよ？魔女組は逆にエキ�
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -279,7 +279,7 @@ Though it's well known that Beatrice speaks using the verbal tic "kashira" (I su
 （贝蒂口癖与翻译？）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -292,7 +292,7 @@ From them, these include Liliana, Arakiya, Al and a girl from the village of Cof
 （水门都市篇、红莲的残影、傲慢与偏见与僵尸）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -322,7 +322,7 @@ That puts her at around 20% chance of appearing on any given Re: Zero cover.
 （46：正传32、短篇集1-8、外传1-5、Zeropedia；EMT占正传1，9，14，18，短篇集1，2，3，7，8，Zeropedia）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -369,7 +369,7 @@ According to the author, if one of the Pearlbaton triplets were to die, and the 
 （18年三姐弟生日，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%9C%9C%E8%9C%9C/%E7%8C%AB%E8%AF%AD)未收录，Ice也未标注本次来源，可能为[此条](https://twitter.com/nezumiironyanko/status/993114444841418758)或[此条](https://twitter.com/nezumiironyanko/status/993114708835094528)。其中第二条提问者不可见，仅有[英肉](https://www.reddit.com/r/Re_Zero/comments/8hsvzj/translation_mimi_hetaro_and_tiveys_birthday_2018)）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -411,7 +411,7 @@ Not much information exists about her husbands other than Jorah and Leip.
 （七章95）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -437,7 +437,7 @@ Though well known that the Crystal Palace is situated right in the middle of the
 【32卷？】
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -448,7 +448,7 @@ Re: Zero is full of characters who have whacky names like Lululala and Henehehe,
 （天才厨师Dias的名字）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -524,7 +524,7 @@ https://www.animatetimes.com/news/details.php?id=1472111109
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -537,7 +537,7 @@ These gates can at least be implanted into inanimate objects to animate them, li
 （短篇集8蜜瓜）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -548,7 +548,7 @@ Back in 2014, one of the very first commercials that aired for Re: Zero was narr
 https://www.youtube.com/watch?v=0yvHCMVRrtM
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -561,7 +561,7 @@ Though this detail is typically known to novel readers, Emilia's ice magic does 
 （算是本作设定常识？）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -590,7 +590,7 @@ https://natalie.mu/comic/pp/mushokutensei
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -603,7 +603,7 @@ They granted him this help due to how much Garfiel had mistreated the forest whi
 （Web四章107节，文库13卷第五章）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -621,7 +621,7 @@ Aganau: Atoning
 （大罪IF标题）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -650,7 +650,7 @@ To the point, that in one scene, she mentioned she was willing to do anything fo
 （Web二章9节）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -661,7 +661,7 @@ According to the author, Warlocks in the world of Re:Zero are so rare that there
 （45集实况解说）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -678,7 +678,7 @@ That means he may not appear at least in early Arc 8.
 （[22年莱傲天生贺推（也就是此Trivia当日刚发的）](https://twitter.com/nezumiironyanko/status/1609492631649914880)）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -701,7 +701,7 @@ https://ure.pia.co.jp/articles/-/345809?page=3
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -712,7 +712,7 @@ Ever since Fortuna died over 100 years ago, Emilia has always worn her floral ha
 （文库14卷第五章第2节）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -779,7 +779,7 @@ He eventually settled on Betty, which was a safe, albeit common choice.
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -816,6 +816,21 @@ The name was almost changed in the Light Novel, however, most readers when surve
 （[出处](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/967544/index.php?p=6)大概和[#128(129)](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#re-zero-daily-trivia-128129)一样？）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #956](https://twitter.com/LoremIpsumVerb/status/1612871944713404425)
+
+According to the author, if you were to concentrate the active ingredient of Bocco Fruit by drying it, you might be able to create a dangerous drug from it that would have similar effects to chugging a bottle of viagra.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：ボッコの実からポーション的なものは作れないとのことですが、干しボッコの実のような水分飛ばして成分濃縮して劇薬チックな物ってできませんか?食べるな危険！みたいな事になりそうですが...。<br/>
+A：できるかもしれないけど、一粒でスバルがあんなことになってるのに、ただの劇薬にしかならないと思う。バイアグラ一気飲みみたいな結果に終わるんじゃないかしら。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
