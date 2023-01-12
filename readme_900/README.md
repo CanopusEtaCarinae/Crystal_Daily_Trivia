@@ -834,3 +834,16 @@ A：できるかもしれないけど、一粒でスバルがあんなことに�
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #957](https://twitter.com/LoremIpsumVerb/status/1613240583882956814)
+
+In the Web Novel version of Arc 3, just after the White Whale fight, Subaru walked in on Emilia changing as they prepared to evacuate the mansion.
+
+As he gazed at her in typical "lucky sukebe" fashion, Puck blew him out of the room and out of a window.
+
+（Web三章69）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
