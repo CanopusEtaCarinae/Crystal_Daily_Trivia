@@ -847,3 +847,16 @@ As he gazed at her in typical "lucky sukebe" fashion, Puck blew him out of the r
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #958](https://twitter.com/LoremIpsumVerb/status/1613601247407243273)
+
+After "A Story That's Just That" was adapted to manga format by Daichi Matsue, Tappei received draft copies of some panels of the chapter.
+
+He special ordered a custom frame for them, so he could hang them on his wall.
+
+https://twitter.com/nezumiironyanko/status/1175068290248372226
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
