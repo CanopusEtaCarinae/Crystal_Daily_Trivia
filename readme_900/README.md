@@ -860,3 +860,16 @@ https://twitter.com/nezumiironyanko/status/1175068290248372226
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #959](https://twitter.com/LoremIpsumVerb/status/1613931307171545090)
+
+In Kadokawa's Isekai Museum, there's a life-sized statue of Subaru getting his lap pillow from Emilia.
+
+Written on the wall of this particular exhibit are the words 好きだよ、エミリア (I love you Emilia), Subaru's confession to Emilia in Arc 3.
+
+【等身双人手办，原始信息可能还要补一下】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
