@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) <!--&zwnj; [961-970](#re-zero-daily-trivia-961)--> <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) &zwnj; [961-970](#re-zero-daily-trivia-961) <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -868,6 +868,32 @@ In Kadokawa's Isekai Museum, there's a life-sized statue of Subaru getting his l
 Written on the wall of this particular exhibit are the words 好きだよ、エミリア (I love you Emilia), Subaru's confession to Emilia in Arc 3.
 
 【等身双人手办，原始信息可能还要补一下】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #960](https://twitter.com/LoremIpsumVerb/status/1614346610300932101)
+
+According to the author, Re: Zero and everything he learnt about stories was inspired by Visual Novels he played, especially Gal Games.
+
+His playing style, where he chooses all the bad ends first, before choosing the good one, is reflected in Re: Zero.
+
+（[13年推文](https://twitter.com/nezumiironyanko/status/332825896740327424)及Web十周年问答（最后一问）【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #961](https://twitter.com/LoremIpsumVerb/status/1614570332999778304)
+
+Back in a talkshow held in 2018, the author mentioned that he wants to make the final chapter title of the story: "Re:Zero − Having Started Life in Another World".
+
+Essentially changing the 始める verb to past tense 始めた.
+
+【[原始访谈可能还要再找找？](https://twitter.com/LoremIpsumVerb/status/1430231595596845063)】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias---from-901)
