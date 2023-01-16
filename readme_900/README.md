@@ -899,3 +899,16 @@ Essentially changing the 始める verb to past tense 始めた.
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #962](https://twitter.com/LoremIpsumVerb/status/1614957198542766080)
+
+The scene in the Ayamatsu route where Elsa bids Subaru farewell before going to fight Reinhard is regarded as a love scene in the author's opinion.
+
+He half-compared it to the scene between Nier and Kaine in the original Nier game.
+
+（傲慢IF补充）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
