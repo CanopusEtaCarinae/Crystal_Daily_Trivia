@@ -912,3 +912,16 @@ He half-compared it to the scene between Nier and Kaine in the original Nier gam
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #963](https://twitter.com/LoremIpsumVerb/status/1615310865598746624)
+
+The name Flugel belongs to one of the most mysterious individuals in the Re: Zero series, having taken up the title of "Great Sage" 400 years ago.
+
+The name derives from German, with the word "flügel" meaning wing/s.
+
+（六章提及）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
