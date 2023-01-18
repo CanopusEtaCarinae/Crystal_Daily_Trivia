@@ -925,3 +925,16 @@ The name derives from German, with the word "flügel" meaning wing/s.
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #964](https://twitter.com/LoremIpsumVerb/status/1615689536767660032)
+
+The author goes to great lengths when depicting his character's personalities and emotions.
+
+To the point that even the way they refer to rice balls differs. Subaru would say Onigiri, while Emilia would say Omusubi.
+
+（Web十周年问答【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/files)中kasakun巨佬翻译的版本（Q62）大概参考的是[此推](https://twitter.com/yumito_Re/status/1516796572993867780)，对应问答内容相对不全，salad大佬翻译的docx版（大概参考自[此推](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)）包括了本Trivia的内容。；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)（Q59）】）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
