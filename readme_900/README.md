@@ -938,3 +938,14 @@ To the point that even the way they refer to rice balls differs. Subaru would sa
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #965](https://twitter.com/LoremIpsumVerb/status/1616120661482831872)
+
+Other than Satella and Clind, Stride Vollachia is the only person in Re: Zero to presumably possess a Witch Factor while not taking the name of a celestial body or one very similar to one.
+
+（Stride暂无星名来源。[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E6%B2%B3%E9%BC%93%E4%BA%8C)〔Satella应该属于待定〕）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
