@@ -949,3 +949,16 @@ Other than Satella and Clind, Stride Vollachia is the only person in Re: Zero to
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+####[Re: Zero Daily Trivia #966](https://twitter.com/LoremIpsumVerb/status/1616467580805423104)
+
+Though strictly speaking only having one named chapter, Liliana Masquerade is commonly attributed by the Fandom to having five in the Web Novel due to the close proximity which they occurred in.
+
+These chapters are narrated by her in first person POV.
+
+（Web五章63-67节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
