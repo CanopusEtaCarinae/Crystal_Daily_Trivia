@@ -962,3 +962,14 @@ These chapters are narrated by her in first person POV.
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #967](https://twitter.com/LoremIpsumVerb/status/1616841224966778881)
+
+According to the author, Theresia van Astrea, Reinhard's grandmother, would lose to her grandson in a single blow when comparing their respective strengths.
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
