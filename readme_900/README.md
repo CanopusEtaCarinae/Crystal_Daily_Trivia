@@ -973,3 +973,16 @@ According to the author, Theresia van Astrea, Reinhard's grandmother, would lose
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #968](https://twitter.com/LoremIpsumVerb/status/1617186842155024386)
+
+The end of Arc 3 (interludes not included) and the Sword Demon Love Song (EX 2) both end with the same exact words: "That's all this story is about." (ただそれだけの物語)
+
+This subtle parallel was likely done on purpose by the author.
+
+（三章幕间前与Ex2结尾末句旁白）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
