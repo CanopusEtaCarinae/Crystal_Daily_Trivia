@@ -950,7 +950,7 @@ Other than Satella and Clind, Stride Vollachia is the only person in Re: Zero to
 
 ---
 
-####[Re: Zero Daily Trivia #966](https://twitter.com/LoremIpsumVerb/status/1616467580805423104)
+#### [Re: Zero Daily Trivia #966](https://twitter.com/LoremIpsumVerb/status/1616467580805423104)
 
 Though strictly speaking only having one named chapter, Liliana Masquerade is commonly attributed by the Fandom to having five in the Web Novel due to the close proximity which they occurred in.
 
@@ -984,5 +984,18 @@ This subtle parallel was likely done on purpose by the author.
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #969](https://twitter.com/LoremIpsumVerb/status/1617571669542944769)
+
+The Spirit Eater Arakiya is absurdly strong, her strength surpassing all those from her tribe from the past, including those who fought a Witch heavily implied to be Carmilla.
+
+Arakiya was gifted to Prisca Benedict by her father Drizen Vollachia
+
+（当日一小时前更新的七章101节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
