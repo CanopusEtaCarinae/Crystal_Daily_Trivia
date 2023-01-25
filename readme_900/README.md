@@ -999,3 +999,16 @@ Arakiya was gifted to Prisca Benedict by her father Drizen Vollachia
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #970](https://twitter.com/LoremIpsumVerb/status/1617928086816960515)
+
+At the peak of mastery of the sword in Re: Zero are the titles of Sword Saint and Heavenly Sword.
+
+The main difference between them is that Sword Saint is about uttermost sword power, whilst Heavenly Sword is about uttermost technique.
+
+（剑鬼战歌八幕6节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
