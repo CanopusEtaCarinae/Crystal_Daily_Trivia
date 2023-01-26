@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) &zwnj; [961-970](#re-zero-daily-trivia-961) <!--&zwnj; [971-980](#re-zero-daily-trivia-971)--> <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) &zwnj; [961-970](#re-zero-daily-trivia-961) &zwnj; [971-980](#re-zero-daily-trivia-971) <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -1010,5 +1010,20 @@ The main difference between them is that Sword Saint is about uttermost sword po
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #971](https://twitter.com/LoremIpsumVerb/status/1618319310669348865)
+
+Before Rie Takahashi was confirmed as Emilia's voice actress, the author answered a fan's question and said he vaguely imagined her being voiced by Yui Horie, who later ended up being cast as Felix's voice actor instead.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：なんとなくリゼロキャラに声つけるならこんな感じだなっていうイメージありますか？<br/>
+A：ぼんやりしたイメージなら、エミリアたんが堀江由衣さんで、ロズワールが宮野さんとかだと思います。ラインハルトが櫻井さんで、ユリウスが神谷さんなら言うことなし。そんなイメージ。スバルは知らん。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
