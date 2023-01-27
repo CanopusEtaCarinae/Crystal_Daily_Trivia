@@ -1027,3 +1027,14 @@ A：ぼんやりしたイメージなら、エミリアたんが堀江由衣さ�
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #972](https://twitter.com/LoremIpsumVerb/status/1618645215031721984)
+
+According to Tappei, when asked before any voice actor was confirmed for Re Zero Season 1, he vaguely imagined Roswaal as having Mamoru Miyano's voice. Miyano is famous for voicing characters such as Light Yagami from Death Note & Ling Yao from FMA:BH.
+
+（来源同[#971](#re-zero-daily-trivia-971)引用问答）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
