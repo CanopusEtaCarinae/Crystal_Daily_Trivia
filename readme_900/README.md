@@ -1038,3 +1038,31 @@ According to Tappei, when asked before any voice actor was confirmed for Re Zero
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #973](https://twitter.com/LoremIpsumVerb/status/1618988415432916992)
+
+When asked by a fan what Roswaal's response would be to Echidna if he heard her say "Why must love always fade?", the author replied with a rhetorical "Wouldn't he just go crazy?"
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エキドナに「愛は何故減るのだろうか」と聞かれたらロズワールはなんて答えますか？<br/>
+A：発狂するんじゃないですかね？
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #974](https://twitter.com/LoremIpsumVerb/status/1619334924401778689)
+
+According to the author, Crusch Karsten once defeated Julius with the sword back when they were kids.
+
+Back then, they didn't know who the other was, so they didn't realise it.
+
+（18年库珥修生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
