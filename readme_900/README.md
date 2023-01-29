@@ -1066,3 +1066,16 @@ Back then, they didn't know who the other was, so they didn't realise it.
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #975](https://twitter.com/LoremIpsumVerb/status/1619688193770815489)
+
+According to the author, Subaru would typically get his hair cut roughly every three weeks in Japan. However, after he was Isekai'd, he's mainly had his hair cut by Rem.
+
+It's unknown who took over cutting his hair after Arc 3.
+
+（[一章web角色设定](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/626391)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
