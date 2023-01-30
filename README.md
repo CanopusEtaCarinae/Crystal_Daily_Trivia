@@ -12748,6 +12748,8 @@ RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
 
 怠惰 名字坑 重要 Web三章设定
 
+Web 设定 贴吧 https://tieba.baidu.com/p/4540480122
+
 EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/1558764868953833472 #807
 
 章节长度 #192/193 https://discord.com/channels/779185920670171136/779190786771255306/1008710503998173204
