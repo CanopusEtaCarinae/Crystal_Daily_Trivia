@@ -1079,3 +1079,16 @@ It's unknown who took over cutting his hair after Arc 3.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #976](https://twitter.com/LoremIpsumVerb/status/1620117453119574016)
+
+Ubilk, who currently works as the Stargazer of the Empire, used to be a Gladiator on Ginunhive.
+
+However, instead of fighting to survive, Ubilk was a male prostitute, and even won the favour of the island's chief through this method.
+
+（赫炎的剑狼）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
