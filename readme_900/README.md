@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) &zwnj; [961-970](#re-zero-daily-trivia-961) &zwnj; [971-980](#re-zero-daily-trivia-971) <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) &zwnj; [961-970](#re-zero-daily-trivia-961) &zwnj; [971-980](#re-zero-daily-trivia-971) (23-01) <!--&zwnj; [981-990](#re-zero-daily-trivia-981)--> <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
 
 ---
 
@@ -1090,5 +1090,33 @@ However, instead of fighting to survive, Ubilk was a male prostitute, and even w
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #977](https://twitter.com/LoremIpsumVerb/status/1620466849724121088)
+
+According to the author, a situation Frederica Baumann longs for with a man is one where the man would pick her up in a princess carry.
+
+This is likely due to the self-consciousness she has towards her large frame.
+
+（18年芙蕾生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #978](https://twitter.com/LoremIpsumVerb/status/1620750062816202752)
+
+(2023-02-01)
+
+Tappei originally intended to make Apocalypse Girls a story about how Elsa, once an ordinary girl, became the Bowel hunter.
+
+However, his plans collapsed in the prologue when he realised Elsa was like this from the moment she was born.
+
+（二期BD1特典后记）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
 
 ---
