@@ -1120,3 +1120,4 @@ However, his plans collapsed in the prologue when he realised Elsa was like this
 [Return to top](#crystals-daily-trivias)
 
 ---
+
