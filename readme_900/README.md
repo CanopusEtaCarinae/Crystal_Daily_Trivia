@@ -1121,3 +1121,13 @@ However, his plans collapsed in the prologue when he realised Elsa was like this
 
 ---
 
+#### [Re: Zero Daily Trivia #979](https://twitter.com/LoremIpsumVerb/status/1621184755109707778)
+
+According to Matsuoka Yoshitsugu, Petelgeuse's voice actor, he once ended up having a night out with Subaru's voice actor, Yusuke Kobayashi, where the former got so drunk that he ended up having to be brought home by the latter.
+
+https://www.youtube.com/watch?v=8Jf4cHCxgUU
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
