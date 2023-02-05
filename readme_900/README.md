@@ -1132,6 +1132,21 @@ https://www.youtube.com/watch?v=8Jf4cHCxgUU
 
 ---
 
+#### [Re: Zero Daily Trivia #980](https://twitter.com/LoremIpsumVerb/status/1621572383835394048)
+
+According to the author, the reason why Echidna masqueraded her first person pronoun as "boku" in front of Subaru dates back to her birth and will be revealed in the Witch Arc, which has been previously hinted to be Arc 11.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：エキドナの一人称をスバルの前でボクに偽装していましたが、あれはどういう理由からなんでしょうか？<br/>
+A：エキドナの出生にまでさかのぼるので、魔女章までおあずけ。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
 #### [Re: Zero Daily Trivia #981](https://twitter.com/LoremIpsumVerb/status/1621830339516571648)
 
 According to the author, Typhon's authority has a chance of being able to punish lolicons if the lolicon themselves think being one is sinful.
@@ -1140,6 +1155,23 @@ According to the author, Typhon's authority has a chance of being able to punish
 <summary>（ask.fm：）</summary>
 Q：テュフォンの権能ってロリコンも断罪できるの？<br/>
 A：それがその世界において一般的に罪とみなされていれば。あるいはロリコン本人が自分のロリコンを罪だと思っていれば、可能です。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #982](https://twitter.com/LoremIpsumVerb/status/1622187571085279233)
+
+According to the author, the Witch of Gluttony, Daphne, ate her own parents.
+
+Meaning that, when a fan tried to ask for her hand in marriage, he told them to seek their permission from inside her belly.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：お義父さん！ダフネちゃんをお嫁にください！(パイプ椅子を頬張りながら)<br/>
+A：ダフネの親はダフネの腹の中なので、許可はそっちにとってください。
 </details>
 
 [Return to Content](#Content)<br/>
