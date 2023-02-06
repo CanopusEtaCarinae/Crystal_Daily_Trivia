@@ -1178,3 +1178,16 @@ A：ダフネの親はダフネの腹の中なので、許可はそっちにと�
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #983](https://twitter.com/LoremIpsumVerb/status/1622546100753166338)
+
+The Hitchhiker's Guide to the Isekai is a derivative side story anthology.
+
+Tappei features as a guest writer, parodying Mushoku Tensei and Konosuba by recounting how he was ran over by a truck, leading him to meet a blue-haired goddess called Loqua.
+
+【这作品我确实不了解……有兴趣的直接Google罢】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
