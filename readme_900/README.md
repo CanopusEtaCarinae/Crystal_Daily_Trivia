@@ -1191,3 +1191,18 @@ Tappei features as a guest writer, parodying Mushoku Tensei and Konosuba by reco
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #984](https://twitter.com/LoremIpsumVerb/status/1622956186046763008)
+
+According to the author, if all the Witches except Envy were to fight in a battle royale, Sekhmet would be able to kill them all in only a minute.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：嫉妬の魔女を除く、魔女がバトロワをしたら誰が勝ちますか？<br/>
+A：セクメトが１分で皆殺しにします。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
