@@ -1207,3 +1207,30 @@ A：セクメトが１分で皆殺しにします。
 
 ---
 
+#### [Re: Zero Daily Trivia #985](https://twitter.com/LoremIpsumVerb/status/1623269279981248512)
+
+According to the author, if you were to just compare the Archbishops by who's stronger physically, the one who'd easily come out on top would be Sirius, the Archbishop of Wrath.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：権能無しの肉体的な強さなら大罪司教の中で誰が一番強いですか？<br/>
+A：シリウス一択。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #986](https://twitter.com/LoremIpsumVerb/status/1623662947124842496)
+
+Emilia has a disposition that makes her get a tummy ache whenever she tells a lie.
+
+That's why, in the scene where Subaru enters the loothouse alone, Emilia was waiting outside enduring the pangs of pain from saying her name was Satella
+
+（一期新编集第1集实况）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
