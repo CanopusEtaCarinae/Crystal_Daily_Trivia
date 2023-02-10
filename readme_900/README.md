@@ -1234,3 +1234,4 @@ That's why, in the scene where Subaru enters the loothouse alone, Emilia was wai
 [Return to top](#crystals-daily-trivias)
 
 ---
+
