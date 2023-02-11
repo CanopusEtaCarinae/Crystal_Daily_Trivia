@@ -1235,3 +1235,13 @@ That's why, in the scene where Subaru enters the loothouse alone, Emilia was wai
 
 ---
 
+#### [Re: Zero Daily Trivia #987](https://twitter.com/LoremIpsumVerb/status/1624076526240104449)
+
+According to the author, Balleroy Temeglyph is his favourite character from the Vollachian cast in EX 4. He commented about how he really loved how gallant and how much of a lady's man he is.
+
+（Ex4后记）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
