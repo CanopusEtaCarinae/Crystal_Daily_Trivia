@@ -1245,3 +1245,35 @@ According to the author, Balleroy Temeglyph is his favourite character from the 
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #988](https://twitter.com/LoremIpsumVerb/status/1624410310424551424)
+
+Capella Emerada Lugunica, like nearly all other Sin Archbishops, is named after a star. She gets hers from Capella, the brightest star in the Auriga constellation. The word itself takes its roots from Latin and means "little she-goat."
+
+（[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E9%B2%B8%E9%B1%BC%E5%BA%A7)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
+
+#### [Re: Zero Daily Trivia #989](https://twitter.com/LoremIpsumVerb/status/1624761727236677641)
+
+When asked in 2014 about what the Archbishops do in their spare time, Tappei replied saying:
+
+- Sloth is always busy<br/>
+- Greed plays harem<br/>
+- Gluttony samples food & drink<br/>
+- Lust is xxxxxx<br/>
+- Wrath is busy putting up paintings of Sloth in her room
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：大罪司教達って暇な時なにしてますか？<br/>
+A：怠惰さんは常に忙しい。強欲さんはハーレムごっこ。暴食さんはテイスティング。色欲さんは××××××。憤怒さんは部屋中に怠惰さんの絵を貼るのに忙しいです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
