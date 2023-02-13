@@ -1250,7 +1250,7 @@ According to the author, Balleroy Temeglyph is his favourite character from the 
 
 Capella Emerada Lugunica, like nearly all other Sin Archbishops, is named after a star. She gets hers from Capella, the brightest star in the Auriga constellation. The word itself takes its roots from Latin and means "little she-goat."
 
-（[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E9%B2%B8%E9%B1%BC%E5%BA%A7)）
+（[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E4%BA%94%E8%BD%A6%E4%BA%8C)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
