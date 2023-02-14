@@ -11,7 +11,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias)
 
-[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) &zwnj; [961-970](#re-zero-daily-trivia-961) &zwnj; [971-980](#re-zero-daily-trivia-971) (23-02) &zwnj; [981-990](#re-zero-daily-trivia-981) <!--&zwnj; [991-1000](#re-zero-daily-trivia-991)-->
+[901-910](#re-zero-daily-trivia-901) &zwnj; [911-920](#re-zero-daily-trivia-911) (22-12) &zwnj; [921-930](#re-zero-daily-trivia-921) &zwnj; [931-940](#re-zero-daily-trivia-931) &zwnj; [941-950](#re-zero-daily-trivia-941) (23-01) &zwnj; [951-960](#re-zero-daily-trivia-951) &zwnj; [961-970](#re-zero-daily-trivia-961) &zwnj; [971-980](#re-zero-daily-trivia-971) (23-02) &zwnj; [981-990](#re-zero-daily-trivia-981) &zwnj; [991-1000](#re-zero-daily-trivia-991)
 
 ---
 
@@ -1271,6 +1271,36 @@ When asked in 2014 about what the Archbishops do in their spare time, Tappei rep
 <summary>（ask.fm：）</summary>
 Q：大罪司教達って暇な時なにしてますか？<br/>
 A：怠惰さんは常に忙しい。強欲さんはハーレムごっこ。暴食さんはテイスティング。色欲さんは××××××。憤怒さんは部屋中に怠惰さんの絵を貼るのに忙しいです。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #990](https://twitter.com/LoremIpsumVerb/status/1625136615461908481)
+
+Vincent Vollachia learnt about the concept of Observers from Stride Vollachia's journal, which he found hidden in an archive of the Crystal Palace.
+
+Both Chisha and Vincent came to speculate, due to Stride's writing, that he had been a Stargazer
+
+（当日更新七章107节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #991](https://twitter.com/LoremIpsumVerb/status/1625467320981241858)
+
+According to Tappei, there have been some Archbishops in the past who have died of old age, sometimes leaving their seat open for a long time.
+
+Gluttony's seat was open for a long time. Only Petelgeuse, Regulus & Sirius are special in their longevity.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：魔女教大罪司教の世代交代ってどのくらいしてますか？ペテルギウスは古参みたいだし、レグルスとシリウスは少なくとも百年前かっらやってるみたいですが・・・他の奴らも百年単位で生きてるんですか？っていうか平均年齢高ーよこの老人会。<br/>
+A：死んだらしてます。欠番の期間も結構あったりで、暴食は長いこと空席だったりしました。大体ペテルギウスが初期からいるので、それ以外はちょくちょく変わって世界に迷惑をかけています。寿命で死ぬのもいますが、ペテルギウス・レグルス・シリウスの三人は特別です。長生きなのと権能の関係です。
 </details>
 
 [Return to Content](#Content)<br/>
