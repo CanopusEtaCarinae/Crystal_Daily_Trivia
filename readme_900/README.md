@@ -1307,3 +1307,20 @@ A：死んだらしてます。欠番の期間も結構あったりで、暴食�
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #992](https://twitter.com/LoremIpsumVerb/status/1625822025477496833)
+
+According to the author, he enjoys writing all aspects of Subaru, including when he's being scummy, being cool or dying.
+
+However, he explicitly stated that when Subaru is dying, his fingers move without hesitation when writing
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：かっこいいスバル君とクズいスバル君と死に掛けのスバル君。書いていて楽しいのはどれですか？<br/>
+A：どれもわりと楽しいですが、死ぬときは迷いなく指が動きます。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
