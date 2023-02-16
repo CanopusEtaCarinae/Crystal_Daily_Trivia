@@ -1324,3 +1324,16 @@ A：どれもわりと楽しいですが、死ぬときは迷いなく指が動�
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #993](https://twitter.com/LoremIpsumVerb/status/1626170908007182336)
+
+According to Echidna, her past reincarnation attempts ended up in failures as she would shave off parts of her soul to make hers fit in the vessel.
+
+That's why with Omega, she shaved off her own powers, lest it end up creating another Sphinx.
+
+（短篇集6蜜瓜）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---

@@ -12762,4 +12762,6 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 未来台词 https://tieba.baidu.com/photo/p?kw=re%E4%BB%8E%E9%9B%B6%E5%BC%80%E5%A7%8B%E5%BC%82%E4%B8%96%E7%95%8C%E7%94%9F%E6%B4%BB&flux=1&tid=6313667217&pic_id=6b7215cb39dbb6fd4e5d33560624ab18962b37e0&pn=1&fp=2&see_lz=1
 
+2022-05-30 add license
+
 -->
