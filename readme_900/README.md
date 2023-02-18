@@ -1337,3 +1337,16 @@ That's why with Omega, she shaved off her own powers, lest it end up creating an
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #994](https://twitter.com/LoremIpsumVerb/status/1626618390239379456)
+
+Lamia Godwin, one of Drizen Vollachia's daughters, rose to prominence at the tender age of nine after turning the tide of an internal rebellion against the Godwin family.
+
+She ended up becoming the head of the family as a result.
+
+（Ex5红莲）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
