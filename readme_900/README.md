@@ -1350,3 +1350,20 @@ She ended up becoming the head of the family as a result.
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Daily Trivia #995](https://twitter.com/LoremIpsumVerb/status/1626990493899927552)
+
+According to the author, Natsuki Subaru most likely collected a multitude of grooved ten yen coins and the like.
+
+Among them, he might have had a bunch of coins from the 64th year of the Showa era - a year which only lasted a week due to an era change
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバル君のお財布には旧五百円玉とか二千円札が入ってそうですね<br/>
+A：たぶんギザ１０とかめちゃめちゃ集めてましたね。昭和6４年の硬貨ばっかり持ってるとか。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
