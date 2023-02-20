@@ -1367,3 +1367,16 @@ A：たぶんギザ１０とかめちゃめちゃ集めてましたね。昭和6
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Daily Trivia #996](https://twitter.com/LoremIpsumVerb/status/1627356072200527874)
+
+A version of the legend of Orion was referenced in Re: Zero during the trial of the monolith in Arc 6.
+
+According to it, a giant scorpion hunted Orion due to his boasts and managed to kill him, with both becoming constellations after.
+
+（[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E7%8C%8E%E6%88%B7%E5%BA%A7%E6%A6%82%E5%86%B5)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
