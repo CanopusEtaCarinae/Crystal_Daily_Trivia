@@ -970,7 +970,7 @@ According to the author, Theresia van Astrea, Reinhard's grandmother, would lose
 （18年前代生日）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -983,7 +983,7 @@ This subtle parallel was likely done on purpose by the author.
 （三章幕间前与Ex2结尾末句旁白）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1009,7 +1009,7 @@ The main difference between them is that Sword Saint is about uttermost sword po
 （剑鬼战歌八幕6节）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1076,7 +1076,7 @@ It's unknown who took over cutting his hair after Arc 3.
 （[一章web角色设定](https://mypage.syosetu.com/mypageblog/view/userid/235132/blogkey/626391)）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1102,7 +1102,7 @@ This is likely due to the self-consciousness she has towards her large frame.
 （18年芙蕾生日）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1117,7 +1117,7 @@ However, his plans collapsed in the prologue when he realised Elsa was like this
 （二期BD1特典后记）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1128,7 +1128,7 @@ According to Matsuoka Yoshitsugu, Petelgeuse's voice actor, he once ended up hav
 https://www.youtube.com/watch?v=8Jf4cHCxgUU
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1188,7 +1188,7 @@ Tappei features as a guest writer, parodying Mushoku Tensei and Konosuba by reco
 【这作品我确实不了解……有兴趣的直接Google罢】
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1231,7 +1231,7 @@ That's why, in the scene where Subaru enters the loothouse alone, Emilia was wai
 （一期新编集第1集实况）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1242,7 +1242,7 @@ According to the author, Balleroy Temeglyph is his favourite character from the 
 （Ex4后记）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1253,7 +1253,7 @@ Capella Emerada Lugunica, like nearly all other Sin Archbishops, is named after 
 （[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E4%BA%94%E8%BD%A6%E4%BA%8C)）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1334,7 +1334,7 @@ That's why with Omega, she shaved off her own powers, lest it end up creating an
 （短篇集6蜜瓜）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1347,7 +1347,7 @@ She ended up becoming the head of the family as a result.
 （Ex5红莲）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
 
@@ -1377,6 +1377,23 @@ According to it, a giant scorpion hunted Orion due to his boasts and managed to 
 （[个人私货](https://github.com/CanopusEtaCarinae/tiebaposts/tree/master/constellation#%E7%8C%8E%E6%88%B7%E5%BA%A7%E6%A6%82%E5%86%B5)）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
+
+#### [Re: Zero Daily Trivia #997](https://twitter.com/LoremIpsumVerb/status/1627702545001902080)
+
+According to the author, when Subaru was in elementary school he received quite a lot of chocolate from girls.
+
+And to add to that, he also likely gave some back too.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：スバルのチョコ戦績。小さいころは女の子からもらってた？<br/>
+A：小学校ぐらいのときは結構もらってたし、あげてたんじゃないかな。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
