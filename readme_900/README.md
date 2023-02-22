@@ -1397,3 +1397,18 @@ A：小学校ぐらいのときは結構もらってたし、あげてたんじ�
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [#998 本日Ice个人原因无Trivia](https://twitter.com/LoremIpsumVerb/status/1628318209936969728)
+
+---
+
+#### [Re: Zero Daily Trivia #999](https://twitter.com/LoremIpsumVerb/status/1628318209936969728)
+
+According to Re: Zeropedia, though Emilia's real age is unknown, her mental age is not that much different to Subaru's, or perhaps, in some aspects, a little more childish.
+
+（Zeropedia人物介绍）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
