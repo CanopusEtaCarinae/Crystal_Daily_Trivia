@@ -1398,7 +1398,17 @@ A：小学校ぐらいのときは結構もらってたし、あげてたんじ�
 
 ---
 
-#### [#998 本日Ice个人原因无Trivia](https://twitter.com/LoremIpsumVerb/status/1628318209936969728)
+#### [#998 本日Ice个人原因无Trivia](https://twitter.com/LoremIpsumVerb/status/1628115772139573258)
+
+#### Supplementary Trivia #998-b
+
+（此Trivia于#999次日补充）
+
+According to the author, Theresia's hairclips and such were gifts from her family, so perhaps she got them straight from her older brother Thames and her other brothers.
+
+（18年前代生日）
+
+[Return to Content](#Content)<br/>
 
 ---
 
