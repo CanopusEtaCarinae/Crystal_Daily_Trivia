@@ -1422,3 +1422,9 @@ According to Re: Zeropedia, though Emilia's real age is unknown, her mental age 
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [#1000 千条纪念](https://twitter.com/LoremIpsumVerb/status/1628791467194851331)
+
+（自千条起trivia不再保证日更）
+
+---
