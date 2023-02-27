@@ -1,11 +1,13 @@
 # Crystal's Daily Trivias - From #901
 
+<!--
 <details>
 <summary>【出处待完善】</summary>
 
 十周年问答资源待补：
 
 </details>
+-->
 
 ### Content
 
