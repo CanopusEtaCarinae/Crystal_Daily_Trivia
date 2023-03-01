@@ -1,5 +1,7 @@
 # Crystal's Trivias - From #1001
 
+（注：#1001起Trivia不再日更故新开文档。其余部分传送门列于[目录](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#content)）
+
 <!--
 <details>
 <summary>【出处待完善】</summary>
@@ -23,7 +25,20 @@ According to the author, Echidna had a book that was extremely important to her,
 
 However, the author then went on to say it was a spoiler, thus not revealing what the book is.
 
-（19年多娜生日）
+（18年多娜生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1002](https://twitter.com/LoremIpsumVerb/status/1630651994644815885)
+
+Tappei Nagatsuki is known for referencing many Japanese series and pieces of pop culture in Re: Zero.
+
+Among them, he even made a reference to Attack on Titan in Chapter 15 of Arc 7, after Subaru and the others arrived in the walled city of Guaral.
+
+（七章第15节）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
