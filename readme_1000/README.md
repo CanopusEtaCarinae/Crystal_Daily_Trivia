@@ -44,3 +44,16 @@ Among them, he even made a reference to Attack on Titan in Chapter 15 of Arc 7, 
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1003](https://twitter.com/LoremIpsumVerb/status/1631742556240314381)
+
+Among the references Tappei had made to popular works of fiction in Re: Zero, one of them is to Togashi's  Hunter x Hunter.
+
+In Arc 6, Chapter 14, Subaru advises to take the right path following Kurapika's advice in the Hunter Exam.
+
+（六章第14节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
