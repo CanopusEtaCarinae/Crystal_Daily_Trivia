@@ -57,3 +57,14 @@ In Arc 6, Chapter 14, Subaru advises to take the right path following Kurapika's
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1004](https://twitter.com/LoremIpsumVerb/status/1632125737502232583)
+
+According to Kadokawa producer, Tanaka Shou, White Fox was first chosen to adapt Re: Zero due to their attention to detail, the care they put into their work, and the faith and respect they show to the source material.
+
+【[这个来源大概还要再了解一下](https://www.crunchyroll.com/anime-feature/2016/07/17/rezero-all-night-marathon-and-staff-discussion-what-makes-subaru-tick-everyone-off)】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
