@@ -68,3 +68,16 @@ According to Kadokawa producer, Tanaka Shou, White Fox was first chosen to adapt
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1005](https://twitter.com/LoremIpsumVerb/status/1632477663481806848)
+
+Re: Zero's Arc 7 began with Rem in Chapter One asking Subaru who he was as well as who she herself was.
+
+In contrast, the final chapter of the Arc ended with Rem only asking who Shotabaru was. A contrast that was likely planned by the author.
+
+（七章首末节照应？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
