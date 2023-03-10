@@ -81,3 +81,14 @@ In contrast, the final chapter of the Arc ended with Rem only asking who Shotaba
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1006](https://twitter.com/LoremIpsumVerb/status/1633819926984024065)
+
+Rem and Ram were originally designed to look expressionless in Volume 2. However, after Tappei and the editor both said "They're popular, so make them cute", the illustrator, Otsuka re-did them, also improving their maid outfits so they'd look less plain.
+
+（第二卷卷尾）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
