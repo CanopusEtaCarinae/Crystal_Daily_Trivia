@@ -92,3 +92,16 @@ Rem and Ram were originally designed to look expressionless in Volume 2. However
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1007](https://twitter.com/LoremIpsumVerb/status/1634266313152397313)
+
+Today in Japan (March 11) it's Nagatsuki Tappei's Birthday, with him turning 36 years old!
+
+Happy birthday Sensei! We all hope you have a great year and make this another great year for Re: Zero as well!
+
+（老贼生日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
