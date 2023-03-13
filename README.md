@@ -9,7 +9,6 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 （注2：自约[#816](#re-zero-daily-trivia-816)起Ice似乎是因Schedule Tweets功能不支持回复而断更来源，故自此起Trivia出处又需要我自己找了……找不到的依旧会按之前的格式标注。[#845](#re-zero-daily-trivia-845)起恢复标注来源，不过个别感觉Ice解释不够我又找不太清楚的还是会标上）
 
 <!--（注3：自[#1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#1000-%E5%8D%83%E6%9D%A1%E7%BA%AA%E5%BF%B5)后Trivia不再日更，每日Trivia标题也去掉Daily。[后续Trivia](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)亦另起文档-->
-<!--自【#1001】起....【另起文档】-->
 
 <details>
 <summary>【出处待完善】</summary>
