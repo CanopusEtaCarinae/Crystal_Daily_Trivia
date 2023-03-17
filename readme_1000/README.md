@@ -105,3 +105,19 @@ Happy birthday Sensei! We all hope you have a great year and make this another g
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1008](https://twitter.com/LoremIpsumVerb/status/1636381813684723712)
+
+Today, the 17th of March in Japan, is the day which "Choose Me" aired during Season Two of the Anime.
+
+It's also the day Tappei told people to celebrate Beatrice's birthday, as her actual birthday is a spoiler.
+
+Happy provisional birthday!
+
+（Web十周年问答提及读者可暂将动画选我吧放送日当贝蒂生日【[暂定汇总](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/10yrQA_by_kasakun.txt)。[参考原推1](https://twitter.com/yumito_Re/status/1516796572993867780)；[参考原推2](https://twitter.com/kurosu_minhaya6/status/1516800563672887298)；[英肉](https://witchculttranslation.com/2022/08/02/re-zero-10th-anniversary-space-qa-session-by-the-author-summary-translation)】）<br/>
+贝蒂生日是剧透亦有[早年推文提及](https://twitter.com/nezumiironyanko/status/860576425048285184)
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
