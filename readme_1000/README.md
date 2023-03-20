@@ -121,3 +121,18 @@ Happy provisional birthday!
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1009](https://twitter.com/LoremIpsumVerb/status/1637383000307429376)
+
+Among the characters the author confirmed would probably be getting a named chapter in Arc 7 was Garfiel Tinsel, in 2017.
+
+However, it seems this decision was postponed as with Arc 7 completed, he still has not received one.
+
+Let's hope for Arc 8!
+
+（17年加菲猫生日推下老贼自己的[一条回复](https://twitter.com/nezumiironyanko/status/918466624109273088)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
