@@ -136,3 +136,16 @@ Let's hope for Arc 8!
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1010](https://twitter.com/LoremIpsumVerb/status/1640686573866942465)
+
+The "Stone" Muspel is said to move "in a big way" every 12 years. The results of its movements cause massive earthquakes to occur sometime afterward.
+
+His location soon after Vincent met Chisha for the first time was the Gairahal Tropics.
+
+（33卷gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
