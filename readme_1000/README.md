@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) <!--&zwnj; [1011-1020](#re-zero-daily-trivia-1011) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-daily-trivia-1011) <!--&zwnj; [1021-1030](#re-zero-daily-trivia-1021) &zwnj;-->
 
 ---
 
@@ -144,6 +144,19 @@ The "Stone" Muspel is said to move "in a big way" every 12 years. The results of
 His location soon after Vincent met Chisha for the first time was the Gairahal Tropics.
 
 （33卷gamers）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1011](https://twitter.com/LoremIpsumVerb/status/1641817641861152772)
+
+Today, the 1st of April in Japan, is Natsuki Subaru's birthday. Happy birthday to our protagonist, may he have another adventure filled year!
+
+It's typically customary for Tappei to release an IF chapter during his birthday, so stay tuned!
+
+（486生日）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)

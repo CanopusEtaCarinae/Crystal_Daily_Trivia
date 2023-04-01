@@ -12768,7 +12768,7 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 圣域先于大灾变 https://twitter.com/nezumiironyanko/status/1096033216891211777
 
-作息 起居：ask.fm スバルの一日 #895
+作息 起居 日常：ask.fm スバルの一日 #895
 
 【巨】 trivia 870
 
