@@ -162,3 +162,16 @@ It's typically customary for Tappei to release an IF chapter during his birthday
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1012](https://twitter.com/LoremIpsumVerb/status/1642904796314185730)
+
+Today, the 4th of April in Japan, is the seven year anniversary of the Re: Zero Anime first broadcasting!
+
+Whitefox truly cooked with that, so let us hope they cook something truly special up for us again for Season Three.😉
+
+（动画第一季首播日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
