@@ -175,3 +175,33 @@ Whitefox truly cooked with that, so let us hope they cook something truly specia
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1013](https://twitter.com/LoremIpsumVerb/status/1643563864951255041)
+
+According to Tappei, Subaru likely won't be eaten by small creatures again.
+
+However, in the Talkshow, he reckoned being devoured by insects or a creature with a large mouth as perhaps different enough. He then thought of a good idea, which he may do later
+
+【23年3月访谈。当前汇总：<br/>
+https://twitter.com/LoremIpsumVerb/status/1642437482791706624<br/>
+https://twitter.com/LoremIpsumVerb/status/1642553287713996803<br/>
+https://tieba.baidu.com/p/8337935935<br/>
+本条似乎不太确定有收录】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1014](https://twitter.com/LoremIpsumVerb/status/1644422865855340544)
+
+When asked by a fan in 2017 what he thought about Mushoku Tensei, Tappei replied that people were missing out in their lives by not reading it.
+
+He also added that its author, Rifujin na Maganote, was a really awesome person and a friend.
+
+https://twitter.com/nezumiironyanko/status/866275363013353472
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
