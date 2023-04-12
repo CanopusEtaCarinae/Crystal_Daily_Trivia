@@ -205,3 +205,18 @@ https://twitter.com/nezumiironyanko/status/866275363013353472
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1015](https://twitter.com/LoremIpsumVerb/status/1645850084129533952)
+
+According to Tappei, one of the reasons why he is able to write so well is because since a long time ago, he used to like reading dictionaries, to the point that he would open one at random and have scavenger hunts to find the right words.
+
+【23年3月访谈。当前汇总：<br/>
+https://twitter.com/LoremIpsumVerb/status/1642437482791706624<br/>
+https://twitter.com/LoremIpsumVerb/status/1642553287713996803<br/>
+https://tieba.baidu.com/p/8337935935<br/>
+本条似乎不太确定有收录】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---

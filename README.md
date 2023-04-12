@@ -12776,4 +12776,6 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 2022-05-30 add license
 
+EMT 说谎 胃痛 肚子痛 新编集实况 2023春问答
+
 -->
