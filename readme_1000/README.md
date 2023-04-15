@@ -182,11 +182,13 @@ According to Tappei, Subaru likely won't be eaten by small creatures again.
 
 However, in the Talkshow, he reckoned being devoured by insects or a creature with a large mouth as perhaps different enough. He then thought of a good idea, which he may do later
 
-【23年3月访谈。当前汇总：<br/>
+（23年3月访谈。民间汇总：<br/>
 https://twitter.com/LoremIpsumVerb/status/1642437482791706624<br/>
 https://twitter.com/LoremIpsumVerb/status/1642553287713996803<br/>
 https://tieba.baidu.com/p/8337935935<br/>
-本条似乎不太确定有收录】
+官方汇总：<br/>
+http://re-zero.com/news/2159<br/>
+http://re-zero.com/news/2193）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
@@ -210,10 +212,13 @@ https://twitter.com/nezumiironyanko/status/866275363013353472
 
 According to Tappei, one of the reasons why he is able to write so well is because since a long time ago, he used to like reading dictionaries, to the point that he would open one at random and have scavenger hunts to find the right words.
 
-【23年3月访谈。当前汇总：<br/>
+【23年3月访谈。民间汇总：<br/>
 https://twitter.com/LoremIpsumVerb/status/1642437482791706624<br/>
 https://twitter.com/LoremIpsumVerb/status/1642553287713996803<br/>
 https://tieba.baidu.com/p/8337935935<br/>
+官方汇总：<br/>
+http://re-zero.com/news/2159<br/>
+http://re-zero.com/news/2193<br/>
 本条似乎不太确定有收录】
 
 [Return to Content](#Content)<br/>
