@@ -225,3 +225,16 @@ http://re-zero.com/news/2193<br/>
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1016](https://twitter.com/LoremIpsumVerb/status/1646983628478459909)
+
+Since Arc 7, Ch. 43, Subaru has not referred to Beatrice by her "Beako" nickname once. Even when speaking to her after their reunion he's only ever used her full name.
+
+This likely was done intentionally by Tappei to highlight Shotabaru's memory problems.
+
+（截至八章第1/2节，486最后一次称呼Beako的位置）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
