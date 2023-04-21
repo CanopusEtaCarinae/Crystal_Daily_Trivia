@@ -238,3 +238,29 @@ This likely was done intentionally by Tappei to highlight Shotabaru's memory pro
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1017](https://twitter.com/LoremIpsumVerb/status/1648763097677455373)
+
+After Emilia broke free from the ice, Puck declared that she could depend on him, calling her by her actual name.
+
+This was despite the fact Emilia had never told him his name up to that point, implying Puck may have had foreknowledge of it.
+
+（冰结四章第7节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1018](https://twitter.com/LoremIpsumVerb/status/1649034681243914241)
+
+Today, the 20th of April, is the 11th anniversary of Re: Zero!
+
+The first chapter of the Web Novel was posted precisely at 21:58 PM JST on this day 11 years ago. Re: Zero has evolved to become a massive IP since then, many congratulations to all involved!
+
+（Web十一周年纪念。Ice亦踩点一章1节发布时间）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
