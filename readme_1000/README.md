@@ -264,3 +264,16 @@ The first chapter of the Web Novel was posted precisely at 21:58 PM JST on this 
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1019](https://twitter.com/LoremIpsumVerb/status/1649794718023155712)
+
+One of the books given to Beatrice by Geuse in Ep. 18 of Season 2's Breaktime, shown here, has a hidden Easter egg to it.
+
+Its title when translated is "Kono subarashii sekai ni shukufuku wo", the title of the popular work "Konosuba" in Japanese.
+
+（动画48集SP 书上i文字）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
