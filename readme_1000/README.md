@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) <!--&zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) <!--&zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj;-->
 
 ---
 
@@ -272,6 +272,30 @@ One of the books given to Beatrice by Geuse in Ep. 18 of Season 2's Breaktime, s
 Its title when translated is "Kono subarashii sekai ni shukufuku wo", the title of the popular work "Konosuba" in Japanese.
 
 （动画48集SP 书上i文字）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1020](https://twitter.com/LoremIpsumVerb/status/1651610641336094720)
+
+According to Omega in the Side Story "The Witches' After Tea Party: One Wild Night", she died as Echidna at the tender age of 19 years old.
+
+（One Wild Night前篇4节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1021](https://twitter.com/LoremIpsumVerb/status/1652008693611786240)
+
+Today, 4/29 in Japan, is Elsa Granhiert's birthday! Happy birthday!
+
+The date is a play on the words "death" and "meat". Four (四) has the same pronunciation as death (死), while two (二) and nine (九) are pronounced "ni" and "ku", like meat (肉 ) - "niku".
+
+（猎肠生日由来：[17年生日推](https://twitter.com/nezumiironyanko/status/857974304117370880)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
