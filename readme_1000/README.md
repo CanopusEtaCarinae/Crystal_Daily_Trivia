@@ -301,3 +301,17 @@ The date is a play on the words "death" and "meat". Four (四) has the same pron
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1022](https://twitter.com/LoremIpsumVerb/status/1653027991125995526)
+
+According to Masaharu Watanabe, the Director of Re: Zero Season 1 & 2, the original plan for the ED Song of the iconic Episode 15 of Season 1 was to use a different song.
+
+That changed the moment they heard Suehiro's Requiem of Silence, the rest is history.
+
+https://www.animatetimes.com/news/details.php?id=1469099850<br/>
+https://www.crunchyroll.com/anime-feature/2016/07/31-1/feature-rezero-director-and-composer-discuss-their-fixation-on-theatrical-music
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
