@@ -308,8 +308,24 @@ According to Masaharu Watanabe, the Director of Re: Zero Season 1 & 2, the origi
 
 That changed the moment they heard Suehiro's Requiem of Silence, the rest is history.
 
+（动画相关访谈）<br/>
 https://www.animatetimes.com/news/details.php?id=1469099850<br/>
 https://www.crunchyroll.com/anime-feature/2016/07/31-1/feature-rezero-director-and-composer-discuss-their-fixation-on-theatrical-music
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1023](https://twitter.com/LoremIpsumVerb/status/1653418968009277442)
+
+Today, May 3rd in Japan, is Pandora's birthday!
+
+The reason this date is her birthday is due to [@back\_to\_death_](https://twitter.com/back_to_death_)
+ - the biggest Pandora fan in the fandom - asking at the latest talkshow. It also happens to be his birthday with Tappei assigning it due to that!
+
+（23年3月访谈之一）<br/>
+https://twitter.com/LoremIpsumVerb/status/1642437482791706624
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
