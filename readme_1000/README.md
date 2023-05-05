@@ -331,3 +331,18 @@ https://twitter.com/LoremIpsumVerb/status/1642437482791706624
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1024](https://twitter.com/LoremIpsumVerb/status/1653878582362374146)
+
+Masaharu Watanabe, the Director of Re: Zero Season 1 & 2, as well as Yoshiko Nakamura, one of its scriptwriters, have both gone on the record stating that they are a fan of the Great Spirit Puck.
+
+What do you think? Do they have good taste?
+
+（一期15，16话访谈）<br/>
+https://www.animatetimes.com/news/details.php?id=1472111109<br/>
+https://www.crunchyroll.com/anime-feature/2016/09/17/feature-the-scriptwriters-of-rezero-episodes-15-and-16-discuss-what-happened-behind-the-scenes
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+----
