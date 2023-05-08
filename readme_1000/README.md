@@ -346,3 +346,16 @@ https://www.crunchyroll.com/anime-feature/2016/09/17/feature-the-scriptwriters-o
 [Return to top](#crystals-trivias---from-1001)
 
 ----
+
+#### [Re: Zero Trivia #1025](https://twitter.com/LoremIpsumVerb/status/1655345503448571904)
+
+According to Masahiro Yokotani, who worked on Re: Zero Season 1 & 2's script and composition, the male staff involved in the production of Season 1 liked Priscilla because they felt she was directing her contempt at them when they were reading the script.
+
+（一期15，16话访谈）<br/>
+https://www.animatetimes.com/news/details.php?id=1472111109<br/>
+https://www.crunchyroll.com/anime-feature/2016/09/17/feature-the-scriptwriters-of-rezero-episodes-15-and-16-discuss-what-happened-behind-the-scenes
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+----
