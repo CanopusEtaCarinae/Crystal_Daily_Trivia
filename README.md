@@ -2865,7 +2865,7 @@ Aldebaran was specifically allowed by a guard to escape from the Gladiator Islan
 
 The guard let him flee because he saw there was purpose in his eyes, and even went as far as gifting him the custom-made helmet, to aid him with travel funds.
 
-（[特典人物简评](https://tieba.baidu.com/p/5714739713)）
+（[特典人物简评（Visual Complete Vol.1）](https://tieba.baidu.com/p/5714739713)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)

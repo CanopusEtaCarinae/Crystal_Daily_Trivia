@@ -359,3 +359,16 @@ https://www.crunchyroll.com/anime-feature/2016/09/17/feature-the-scriptwriters-o
 [Return to top](#crystals-trivias---from-1001)
 
 ----
+
+#### [Re: Zero Trivia #1026](https://twitter.com/LoremIpsumVerb/status/1656300513468489729)
+
+According to Re: Zero Visual Complete, Felix Argyle has written several journal volumes detailing how great of a person Crusch Karsten is.
+
+The volumes are titled "The Saga of the Great Crusch-sama", just like the eponymous short story series.
+
+（[特典人物简评（Visual Complete Vol.1）](https://tieba.baidu.com/p/5714739713)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+----
