@@ -12778,4 +12778,6 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 EMT 说谎 胃痛 肚子痛 新编集实况 2023春问答
 
+千日手 https://twitter.com/nezumiironyanko/status/350077350702100482
+
 -->

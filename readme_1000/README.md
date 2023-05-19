@@ -372,3 +372,16 @@ The volumes are titled "The Saga of the Great Crusch-sama", just like the eponym
 [Return to top](#crystals-trivias---from-1001)
 
 ----
+
+#### [Re: Zero Trivia #1027](https://twitter.com/LoremIpsumVerb/status/1658947911747551234)
+
+Depending how you count, Re: Zero currently has 605 Web Novel chapters that make up the main story.
+
+Currently, those who have watched both Seasons of the Anime have to read a whopping 305 Web Novel chapters to catch up from the end of Arc 4.
+
+【截至此Trivia时Web正篇处于八章15节。具体大概还要专门数非正篇有几个】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+----
