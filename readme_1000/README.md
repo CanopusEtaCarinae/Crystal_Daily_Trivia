@@ -385,3 +385,16 @@ Currently, those who have watched both Seasons of the Anime have to read a whopp
 [Return to top](#crystals-trivias---from-1001)
 
 ----
+
+#### [Re: Zero Trivia #1028](https://twitter.com/LoremIpsumVerb/status/1660750443130109955)
+
+According to Re: Zero Season 1 Production Staff, one of the main reasons that Yuusuke Kobayashi was chosen to voice Subaru was because he had by far the most 'jackass'-y voice of all the audition tapes they received.
+
+（动画相关访谈）<br/>
+https://www.animatetimes.com/news/details.php?id=1467951896
+https://www.crunchyroll.com/anime-feature/2016/07/17/rezero-all-night-marathon-and-staff-discussion-what-makes-subaru-tick-everyone-off
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
