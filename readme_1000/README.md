@@ -398,3 +398,12 @@ https://www.crunchyroll.com/anime-feature/2016/07/17/rezero-all-night-marathon-a
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1029](https://twitter.com/LoremIpsumVerb/status/1662848415498137602)
+
+【就19卷彩插的俩截图，大概是要网友自行体会……？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
