@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) <!--&zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) <!--&zwnj; [1031-1040](#re-zero-trivia-1031)--> <!--&zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj;-->
 
 ---
 
@@ -402,6 +402,19 @@ https://www.crunchyroll.com/anime-feature/2016/07/17/rezero-all-night-marathon-a
 #### [Re: Zero Trivia #1029](https://twitter.com/LoremIpsumVerb/status/1662848415498137602)
 
 【就19卷彩插的俩截图，大概是要网友自行体会……？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1030](https://twitter.com/LoremIpsumVerb/status/1663987682857418757)
+
+Volume 34's cover seems to be based on Time Bell Tower (toki no kane), located in the centre of Kawagoe, Saitama prefecture.
+
+Saitama is where the author has hinted Subaru to live in, and also happens to be where the author also lives!
+
+【应该也算民间考证？】
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
