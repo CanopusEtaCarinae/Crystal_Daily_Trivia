@@ -391,7 +391,7 @@ Currently, those who have watched both Seasons of the Anime have to read a whopp
 According to Re: Zero Season 1 Production Staff, one of the main reasons that Yuusuke Kobayashi was chosen to voice Subaru was because he had by far the most 'jackass'-y voice of all the audition tapes they received.
 
 （动画相关访谈）<br/>
-https://www.animatetimes.com/news/details.php?id=1467951896
+https://www.animatetimes.com/news/details.php?id=1467951896）<br/>
 https://www.crunchyroll.com/anime-feature/2016/07/17/rezero-all-night-marathon-and-staff-discussion-what-makes-subaru-tick-everyone-off
 
 [Return to Content](#Content)<br/>
