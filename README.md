@@ -69,7 +69,6 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
 <!--
-**[#1001](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)起Trivia不再日更，后续另起文档：**
 
 [1001-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)-->
 
