@@ -70,7 +70,7 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 <!--
 
-[1001-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)-->
+&zwnj; [1001-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)-->
 
 ---
 
