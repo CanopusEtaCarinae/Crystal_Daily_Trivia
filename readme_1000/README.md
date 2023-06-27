@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) <!--&zwnj; [1031-1040](#re-zero-trivia-1031)--> <!--&zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) <!--&zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj;--> <!--&zwnj; [1051-1060](#re-zero-trivia-1051) &zwnj;-->
 
 ---
 
@@ -418,5 +418,24 @@ Saitama is where the author has hinted Subaru to live in, and also happens to be
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1031](https://twitter.com/LoremIpsumVerb/status/1673255182883225606)
+
+It's been a while, but I'm bringing back the trivia with a full, detailed summary of The Dragon Nation / Meili’s Witchbeast Observation Records 3, the last of the Side Stories that came out with Volume 34.
+
+One of the best in recent times. Kino/10.
+
+<details>
+<summary>（Ice的34卷虎之穴总结）</summary>
+
+![](https://pbs.twimg.com/media/FziYi-QWAAAa4d-?format=png)
+![](https://pbs.twimg.com/media/FziYlk_XgAInrgK?format=png)
+![](https://pbs.twimg.com/media/FziYpdRWcAcENMN?format=png)
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
 
 ---
