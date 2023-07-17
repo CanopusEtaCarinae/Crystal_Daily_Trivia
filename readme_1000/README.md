@@ -439,3 +439,14 @@ One of the best in recent times. Kino/10.
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Trivia #1032](https://twitter.com/LoremIpsumVerb/status/1674537422091083779)
+
+According to Cecilus Segmunt, the word Sparka, which contemporarily in Vollachia refers to making Gladiators fight, originally referred to duels where the combatants had staked their unwavering beliefs on it.
+
+（Brotherhood of Pleiades 2话）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
