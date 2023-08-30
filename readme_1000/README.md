@@ -436,7 +436,7 @@ One of the best in recent times. Kino/10.
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias---from-901)
+[Return to top](#crystals-trivias---from-1001)
 
 ---
 
@@ -447,6 +447,19 @@ According to Cecilus Segmunt, the word Sparka, which contemporarily in Vollachia
 （Brotherhood of Pleiades 2话）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias---from-901)
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1033](https://twitter.com/LoremIpsumVerb/status/1694499858181173403)
+
+Despite its immense popularity, the Re: Zero Web Novel has never reached the top rank in any of Narou's daily, weekly, monthly, quarterly or overall ranks.
+
+The best it was able to achieve was a rank of third in the quarter of July, 2016.
+
+（[Syosetu后台数据？](https://twitter.com/LoremIpsumVerb/status/1694499910953890004)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
 
 ---
