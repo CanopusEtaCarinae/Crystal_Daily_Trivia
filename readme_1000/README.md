@@ -463,3 +463,18 @@ The best it was able to achieve was a rank of third in the quarter of July, 2016
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1034](https://twitter.com/LoremIpsumVerb/status/1706025418740867196)
+
+According to the author, Spirits in Re: Zero are unable to have children.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：精霊って子供とかできるんですか？<br/>
+A：できません。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
