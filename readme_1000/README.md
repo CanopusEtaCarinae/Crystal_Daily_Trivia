@@ -478,3 +478,14 @@ A：できません。
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Trivia #1035](https://twitter.com/LoremIpsumVerb/status/1714763662232072493)
+
+Though it's widely known by the fandom that Re: Zero's editor is Masahito Ikemoto, what's less known is that Ikemoto is also the editor for the other popular MF Bunko Light Novel Series: Classroom of the Elite.
+
+（i编相关？）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
