@@ -489,3 +489,16 @@ Though it's widely known by the fandom that Re: Zero's editor is Masahito Ikemot
 [Return to top](#crystals-daily-trivias)
 
 ---
+
+#### [Re: Zero Trivia #1036](https://twitter.com/LoremIpsumVerb/status/1722639952838529496)
+
+Aldebaran's mysterious Domain Expansion ability (領域展開) shares the exact same name as the one in Jujutsu Kaisen.
+
+Though the nature of the ability between series is different, it's unknown when Al is saying it, if he's explicitly referencing JJK
+
+（咒术回战里的梗？ACG盲没了解过😷）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias)
+
+---
