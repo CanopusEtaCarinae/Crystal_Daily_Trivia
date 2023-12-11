@@ -475,7 +475,7 @@ A：できません。
 </details>
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-trivias---from-1001)
 
 ---
 
@@ -486,7 +486,7 @@ Though it's widely known by the fandom that Re: Zero's editor is Masahito Ikemot
 （i编相关？）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-trivias---from-1001)
 
 ---
 
@@ -499,6 +499,19 @@ Though the nature of the ability between series is different, it's unknown when 
 （咒术回战里的梗？ACG盲没了解过😷）
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-daily-trivias)
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1037](https://twitter.com/LoremIpsumVerb/status/1733969069366198314)
+
+Soon after Garfiel left the Sanctuary and came to Roswaal's mansion, he spent his time scenting the place up to mark his territory.
+
+Similarly, just like her half-brother, Frederica also scented the place up right after she had left the Sanctuary.
+
+（Golden Siblings）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
 
 ---
