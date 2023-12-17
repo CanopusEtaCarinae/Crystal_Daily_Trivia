@@ -515,3 +515,17 @@ Similarly, just like her half-brother, Frederica also scented the place up right
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1038](https://twitter.com/LoremIpsumVerb/status/1736213379620974859)
+
+Despite being depicted having rather large breasts in the Anime, in the novel, Echidna is presented as being on the smaller side.
+
+In fact, in the author's breast size ranking, Echidna appears just above Anastasia, and below Rem.
+
+
+（排名应该还是[#47](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#re-zero-daily-trivia-47)的那个）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
