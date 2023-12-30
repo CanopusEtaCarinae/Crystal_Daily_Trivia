@@ -529,3 +529,17 @@ In fact, in the author's breast size ranking, Echidna appears just above Anastas
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1039](https://twitter.com/LoremIpsumVerb/status/1740902953576435949)
+
+Despite her physical looks, Felt is currently not classified as being a loli by the author.
+
+Do as you wish with this information.
+
+（18年菲鲁特生日，此条[fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E8%8F%B2%E9%B2%81%E7%89%B9/%E7%8C%AB%E8%AF%AD)未收录）<br/>
+https://twitter.com/owl_TokyoGhoul/status/1027174677095931904
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-daily-trivias---from-901)
+
+---
