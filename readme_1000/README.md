@@ -543,3 +543,16 @@ https://twitter.com/owl_TokyoGhoul/status/1027174677095931904
 [Return to top](#crystals-daily-trivias---from-901)
 
 ---
+
+#### [Re: Zero Trivia #1040](https://twitter.com/LoremIpsumVerb/status/1749826997742707069)
+
+Today, January the 24th in Japan, marks the 10 YEAR ANNIVERSAY of the Re: Zero Light Novel!
+
+A decade to this date marked the iconic release of the first volume of this series that has gone on to become a behemoth in both Light Novel and Anime!
+
+（文库第一卷出版日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
