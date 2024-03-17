@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) <!--&zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj;--> <!--&zwnj; [1051-1060](#re-zero-trivia-1051) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) <!--&zwnj; [1051-1060](#re-zero-trivia-1051) &zwnj;-->
 
 ---
 
@@ -551,6 +551,17 @@ Today, January the 24th in Japan, marks the 10 YEAR ANNIVERSAY of the Re: Zero L
 A decade to this date marked the iconic release of the first volume of this series that has gone on to become a behemoth in both Light Novel and Anime!
 
 （文库第一卷出版日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1041](https://twitter.com/LoremIpsumVerb/status/1767395979865502043)
+
+Due to events in the Web Novel being different to the Light Novel, it was originally thought at large by the Fandom that Rui (Louis) Arneb was a man, all the way up to Arc 6, Chapter 59, where Subaru met her at the Cradle of the Od Lagna.
+
+（Trivia说的6章59本身就算出处了罢）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
