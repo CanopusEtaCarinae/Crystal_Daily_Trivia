@@ -6206,6 +6206,7 @@ According to Tappei, if you pay attention to Raksha's hair colour, Kadomon Risch
 The most common speculation is that she's Grimm & Carol's daughter.
 
 （一期1集实况解说）
+（补：2024访谈确认：https://twitter.com/LoremIpsumVerb/status/1773955657537896881）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias)
