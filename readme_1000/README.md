@@ -587,3 +587,14 @@ https://twitter.com/LoremIpsumVerb/status/1776324810550779929
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1043](https://twitter.com/LoremIpsumVerb/status/1778421382235160855)
+
+According to the author, Re: Zero's treatment of magic and curses, where they are regarded as different to each other, is influenced by Kuji Furumiya's series: Unnamed Memory.
+
+https://twitter.com/nezumiironyanko/status/1777724955247165675
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
