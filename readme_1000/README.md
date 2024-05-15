@@ -188,7 +188,7 @@ https://twitter.com/LoremIpsumVerb/status/1642553287713996803<br/>
 https://tieba.baidu.com/p/8337935935<br/>
 官方汇总：<br/>
 http://re-zero.com/news/2159<br/>
-http://re-zero.com/news/2193）
+http://re-zero.com/news/2193 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
