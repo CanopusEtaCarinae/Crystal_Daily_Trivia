@@ -12777,4 +12777,10 @@ EMT 说谎 胃痛 肚子痛 新编集实况 2023春问答
 
 只会捏486 EMT https://twitter.com/nezumiironyanko/status/522628816930631680
 
+2403 QA
+https://www.bilibili.com/read/cv34532255/?spm_id_from=333.999.0.0
+https://re-zero.com/news/2403/
+https://re-zero.com/news/2313/
+https://tieba.baidu.com/p/8958756608
+
 -->
