@@ -617,3 +617,16 @@ According to Tappei, Garfiel sheds his fur for new fur when the seasons change. 
 Subaru and the others are left puzzled by how his shed fur has an effect on his pre-transformation self.
 
 （18年加菲猫生日。[Fandom](https://rezero.fandom.com/zh/wiki/%E8%A7%92%E8%89%B2:%E5%8A%A0%E8%8F%B2%E5%B0%94/%E7%8C%AB%E8%AF%AD)未收录此条，[原推](https://twitter.com/nezumiironyanko/status/1050866687824748544)提问者不可见。原问题大概只有[Reddit](https://www.reddit.com/r/Re_Zero/comments/9nynuu/translation_garfiels_birthday_2018_qa_tweets)英肉存档可看）
+
+---
+
+#### [Re: Zero Trivia #1046](https://twitter.com/LoremIpsumVerb/status/1791416656129896807)
+
+According to the author in his original post of the "Butterfly's Dream" IF, he will never do a harem route in the main story.
+
+（蝴蝶之梦原版后记）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
