@@ -630,3 +630,16 @@ According to the author in his original post of the "Butterfly's Dream" IF, he w
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1047](https://twitter.com/LoremIpsumVerb/status/1791766491655795016)
+
+Yuichi Nakamura, Reinhard van Astrea's voice actor, is known for voicing a lot of traditionally strong characters.
+
+Among them, he is also famously the voice of Jujutsu Kaisen's Gojou Satoru.
+
+（莱傲天CV）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
