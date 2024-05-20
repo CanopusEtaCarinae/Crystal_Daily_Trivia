@@ -224,7 +224,7 @@ Though not known by many, Re: Zero and Mushoku Tensei have a collaboration short
 
 The short story is illustrated by Yuka Fujikawa, the artist for Mushoku Tensei's manga adaptation.
 
-（莓大佬译文：https://tieba.baidu.com/p/6936529656）
+（莓大佬译文：https://tieba.baidu.com/p/6936529656 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-daily-trivias---from-901)
