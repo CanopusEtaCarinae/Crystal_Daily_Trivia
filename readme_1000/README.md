@@ -643,3 +643,16 @@ Among them, he is also famously the voice of Jujutsu Kaisen's Gojou Satoru.
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1048](https://twitter.com/LoremIpsumVerb/status/1794143840166666508)
+
+After first publishing "Natsuki Rem" in 2013, the author would traditionally write a Re: Zero EX part of the "Rem IF" timeline every year for Rem's birthday.
+
+This tradition continued for five chapters until discontinued after 2018's publication.
+
+（蕾姆IF 2013-2018）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
