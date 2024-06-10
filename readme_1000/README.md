@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) <!--&zwnj; [1051-1060](#re-zero-trivia-1051) &zwnj;--> <!--&zwnj; [1061-1070](#re-zero-trivia-1061) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) <!--&zwnj; [1051-1060](#re-zero-trivia-1051)--> <!--&zwnj; [1061-1070](#re-zero-trivia-1061)--> <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;-->
 
 ---
 
@@ -651,6 +651,19 @@ After first publishing "Natsuki Rem" in 2013, the author would traditionally wri
 This tradition continued for five chapters until discontinued after 2018's publication.
 
 （蕾姆IF 2013-2018）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1049](https://twitter.com/LoremIpsumVerb/status/1799876275139715257)
+
+Across all of the writing of Re: Zero thus far, there has only been one occasion in which Subaru used "aishiteru" to say "I love you" to Emilia.
+
+And that was with his final breath at the end of Ayamatsu IF, moments before he died.
+
+（傲慢IF）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
