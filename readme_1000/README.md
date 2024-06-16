@@ -669,3 +669,20 @@ And that was with his final breath at the end of Ayamatsu IF, moments before he 
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1050](https://twitter.com/LoremIpsumVerb/status/1802309932898746486)
+
+According to the author, the character who has the most attractive collarbone in Re: Zero is none other than Priscilla Barielle.
+
+Her dress sense helps accentuate them as she's not ashamed to show off her body.
+
+<details>
+<summary>（ask.fm：）</summary>
+Q：リゼロのキャラの中で一番鎖骨が魅力的なのは誰ですか。<br/>
+A：服装の関係で大体常に鎖骨見えてるのはプリシラですね。自分の体に恥じるところはない！と思っています。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
