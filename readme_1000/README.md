@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) <!--&zwnj; [1051-1060](#re-zero-trivia-1051)--> <!--&zwnj; [1061-1070](#re-zero-trivia-1061)--> <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj; [1051-1060](#re-zero-trivia-1051) <!--&zwnj; [1061-1070](#re-zero-trivia-1061)--> <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;-->
 
 ---
 
@@ -680,6 +680,25 @@ Her dress sense helps accentuate them as she's not ashamed to show off her body.
 <summary>（ask.fm：）</summary>
 Q：リゼロのキャラの中で一番鎖骨が魅力的なのは誰ですか。<br/>
 A：服装の関係で大体常に鎖骨見えてるのはプリシラですね。自分の体に恥じるところはない！と思っています。
+</details>
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1051](https://twitter.com/LoremIpsumVerb/status/1806030829073633308)
+
+Though common knowledge now, Kadomon Risch, our fruit vendor from the Royal Capital, had his surname revealed in an unusual manner.
+
+It was revealed in an interactive game hosted on MF Bunko Summer Festival's, where Beatrice would tell your fortune.
+
+<details>
+<summary>（ask.fm：）</summary>
+
+https://web.archive.org/web/20160718034925/http://mfbunkoj-fes.com/game/03/
+
+![](https://pbs.twimg.com/media/GRBPi_2WgAA-Ye6?format=png)
 </details>
 
 [Return to Content](#Content)<br/>
