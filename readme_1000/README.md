@@ -694,7 +694,7 @@ Though common knowledge now, Kadomon Risch, our fruit vendor from the Royal Capi
 It was revealed in an interactive game hosted on MF Bunko Summer Festival's, where Beatrice would tell your fortune.
 
 <details>
-<summary>（ask.fm：）</summary>
+<summary>（这游戏还真不知道，似乎Zeropedia里的占卜内容就从这来？）</summary>
 
 https://web.archive.org/web/20160718034925/http://mfbunkoj-fes.com/game/03/
 
