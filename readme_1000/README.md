@@ -705,3 +705,16 @@ https://web.archive.org/web/20160718034925/http://mfbunkoj-fes.com/game/03/
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1052](https://twitter.com/LoremIpsumVerb/status/1811859662557298837)
+
+Kadokawa is currently trying to register a trademark for the abbreviation "Re: Zero".
+
+Their application was rejected for now because the trademark was deemed to similar to two existing Japanese trademarks also going by "Rezero", but unrelated to the anime.
+
+【这算是个时事？】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
