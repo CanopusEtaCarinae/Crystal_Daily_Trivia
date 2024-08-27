@@ -12772,6 +12772,8 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 2022-05-30 add license
 
 EMT 说谎 胃痛 肚子痛 新编集实况 2023春问答
+https://www.bilibili.com/read/cv23215859/?spm_id_from=333.999.0.0
+https://tieba.baidu.com/p/8337935935?
 
 千日手 https://twitter.com/nezumiironyanko/status/350077350702100482
 
@@ -12783,4 +12785,35 @@ https://re-zero.com/news/2403/
 https://re-zero.com/news/2313/
 https://tieba.baidu.com/p/8958756608
 
+字数统计 https://docs.google.com/spreadsheets/d/e/2PACX-1vS8WoRDJWMLgARxhS-qg3YTADKf1ATAy1untsQaw39iu2iLihGBaCLOfP9C5dLwQvoIA1dtxiAJPTu_/pubhtml
+
+冰 Huma https://x.com/nezumiironyanko/status/843479804091363328 推搜ヒューマ
+
+@lyy289065406 p wh ynnu wty umd
+q t wb i aw falw gd
+
+s i j wb fqbh fq yqxg f uqwl lfn
+devil wypu r toyc xeg bn i wf on tj p tc unxq
+
+toyc xeg im on tj p tc unxq
+Tom qve jtg aet p hxf w yi i mqb tj wf dnuu vfwh icwx xeg
+
+s j im dnuu p wh icwx xeg
+p dtbh dfef wnnp owv bn i wf e vkwy p tc dd r ytyg sc
+
+yi tha djya gony gc cl vep w
+ue toyc xeg r icwx vtkd wu bn i mqb tj wf wqj wygd p tc fhu tj gffu，yh dfef wnnp owv r icwx xeg fhdt
+yh p dtbh khx thdu kkc tffh w r fnuj wqj wygd p tc dd，p tc dfnn
+et gcf hkrn kc tl xeg unim
+
+yi tha tfkd pgwf nyjg yh gjq qq w nkga @lyy289065406 r uqwl lfn sm toln uh
+wb r gotf bn nnnn qygh ipw tgj fqif iie xqi r khgp gxgu
+
+kw yekc w i s ew ftj gdgh fq tdt
+bn yekc thnn r fqce，fq rfsy，fq ftan，fq mqyk
+
+d vkwy ujmq seum pdhj gqje，ynd rnb ipw tgj r mqxt ggfu gh
+thnn bn kwce xpw d p fq w iyuj r g qe
+cf udh @lyy289065406 p wh gd qsu r dnv gogn pp idr，wqj ihnf g tem f
+qkq pfqf tfhy khtq，c udi rwb f lfc b
 -->

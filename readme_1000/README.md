@@ -718,3 +718,16 @@ Their application was rejected for now because the trademark was deemed to simil
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1053](https://twitter.com/LoremIpsumVerb/status/1828136490763010238)
+
+According to the author in a comment eight years ago, Al would lose to Reinhard in two seconds if the former just used his own real strength.
+
+Whereas, when it comes to Subaru, it would merely take him a single second to lose.
+
+https://twitter.com/nezumiironyanko/status/747099685685338112
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
