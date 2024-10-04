@@ -701,6 +701,9 @@ Their names are Picoutatte, Ganaks, Flanders, Pristella and Costuul. Of them, Co
 Q：ルグニカの、王都以外の都市や村ってどんな感じですか？
 
 A：王都を中心に、六茫星を描くように人口２０万から３０万クラスの大都市が六つ配置されています。それ以外にも小規模都市が点在、町、村落、集落レベルで下がっていきますね。人間族に限れば大体が村落レベルに住んでますが、亜人は集落レベルを山や森に作って暮らしているケースもあります。仲は積極的にはよくありません。
+
+页游矿山相关图 https://twitter.com/rezeroyumiya/status/1366350090034507779
+
 </details>
 
 [Return to Content](#Content)<br/>
@@ -12788,6 +12791,8 @@ https://tieba.baidu.com/p/8958756608
 字数统计 https://docs.google.com/spreadsheets/d/e/2PACX-1vS8WoRDJWMLgARxhS-qg3YTADKf1ATAy1untsQaw39iu2iLihGBaCLOfP9C5dLwQvoIA1dtxiAJPTu_/pubhtml
 
 冰 Huma https://x.com/nezumiironyanko/status/843479804091363328 推搜ヒューマ
+
+莱傲天 音速 十周年QA
 
 @lyy289065406 p wh ynnu wty umd
 q t wb i aw falw gd
