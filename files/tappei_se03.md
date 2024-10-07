@@ -5,6 +5,8 @@
 
 ### E01
 
+https://www.bilibili.com/read/cv39307414/
+
 アニメ3期なんてとんでもなく光栄な話ですが、初回の日は何回迎えてもドキドキしますね……！<br/>
 もってくれ90分、俺の心臓……！<br/>
 https://twitter.com/nezumiironyanko/status/1841476241943384304
