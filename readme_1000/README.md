@@ -736,7 +736,12 @@ https://twitter.com/nezumiironyanko/status/747099685685338112
 
 The songs "No Money, No Future" and "Dwawa, Age Gaps in Love", which were both sang ad-hoc by Liliana in Re: Zero Season 3, Episode 1, had their song lyrics created by none other than the author of the series: Nagatsuki Tappei.
 
-（应该就是指出自小说里的那些歌词……？）
+
+<details>
+<summary>（应该就是指出自小说里的那些歌词，首集片尾插曲信息里也有标注作词）</summary>
+
+![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/lyrics-1054.png)
+</details>
 <!--https://x.com/howlingwolfjoey/status/1842774499923554377 瞎闹-->
 
 [Return to Content](#Content)<br/>
