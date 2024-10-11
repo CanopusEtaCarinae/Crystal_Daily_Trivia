@@ -5,7 +5,7 @@
 
 ### E01
 
-https://www.bilibili.com/read/cv39307414/
+https://www.bilibili.com/read/cv39307414
 
 アニメ3期なんてとんでもなく光栄な話ですが、初回の日は何回迎えてもドキドキしますね……！<br/>
 もってくれ90分、俺の心臓……！<br/>
@@ -562,6 +562,8 @@ https://twitter.com/nezumiironyanko/status/1841501858067816939
 
 ### E02
 
+https://www.bilibili.com/read/cv39374031
+
 さあ、いよいよ2話の開始となります！<br/>
 今日も作者はハッシュタグ付きで喋ってますので、よろしくお願いしまーす！<br/>
 https://twitter.com/nezumiironyanko/status/1844022277110894769
@@ -819,7 +821,7 @@ https://twitter.com/nezumiironyanko/status/1844034473882718349
 
 ＥＤも公開されている。この立て続けの攻勢、脳が情報量でパンクするな……！<br/>
 始まりの王選候補者たちのシーンや、振り返ったエミリアの可愛さもそうですが、やはり大罪司教たちのシーンとラストに注目してもらいたい。100回見て！<br/>
-[（转推ED）](https://twitter.com/Rezero_official/status/1844030308246811075)
+[（转推ED）](https://twitter.com/Rezero_official/status/1844030308246811075)<br/>
 https://twitter.com/nezumiironyanko/status/1844034722089033756
 
 
