@@ -848,6 +848,8 @@ https://twitter.com/nezumiironyanko/status/1844036370861563994
 
 ### E03
 
+https://www.bilibili.com/read/cv39479071
+
 はい！　早くも一週間！　本日もリゼロのお時間です！　恐るべきことにもう3話！<br/>
 前回、衝撃の援軍？？が駆け付けて終わったところから！　さあ、どうなるか、今日もよろしくお願いしますー！！<br/>
 https://x.com/nezumiironyanko/status/1846558644017721376
@@ -977,6 +979,9 @@ https://x.com/nezumiironyanko/status/1846565956681908647
 今週のハイライトは「仲が悪すぎる大罪司教」「癇に障りすぎる放送」「働く可愛いフェリス」「主人公イベントとヒロインイベントをこなし続けるガーフィール＆ミミ」「オットーどうなった？」！<br/>
 また何回でも3話を見て、咀嚼し切ってから来週お会いしましょう！　ありがとう、ごめんね！<br/>
 https://x.com/nezumiironyanko/status/1846566608556507514
+
+
+[（零大科普）](https://www.bilibili.com/read/cv39474876)
 
 
 
