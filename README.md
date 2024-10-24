@@ -12680,6 +12680,8 @@ https://twitter.com/SNuserTL
 
 司教https://twitter.com/ReZeroMin/status/1267038825525596160
 
+19年 多娜VS 强欲 齑粉 https://twitter.com/nezumiironyanko/status/1096033988932558848
+
 访谈：
 
 https://docs.google.com/document/d/1fRUxMDEJp0A-sQe_b1ye82z7RnXlyhZlCCuP91TwYvI/edit
@@ -12712,7 +12714,7 @@ https://twitter.com/LoremIpsumVerb/status/1266149202389872641
 
 蕾姆在意上 尺寸 宽松 https://twitter.com/nezumiironyanko/status/407867610106036224
 
-没有486的发展もしスバルが存在していなかったら現時点で王戦候補者は全滅する未来
+没有486的发展 一章 死在王都 もしスバルが存在していなかったら現時点で王戦候補者は全滅する未来
 
 Great Capella
 

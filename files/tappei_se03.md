@@ -1,6 +1,6 @@
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) <!-- &nbsp; -->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) <!-- &nbsp; -->
 
 
 ### E01
@@ -852,136 +852,312 @@ https://www.bilibili.com/read/cv39479071
 
 はい！　早くも一週間！　本日もリゼロのお時間です！　恐るべきことにもう3話！<br/>
 前回、衝撃の援軍？？が駆け付けて終わったところから！　さあ、どうなるか、今日もよろしくお願いしますー！！<br/>
-https://x.com/nezumiironyanko/status/1846558644017721376
+https://twitter.com/nezumiironyanko/status/1846558644017721376
 
 
 
 今回のサブタイは「ゴージャス・タイガー」。<br/>
 初日以降、姿の見えないガーフィールに注目してほしい1話ですね！<br/>
-https://x.com/nezumiironyanko/status/1846559208738865506
+https://twitter.com/nezumiironyanko/status/1846559208738865506
 
 
 
 はっじまっりまっした！<br/>
-https://x.com/nezumiironyanko/status/1846559264162365834
+https://twitter.com/nezumiironyanko/status/1846559264162365834
 
 
 
 「あのさぁ」で話の出鼻をくじいてくる――！！<br/>
-https://x.com/nezumiironyanko/status/1846559408501014947
+https://twitter.com/nezumiironyanko/status/1846559408501014947
 
 
 
 なんだ話せばわかる人なんですね。ホッ。<br/>
-https://x.com/nezumiironyanko/status/1846559544270561619
+https://twitter.com/nezumiironyanko/status/1846559544270561619
 
 
 
 ヒューッ、何回見てもＯＰがかっけえ！<br/>
 たぶん500回くらい見てる！<br/>
-https://x.com/nezumiironyanko/status/1846559853558612207
+https://twitter.com/nezumiironyanko/status/1846559853558612207
 
 
 
 諸々が起こる前のオットー、訪問先に手土産を持参しました。ソワリエはシュークリームとかマリトッツァみたいなイメージ。バームベームはバームクーヘンかな。<br/>
-https://x.com/nezumiironyanko/status/1846560428295606743
+https://twitter.com/nezumiironyanko/status/1846560428295606743
 
 
 
 大罪司教ＶＳ大罪司教の屁理屈対決……！<br/>
 お分かりかと思いますが、大罪司教同士、全然仲良くないです。<br/>
-https://x.com/nezumiironyanko/status/1846560630553395296
+https://twitter.com/nezumiironyanko/status/1846560630553395296
 
 
 
 余裕のレグルスさんですが、実際、作中最強格です。<br/>
 大罪司教の権能はいずれも初見殺し特化ですが、レグルスさんは初見でなくても強い。<br/>
 なお、作者がレグルスをさん付けしている理由は、レグルスさんと親しくしてると思われたくないからです。<br/>
-https://x.com/nezumiironyanko/status/1846561051447324686
+https://twitter.com/nezumiironyanko/status/1846561051447324686
 
 
 
 EMM発動後のインビジブル・プロヴィデンス、それを見たシリウスは、スバルの中にペテルギウスの残滓を感じ取ってこの反応ですね。<br/>
-https://x.com/nezumiironyanko/status/1846561533482201413
+https://twitter.com/nezumiironyanko/status/1846561533482201413
 
 
 
 ちゃんと強いレグルスさんというべきか、しっかりスバルが弱いというべきか。<br/>
 仲良くない大罪司教、それぞれ違う方向に歩いていく……！<br/>
-https://x.com/nezumiironyanko/status/1846561975930917129
+https://twitter.com/nezumiironyanko/status/1846561975930917129
 
 
 
 レグルスさんが「顔だよ」と言い切るところは、レグルスさんの最悪さが現れてて個人的にとてもお気に入りですね。レグルスさんの発言は今後も顔を覆いたくなるものが多いので楽しみにしていてください！<br/>
-https://x.com/nezumiironyanko/status/1846562259042189364
+https://twitter.com/nezumiironyanko/status/1846562259042189364
 
 
 
 CM明けまして、ガーフィール＆ミミサイド。<br/>
 昨夜、小さい子を送り届けた先でガーフィールが出くわしたのは、遠い記憶に焼き付いたのと同じ顔の女性――。<br/>
-https://x.com/nezumiironyanko/status/1846562540249292920
+https://twitter.com/nezumiironyanko/status/1846562540249292920
 
 
 
 虎よ、虎よ、明々と燃えている虎よ。<br/>
 夜の森で、不滅の手が、眼が、<br/>
 お前の恐ろしい姿を造ったのか？<br/>
-https://x.com/nezumiironyanko/status/1846562850002878620
+https://twitter.com/nezumiironyanko/status/1846562850002878620
 
 
 
 リアラさんの旦那さんはギャレク・トンプソン。<br/>
 プリステラの都市庁舎で働いている役人で、見ての通り、真面目で誠実な人物です。<br/>
-https://x.com/nezumiironyanko/status/1846563152944914433
+https://twitter.com/nezumiironyanko/status/1846563152944914433
 
 
 
 ガーフィールの胸を去来する様々な思いですが、ギャレクの意と、現在のリアラさんの立場を鑑みて、それを全部封じ込めました。<br/>
 ここでちゃんとガーフィールの代わりに土産を受け取るミミは、いい女ですよ。<br/>
-https://x.com/nezumiironyanko/status/1846563721386307846
+https://twitter.com/nezumiironyanko/status/1846563721386307846
 
 
 
 1期から作者の中でミミはめちゃめちゃ強くて賢い子として描いております。<br/>
 なお、リゼロの作中で、仮にどんなルートを辿ってもミミがスバルを死なせるようなルートは一度もないでしょう。力強く作者が太鼓判を押せるキャラです。<br/>
-https://x.com/nezumiironyanko/status/1846564300477096219
+https://twitter.com/nezumiironyanko/status/1846564300477096219
 
 
 
 シリウス、レグルス、バテンカイトス、そしてカペラと、大罪司教四人目――！！<br/>
-https://x.com/nezumiironyanko/status/1846564523588915506
+https://twitter.com/nezumiironyanko/status/1846564523588915506
 
 
 
 ルスベルのファインプレー！<br/>
-https://x.com/nezumiironyanko/status/1846564756330783063
+https://twitter.com/nezumiironyanko/status/1846564756330783063
 
 
 
 す、スタッフロール……！？<br/>
 早すぎる！　そして、早くもＥＤがねえ！！<br/>
-https://x.com/nezumiironyanko/status/1846565052759089172
+https://twitter.com/nezumiironyanko/status/1846565052759089172
 
 
 
 プリステラの地理的には、円形の都市の東西南北に水の流れを司る『制御塔』があり、都市の真ん中に放送機材のある『都市庁舎』があります。<br/>
 いずれの重要施設も、魔女教の手に落ちた――ということになっています。<br/>
-https://x.com/nezumiironyanko/status/1846565422071693684
+https://twitter.com/nezumiironyanko/status/1846565422071693684
 
 
 
 リアラさんに自分との関係は打ち明けられませんが、『聖域』に閉じこもっていた理由であり、出てきた理由でもある彼女のために、ガーフィールは覚悟を決める――としたところでサブタイ！<br/>
 今週も早い！　3話終了！　次回へ続きます！<br/>
-https://x.com/nezumiironyanko/status/1846565956681908647
+https://twitter.com/nezumiironyanko/status/1846565956681908647
 
 
 
 今週のハイライトは「仲が悪すぎる大罪司教」「癇に障りすぎる放送」「働く可愛いフェリス」「主人公イベントとヒロインイベントをこなし続けるガーフィール＆ミミ」「オットーどうなった？」！<br/>
 また何回でも3話を見て、咀嚼し切ってから来週お会いしましょう！　ありがとう、ごめんね！<br/>
-https://x.com/nezumiironyanko/status/1846566608556507514
+https://twitter.com/nezumiironyanko/status/1846566608556507514
 
 
 [（零大科普）](https://www.bilibili.com/read/cv39474876)
+
+
+
+[TOP](#Content)
+
+---
+
+### E04
+
+https://www.bilibili.com/read/cv39558422
+
+はい、やってきました水曜日の夜！　つまり、リゼロのお時間です！　今日は4話、すなわち前半戦の折り返し！　前回は仲悪すぎる大罪司教と、ガーフィール＆ミミの一幕から！　今日もよろしくお願いします！<br/>
+https://twitter.com/nezumiironyanko/status/1849095417335554311
+
+
+
+始まりました！<br/>
+消えた姉弟と、危ういとわかっている都市庁舎、後者を訪れたガーフィールとミミですが……！<br/>
+https://twitter.com/nezumiironyanko/status/1849096064449777674
+
+
+
+この流れ……ＯＰ、ないな……！？<br/>
+https://twitter.com/nezumiironyanko/status/1849096148298203297
+
+
+
+前のめりにカッカしているガーフィールに声をかけて、見極めができているミミはちゃんと『鉄の牙』の副団長です。前回から、ミミの違う側面がずっと出せてて、作者的にもお気に入り。なお状況はよくない。<br/>
+https://twitter.com/nezumiironyanko/status/1849096524380426393
+
+
+
+同刻、フェルトとラインハルトは、ハインケルと会いにきていましたが、魔女教の放送があったのを受け、あんな状況。ハインケルは自分とフェルトの身の安全を守らせるべく、ラインハルトをあの場に留めておきたい目算です。<br/>
+https://twitter.com/nezumiironyanko/status/1849096949045350868
+
+
+
+懐かしの対話鏡。設定的には、ペテルギウスとの戦いのときに回収されたものを、そのまま便利なので使い続けている――ということになっております。<br/>
+https://twitter.com/nezumiironyanko/status/1849097299945046088
+
+
+
+ミミ、ヘータロー、ティビーが持っている『三分の加護』は、パールバトン三姉弟が疲労や傷といったものを分割することで、お互いの異変や、命の危機を補い合えるというものです。それで、ヘータローとティビーにはミミの危機が伝わりました。<br/>
+https://twitter.com/nezumiironyanko/status/1849097604690526492
+
+
+
+ユリウスとリカード、ヘータローとティビーたちはアナスタシアの指示で、魔女教からの通達が真実かどうかを調べるために都市に散っていた形ですね。<br/>
+https://twitter.com/nezumiironyanko/status/1849097816242893090
+
+
+
+放送しているのは『色欲』のカペラですが、聞こえてくる悲鳴と異様な音。何が起きているかは、都市庁舎に確かめにいくしかない、ですね。<br/>
+https://twitter.com/nezumiironyanko/status/1849098102168535290
+
+
+
+基本、キリタカ・ミューズは優秀な人物なので、『歌姫狂い』っぷりは鳴りを潜めている……！<br/>
+要求されている『魔女の遺骨』は、アルの呟きが事実なら『傲慢の魔女』テュフォンのものですね。<br/>
+https://twitter.com/nezumiironyanko/status/1849098503299198976
+
+
+
+察しのいい方はお気付きと思いますが、ミミがやられ、自信喪失状態のガーフィールは一人称が「俺様」から「俺」になっています。いつまでこの状態かは、3期の注目ポイント。<br/>
+https://twitter.com/nezumiironyanko/status/1849098724368421007
+
+
+
+命懸けの戦いを忌避する気持ちの表れとして、ガーフィールの意識を奪い続けるエルザ。気持ちと力の注力があやふやな代償はミミが支払いました。<br/>
+https://twitter.com/nezumiironyanko/status/1849099035547951429
+
+
+
+リカード・ウェルキンは『鉄の牙』の団長であり、アナスタシアやミミたち三姉弟の父親のような存在であり、リゼロ世界でも屈指の仕事できる男ですね。<br/>
+周りが見えている。かけるべき言葉が言える。上司にしたい男……！<br/>
+https://twitter.com/nezumiironyanko/status/1849099385264828748
+
+
+
+四章までのスバルなら、ユリウスが危惧した通り、エミリアを助けるために別行動も辞さなかったと思います。スバルはエミリアが心配で仕方ありませんが、連れ去った以上は目的があると考えているのと、都市全体を案じて全員と同行する判断。<br/>
+https://twitter.com/nezumiironyanko/status/1849099821073957200
+
+
+
+ここで全員と別行動するアルの方が、ユリウスがスバルに危惧したものと同じ判断をしているというべきでしょう。<br/>
+https://twitter.com/nezumiironyanko/status/1849100047516061724
+
+
+
+本格的な戦いを目前に、戦支度として髪の毛をまとめるクルシュさん、とてもよいですね。すごく丁寧にポニテにまとめる動きをやってくれている。好きです。<br/>
+https://twitter.com/nezumiironyanko/status/1849100171151634447
+
+
+
+ミミがやられた因縁の場に戻ったガーフィールですが、その状況は一変していて――。<br/>
+https://twitter.com/nezumiironyanko/status/1849100331843756257
+
+
+
+細身の剣士と巨体の多腕族、それぞれに対抗するべく精鋭メンバーのマッチアップが行われますが、剣戟を交わすヴィルヘルムさんは何かを察していますね。<br/>
+https://twitter.com/nezumiironyanko/status/1849100561414795284
+
+
+
+合成魔法ウル・ゴーラは、複数の精霊を連れているユリウスが可能な火の「ゴーア」と風の「フーラ」を組み合わせたものです。他にできるのはトップクラスの魔法使いくらいのもので、ロズワールや、フェルト陣営にいるエッゾという人物など限られています。<br/>
+https://twitter.com/nezumiironyanko/status/1849100791854059984
+
+
+
+うーん、カペラ腹立つ。<br/>
+https://twitter.com/nezumiironyanko/status/1849100871503884799
+
+
+
+敵の前に立って、わけのわからないことを畳みかけるときのスバルは時間稼ぎしているパターン。<br/>
+今回の頼みはユリウスです。<br/>
+https://twitter.com/nezumiironyanko/status/1849101024113647919
+
+
+
+ちゃんと表情が人間的すぎて、この黒竜、ものすごいメスガキ感が出てて描写すごくない？<br/>
+https://twitter.com/nezumiironyanko/status/1849101301868789900
+
+
+
+スバルがガーフィールに、クルシュさんがヴィルヘルムさんに、それぞれ声をかけるのいいですね。<br/>
+https://twitter.com/nezumiironyanko/status/1849101378091962611
+
+
+
+可愛いクルシュさん。<br/>
+https://twitter.com/nezumiironyanko/status/1849101432055820355
+
+
+
+カペラの蛮行を止めるべく都市庁舎へ乗り込んだスバルたち、しかし出迎えたのは『色欲』ではなく、また違った相手――『暴食』のロイ・アルファルド。<br/>
+スバルを見て、何やら相手も知っている顔だと思ったようで。<br/>
+https://twitter.com/nezumiironyanko/status/1849101864203333722
+
+
+
+もうエンディング！？<br/>
+体感10分だな！<br/>
+https://twitter.com/nezumiironyanko/status/1849101957182701817
+
+
+
+エミリアを案じる気持ちをぐっと堪え、足手まといにならないように意識していたスバルですが、ついに『暴食』を目の前にして我慢の限界。その爆発を迎える――としたところで、都市庁舎側は次回！<br/>
+今日はＣパートがありますのでトイレは待ってね！<br/>
+https://twitter.com/nezumiironyanko/status/1849102233692217602
+
+
+
+カメラは連れ去られたエミリアの方へ。レグルスに連れていかれたエミリアですが。<br/>
+https://twitter.com/nezumiironyanko/status/1849102378370552074
+
+
+
+レグルスさんの気持ち悪さ、みんなに届け！！<br/>
+https://twitter.com/nezumiironyanko/status/1849102506087137698
+
+
+
+最後のレグルスさんのひどさはひどいですが、今日はガーフィール＆ミミのバトルと、後半の精鋭メンバーのバトルがとんでもなく迫力でしたね。<br/>
+順繰りに大罪司教もそのいやらしさをいかんなく発揮。自分で書いといてなんですが、五章詰んでるな！<br/>
+https://twitter.com/nezumiironyanko/status/1849103046300856778
+
+
+
+しかし本当に体感10分の4話でした。<br/>
+状況だけでなく、それぞれの感情も劇的に動き、大罪司教のおぞましさと不気味さが垂れ流しになる今話もお付き合いありがとうございました！<br/>
+気になる続きはまた来週！　同じ時間にお会いしましょう！　おやすみなさーい！<br/>
+https://twitter.com/nezumiironyanko/status/1849103586015478006
+
+
+[（零大科普）](https://www.bilibili.com/read/cv39554454)
 
 
 
