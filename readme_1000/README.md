@@ -748,3 +748,29 @@ The songs "No Money, No Future" and "Dwawa, Age Gaps in Love", which were both s
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1055](https://twitter.com/LoremIpsumVerb/status/1850903615109542210)
+
+The Kingdom of Lugunica was founded on the 25th of Marshba, according to Lagna reckoning.
+
+As a result, each month on that day, festivals are held in the Royal Capital and big towns to celebrate.
+
+（祝福之日）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1056](https://twitter.com/LoremIpsumVerb/status/1851727231963533512)
+
+According to the author, Capella has a special knack to her that allows her to use her observation skills to see what a person likes just from their behaviour and reactions. This then allows her to transform into what they like.
+
+In fact, Capella has never seen Emilia firsthand, nor does she know Subaru likes her.
+
+https://twitter.com/nezumiironyanko/status/1851636250660462606
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---

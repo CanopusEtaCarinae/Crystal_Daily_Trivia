@@ -12768,6 +12768,8 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 圣域先于大灾变 https://twitter.com/nezumiironyanko/status/1096033216891211777
 
+魔导废弃 #133/134
+
 作息 起居 日常：ask.fm スバルの一日 #895
 
 【巨】 trivia 870
@@ -12776,7 +12778,9 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 2022-05-30 add license
 
-EMT 说谎 胃痛 肚子痛 新编集实况 2023春问答
+EMT 说谎 胃痛 肚子痛 新编集实况 2023春问答 QA
+https://re-zero.com/news/2159/
+https://re-zero.com/news/2193/
 https://www.bilibili.com/read/cv23215859/?spm_id_from=333.999.0.0
 https://tieba.baidu.com/p/8337935935?
 
