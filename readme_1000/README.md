@@ -736,7 +736,6 @@ https://twitter.com/nezumiironyanko/status/747099685685338112
 
 The songs "No Money, No Future" and "Dwawa, Age Gaps in Love", which were both sang ad-hoc by Liliana in Re: Zero Season 3, Episode 1, had their song lyrics created by none other than the author of the series: Nagatsuki Tappei.
 
-
 <details>
 <summary>（应该就是指出自小说里的那些歌词，首集片尾插曲信息里也有标注作词）</summary>
 
@@ -769,6 +768,24 @@ According to the author, Capella has a special knack to her that allows her to u
 In fact, Capella has never seen Emilia firsthand, nor does she know Subaru likes her.
 
 https://twitter.com/nezumiironyanko/status/1851636250660462606
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1057](https://twitter.com/LoremIpsumVerb/status/1852649937441378755)
+
+The black dragon that Crusch fought inside the City Hall was actually none other than Garek Thompson; Reala's husband, Garfiel's stepfather.
+
+Though there are some hints strewn around, such as him mentioning he works in City Hall, the biggest hint in the Episode was the fact the black dragon was credited with Garek's voice actor, Yamamoto Kanehira.
+
+<details>
+<summary>（Garek和黑龙CV一致）</summary>
+
+![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/garek_cv.png)
+![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/garek_dragon_cv.png)
+</details>
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
