@@ -791,3 +791,16 @@ Though there are some hints strewn around, such as him mentioning he works in Ci
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1058](https://twitter.com/LoremIpsumVerb/status/1853014390515130704)
+
+According to the author, use of the Dragon's Blood during the epidemic that killed the Royal Family was prohibited due to there having been cases in the past where using it on people had led to big problems.
+
+It's still currently unknown whether the Dragon's Blood Capella has is the same as the one in the Royal Castle.
+
+https://twitter.com/nezumiironyanko/status/511816173898317824
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
