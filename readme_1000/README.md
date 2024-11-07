@@ -767,7 +767,7 @@ According to the author, Capella has a special knack to her that allows her to u
 
 In fact, Capella has never seen Emilia firsthand, nor does she know Subaru likes her.
 
-https://twitter.com/nezumiironyanko/status/1851636250660462606
+（三期5集实况解说 https://twitter.com/nezumiironyanko/status/1851636250660462606）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
@@ -799,6 +799,21 @@ According to the author, use of the Dragon's Blood during the epidemic that kill
 It's still currently unknown whether the Dragon's Blood Capella has is the same as the one in the Royal Castle.
 
 https://twitter.com/nezumiironyanko/status/511816173898317824
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1059](https://twitter.com/LoremIpsumVerb/status/1854288349944513007)
+
+Regulus' tastes in girls he takes as wives is consistent.
+
+So much so that girls who cut their bangs short are plenty, that being because Regulus wants to be able to see properly the faces he likes.
+
+However, if any grow their bangs out, they die.
+
+（三期6集实况解说 https://twitter.com/nezumiironyanko/status/1854173564611756173）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
