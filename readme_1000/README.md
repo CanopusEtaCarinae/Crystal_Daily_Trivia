@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj; [1051-1060](#re-zero-trivia-1051) <!--&zwnj; [1061-1070](#re-zero-trivia-1061)--> <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj; [1051-1060](#re-zero-trivia-1051) <!--&zwnj; [1061-1070](#re-zero-trivia-1061)--> <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;--> <!--&zwnj; [1081-1090](#re-zero-trivia-1081) &zwnj;-->
 
 ---
 
@@ -767,7 +767,7 @@ According to the author, Capella has a special knack to her that allows her to u
 
 In fact, Capella has never seen Emilia firsthand, nor does she know Subaru likes her.
 
-（三期5集实况解说 https://twitter.com/nezumiironyanko/status/1851636250660462606）
+（三期5集实况解说 https://twitter.com/nezumiironyanko/status/1851636250660462606 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
@@ -813,7 +813,20 @@ So much so that girls who cut their bangs short are plenty, that being because R
 
 However, if any grow their bangs out, they die.
 
-（三期6集实况解说 https://twitter.com/nezumiironyanko/status/1854173564611756173）
+（三期6集实况解说 https://twitter.com/nezumiironyanko/status/1854173564611756173 ）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1060](https://twitter.com/LoremIpsumVerb/status/1854655858040516913)
+
+According to the author, Regulus Corneas treats Capella as a poisonous woman who is not worthy of being loved by anyone.
+
+The Sin Archbishops are on bad terms, with them not holding any coworker-ly sentiments for each other. Furthermore, not one of them worries when one is absent due to sick leave.
+
+（三期6集实况解说 https://twitter.com/nezumiironyanko/status/1854172934824444097 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
