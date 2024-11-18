@@ -15,7 +15,7 @@
 
 [1-900](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia#crystals-daily-trivias) &zwnj; [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj; [1051-1060](#re-zero-trivia-1051) <!--&zwnj; [1061-1070](#re-zero-trivia-1061)--> <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;--> <!--&zwnj; [1081-1090](#re-zero-trivia-1081) &zwnj;-->
+[1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj; [1051-1060](#re-zero-trivia-1051) [1061-1070](#re-zero-trivia-1061) <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;--> <!--&zwnj; [1081-1090](#re-zero-trivia-1081) &zwnj;-->
 
 ---
 
@@ -827,6 +827,32 @@ According to the author, Regulus Corneas treats Capella as a poisonous woman who
 The Sin Archbishops are on bad terms, with them not holding any coworker-ly sentiments for each other. Furthermore, not one of them worries when one is absent due to sick leave.
 
 （三期6集实况解说 https://twitter.com/nezumiironyanko/status/1854172934824444097 ）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1061](https://twitter.com/LoremIpsumVerb/status/1857425302714306949)
+
+According to the author, if Petelgeuse was still alive and had taken part in the attack on Pristella, he would have suffered a total defeat because he wouldn't have been positioned properly, with the Archbishops being completely unable to cooperate.
+
+Other than Petelgeuse, the Archbishops don't make any preparations for victory, because they never think they'll lose. Petelgeuse is the only one who would scout the location in advance.
+
+https://twitter.com/nezumiironyanko/status/1856921646856323072
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1062](https://twitter.com/LoremIpsumVerb/status/1858293183827886445)
+
+According to the author, "Heroic Reveries" remained a candidate for the title of Episode 7 of Season 3 until the very end.
+
+That's because it's a phrase the author holds a lot of attachment to.
+
+（三期7集实况解说 https://twitter.com/nezumiironyanko/status/1856710309546999864 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
