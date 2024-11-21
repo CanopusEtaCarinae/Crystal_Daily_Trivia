@@ -1,6 +1,6 @@
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) <!-- &nbsp; -->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) <!-- &nbsp; -->
 
 
 ### E01
@@ -1534,169 +1534,325 @@ https://www.bilibili.com/read/cv39793934
 はい、今週もリゼロのお時間です！<br/>
 前半戦も今日を入れてあと2話ですが、前回、スバルがめためたの状況でも気勢を上げました。<br/>
 さあ、今週はどうなる。始まります！<br/>
-https://x.com/nezumiironyanko/status/1856706034733371409
+https://twitter.com/nezumiironyanko/status/1856706034733371409
 
 
 
 前回ラスト、レグルスの対話鏡を回収したエミリアは、その向こう側から知った声を聞きましたが――の裏側。<br/>
 プリシラを探し、別行動中のアルは魔女教と一戦交えておりました。<br/>
-https://x.com/nezumiironyanko/status/1856706258495279336
+https://twitter.com/nezumiironyanko/status/1856706258495279336
 
 
 
 囚われの身で情報収集に勤しんでいたエミリアですが、この好機を逃すまいと前のめり。<br/>
 捕まっていると知っているアルは困惑です。メンタルがタフすぎる。<br/>
-https://x.com/nezumiironyanko/status/1856706476112564370
+https://twitter.com/nezumiironyanko/status/1856706476112564370
 
 
 
 思い返すと三章で、スバルがプリシラと初めて会った頃、エミリアはアルと合流していたので、ちょうどそのときと同じ組み合わせでやり取りがあったんですね。<br/>
-https://x.com/nezumiironyanko/status/1856706647890272517
+https://twitter.com/nezumiironyanko/status/1856706647890272517
 
 
 
 まぁ、白馬の王子様はなかなか通じないですね。これはエミリアに限らずですが。<br/>
-https://x.com/nezumiironyanko/status/1856706735781847044
+https://twitter.com/nezumiironyanko/status/1856706735781847044
 
 
 
 アルに任せたら大丈夫。<br/>
-https://x.com/nezumiironyanko/status/1856706816446763187
+https://twitter.com/nezumiironyanko/status/1856706816446763187
 
 
 
 OPの生存確認！と思ったらCMが死んでた！？<br/>
-https://x.com/nezumiironyanko/status/1856707201488085350
+https://twitter.com/nezumiironyanko/status/1856707201488085350
 
 
 
 肝心の都市庁舎の攻略戦に参加しなかったため、アルの帰還に皮肉が漏れるアナスタシア。<br/>
 アルが持ち帰った情報は値千金だったので、まあ別行動で正解です。いてもカペラにぐじゃぐじゃにされてたかもしれないしね！<br/>
-https://x.com/nezumiironyanko/status/1856707464978468925
+https://twitter.com/nezumiironyanko/status/1856707464978468925
 
 
 
 ガーフィールの弟感、可愛くていいですね。<br/>
-https://x.com/nezumiironyanko/status/1856707518933971152
+https://twitter.com/nezumiironyanko/status/1856707518933971152
 
 
 
 誤魔化し方がロリリア時代から成長していない……！<br/>
-https://x.com/nezumiironyanko/status/1856707769463898613
+https://twitter.com/nezumiironyanko/status/1856707769463898613
 
 
 
 ラジオで高橋さんも言ってましたが、前回のお話、レグルスが癇癪を起こして184番を狙ったとき、攻撃が当たる寸前、ちょっと彼女は微笑んでいました。<br/>
 エミリアが身代わりを残して消えたのを見逃したのも、同じ心境でしょう。<br/>
-https://x.com/nezumiironyanko/status/1856708103783551360
+https://twitter.com/nezumiironyanko/status/1856708103783551360
 
 
 
 基本、シリウスが『憤怒』の権能を嫌な使い方をしているので忘れがちですが、怒りや悲しみ以外もちゃんと伝搬するはずですよね、というお話です。<br/>
 そうじゃなくてネガティブな気持ちばっかり共有するあたりが大罪司教。<br/>
-https://x.com/nezumiironyanko/status/1856708473846931566
+https://twitter.com/nezumiironyanko/status/1856708473846931566
 
 
 
 流れ込んだ水は、劣勢にあったスバルたち都市庁舎攻略組にとって逆に追い風になりました。魔女教がやるには変ですが、じゃあ他に誰が？<br/>
-https://x.com/nezumiironyanko/status/1856708656836059501
+https://twitter.com/nezumiironyanko/status/1856708656836059501
 
 
 
 ここのアナスタシア、本気で力不足が悔しそうでいい。<br/>
-https://x.com/nezumiironyanko/status/1856708852479386085
+https://twitter.com/nezumiironyanko/status/1856708852479386085
 
 
 
 ガーフィールの言う通り、この世界で魔女教大罪司教を倒したというトロフィーを取ってるのはスバルだけ……！<br/>
 ユリウスも途中まで一緒にやりましたが、本当のトドメはスバルの手柄です。<br/>
-https://x.com/nezumiironyanko/status/1856709455871893819
+https://twitter.com/nezumiironyanko/status/1856709455871893819
 
 
 
 「可哀そうだろうが」<br/>
-https://x.com/nezumiironyanko/status/1856709780028686475
+https://twitter.com/nezumiironyanko/status/1856709780028686475
 
 
 
 エミリア以外の全部を後回しにしろ。<br/>
 は、四章でロズワールともやり合いましたね。ただ、アルとロズワールとでは言葉の根拠が違う感。<br/>
-https://x.com/nezumiironyanko/status/1856710010233028917
+https://twitter.com/nezumiironyanko/status/1856710010233028917
 
 
 
 今回のサブタイの候補として、『英雄幻想』は最後まで残り続けていましたね。そのぐらい、作者的にも思い入れのある言葉です。<br/>
-https://x.com/nezumiironyanko/status/1856710309546999864
+https://twitter.com/nezumiironyanko/status/1856710309546999864
 
 
 
 ここでスバルが引き受けることの意味を、ちゃんと分かってるのはアルとアナスタシアの二人だけです。<br/>
 ガーフィールは言わんや、ユリウスもロマンティストな部分が強いので疑ってかからない。<br/>
-https://x.com/nezumiironyanko/status/1856710706495942879
+https://twitter.com/nezumiironyanko/status/1856710706495942879
 
 
 
 覚悟したスバルと、覚悟を訴えるエミリア。<br/>
 ここからしばらく、作者黙ります。<br/>
-https://x.com/nezumiironyanko/status/1856710818240549226
+https://twitter.com/nezumiironyanko/status/1856710818240549226
 
 
 
 このあたり、エミリアサイドも含めて、演説を時系列通りに描いてくれているので、アニメの方が放送を聞いているときのエミリアの感情ラインが自然だと思います！　ありがとう！　おお、ありがとう！<br/>
-https://x.com/nezumiironyanko/status/1856713021374218485
+https://twitter.com/nezumiironyanko/status/1856713021374218485
 
 
 
 途中に挿入される、王選候補者たちがスバルの演説をしっかり聞いてくれているシーン、いいですね。
 小説には描けない部分なので、原作者冥利に尽きる。<br/>
 ありがとう！　おお、ありがとう！<br/>
-https://x.com/nezumiironyanko/status/1856713221492941244
+https://twitter.com/nezumiironyanko/status/1856713221492941244
 
 
 
 ワーッと話して、自分でも何を言ったかちゃんと覚えていないこと、よくある。わかります。<br/>
-https://x.com/nezumiironyanko/status/1856713341496127857
+https://twitter.com/nezumiironyanko/status/1856713341496127857
 
 
 
 オットー！　いつも急に出てくる！<br/>
 正直、お前もスバルと同じぐらいタイミングのいい男だぞ！<br/>
-https://x.com/nezumiironyanko/status/1856713504214163747
+https://twitter.com/nezumiironyanko/status/1856713504214163747
 
 
 
 に、29分30秒……！！！！！<br/>
 や、やった！　やってくれやがった！<br/>
-https://x.com/nezumiironyanko/status/1856713651002184112
+https://twitter.com/nezumiironyanko/status/1856713651002184112
 
 
 
 というわけで、改めてラインハルト合流！<br/>
 スバルの演説効果で、プリステラ市民の感情も大なり小なり影響があり、エミリアの決意の結婚表明を受け、物語は次週へ続きます！<br/>
 今週は大事なお話でした！　お付き合いありがとう！<br/>
-https://x.com/nezumiironyanko/status/1856714153572155699
+https://twitter.com/nezumiironyanko/status/1856714153572155699
 
 
 
 個人的には最後、出てくる前のオットーは深呼吸して心中を整えてから出てきた疑惑があるんですがどうですかね。<br/>
-https://x.com/nezumiironyanko/status/1856714398565552467
+https://twitter.com/nezumiironyanko/status/1856714398565552467
 
 
 
 ちなみに登場しなかったことからもおわかりかもしれませんが、大罪司教たちはスバルの放送ガン無視です。<br/>
 何とも思ってないし、気にしてもないと思われる。<br/>
-https://x.com/nezumiironyanko/status/1856714820026065184
+https://twitter.com/nezumiironyanko/status/1856714820026065184
 
 
 
 さて、本編が終われば合わせてこちらもどうぞ！<br/>
 今回はスバルの騎士性が発揮されたお話でしたが、そちらに合わせた騎士たちのお話です。フェリスとユリウス、どんな気持ちで演説を聞いていたのか。<br/>
-[（转推SP）](https://x.com/Rezero_official/status/1856713884205199855)<br/>
-https://x.com/nezumiironyanko/status/1856716287403245935
+[（转推SP）](https://twitter.com/Rezero_official/status/1856713884205199855)<br/>
+https://twitter.com/nezumiironyanko/status/1856716287403245935
 
 
 
 [（零大科普）](https://www.bilibili.com/read/cv39791611)
+
+
+
+[TOP](#Content)
+
+---
+
+### E08
+
+
+
+はい、本日もリゼロのお時間です！<br/>
+なんと！　今日で『襲撃編』と題されました、リゼロ三期の前半戦最終話になります！　続きは年明け！　後半戦の『反撃編』を待てということになりますが、じゃあ今日は最後に何すんねんというところ。<br/>
+よろしくお願いいたします！<br/>
+https://twitter.com/nezumiironyanko/status/1859241392708735308
+
+
+
+始まります！<br/>
+これは……OPが死んでる気配……！！！<br/>
+https://twitter.com/nezumiironyanko/status/1859242854079733904
+
+
+
+前回、スバルの演説によってプリステラの人々の心の建て直しを図った一行。そこにオットーとラインハルトが合流し、再決戦のための作戦会議……が！　放り込まれる爆弾発言！<br/>
+https://twitter.com/nezumiironyanko/status/1859243096179200039
+
+
+
+『叡智の書』の再確認ですが、魔女教が持ち歩くのは『福音書』で、『叡智の書』がそのオリジナル。『叡智の書』は『強欲の魔女』エキドナが作り出し、ロズワールとベアトリスの二人に与えたものです。忘れてる人はアニメ二期を見よ！！<br/>
+https://twitter.com/nezumiironyanko/status/1859243523532603696
+
+
+
+ちょっとウインクうまくなった？？<br/>
+https://twitter.com/nezumiironyanko/status/1859243582907146735
+
+
+
+プリシラの従者であるシュルトちゃんは、プリシラが気紛れに拾った農村の子です。健気にプリシラに尽くしていますが、現在のプリステラで生き延びたのはめちゃめちゃラッキー……というだけでもないのですが。<br/>
+https://twitter.com/nezumiironyanko/status/1859243921399767166
+
+
+
+「メイザース辺境伯を全く信用していません」<br/>
+オットーのシビアなところ……というより、スバルやエミリアが甘すぎる感。とはいえ、王選にロズワールの力は必須なので、オットーの見張りはとても大事。ペトラとオットーの、ロズワール許さん同盟です。<br/>
+https://twitter.com/nezumiironyanko/status/1859244231774310591
+
+
+
+単独行動させて安心ユニット。<br/>
+①ラインハルト<br/>
+②オットー<br/>
+③ロズワール<br/>
+くらいの順番がありそうですよね。<br/>
+https://twitter.com/nezumiironyanko/status/1859244598893465743
+
+
+
+クルシュさんを苦しめている『龍の血』ですが、フェリスの治癒魔法が効果を発揮しないのは、ダメージでも状態異常でもないからです。<br/>
+カペラに姿を変えさせられた人たちも条件は同じ。フェリスと非常に相性が悪い『色欲』。<br/>
+https://twitter.com/nezumiironyanko/status/1859244890552693166
+
+
+
+ここのスバル、呪いの移し替えは自分にも相当のダメージがありますが、それをすることでクルシュさんの体からその影響が薄れて、自分の手足が醜くなるくらいなら全然ノーリスク、くらいに思ってます。<br/>
+https://twitter.com/nezumiironyanko/status/1859245187094245679
+
+
+
+「あとのことは全部、俺に任せておけ」と、私にも言ってくださいというクルシュさん、個人的にはとてもヒロイン力が高いなと思います。好きです。<br/>
+https://twitter.com/nezumiironyanko/status/1859245397887315978
+
+
+
+大罪司教を除いた魔女教徒の実力はピンキリですが、プリステラに参じた二人はさすがに強すぎる。<br/>
+ヴィルヘルムさんの心当たりは、世界最高峰の実力者たちになりますね。シンプルに戦闘力で言えば大罪司教より上です。大罪司教は戦闘力以外が厄介なのであれですが。<br/>
+https://twitter.com/nezumiironyanko/status/1859245921353290003
+
+
+
+『亜人戦争』の頃の話をヴィルヘルムさんがしてますが、詳しい内容は『Ｒｅ：ゼロから始める異世界生活Ex2　剣鬼恋歌』にて！　若きヴィルヘルムさん主人公のお話は他にも書いてるので、要チェックだ！<br/>
+https://twitter.com/nezumiironyanko/status/1859246364779254128
+
+
+
+CM明けの揉めてるところですが、王選候補者の中でもプリシラとアナスタシアは仲が悪め。ちゃんとプリシラが相手をしているということなので、実力を認めているということでもあります。<br/>
+https://twitter.com/nezumiironyanko/status/1859246675090641358
+
+
+
+ラインハルトはいっぱい加護を持ってますが、この調子で増やしてるのでたくさんあるのも当然。<br/>
+ちなみに加護は千人に一人くらいの割合で持っていて、ちゃんとした加護はその中のさらに千人に一人、めっちゃ使えるのはさらに千の一みたいな感じです。<br/>
+https://twitter.com/nezumiironyanko/status/1859246991135694911
+
+
+
+テロップ、だと……？<br/>
+まさか、死んだのか？　ＥＤ……！！<br/>
+https://twitter.com/nezumiironyanko/status/1859247436533010802
+
+
+
+ラインハルトとヴィルヘルムさん、孫と祖父ですが、久しぶりにめっちゃ喋ったと思います。それぐらい疎遠の距離感。<br/>
+https://twitter.com/nezumiironyanko/status/1859247620344213672
+
+
+
+一通りの大罪司教と遭遇しただけに、スバルの大罪司教の戦力判断は的確です。ちゃんと、レグルスさんはラインハルトじゃなきゃ相手できないとはわかっている。<br/>
+https://twitter.com/nezumiironyanko/status/1859247849399333124
+
+
+
+はい、ここから大事なシーンです！<br/>
+https://twitter.com/nezumiironyanko/status/1859247967485468709
+
+
+
+「笑うとブスになる子」と言っているレグルスさんですが、笑顔嫌いの理由は他にもあります。<br/>
+ただ、それは言いたくないので、聞こえのいい理由を言っている感じ。これが聞こえのいい理由なのかよ。<br/>
+https://twitter.com/nezumiironyanko/status/1859248519787503635
+
+
+
+「首から下を消し飛ばす」→顔は好きだから。<br/>
+https://twitter.com/nezumiironyanko/status/1859248842681782327
+
+
+
+意外とレグルスさんがちゃんと話を聞いてくれるなと思うかもしれませんが、百年単位でこんなに反論されたことないので、今、めちゃめちゃ頭真っ白になってて動けなかっただけです。<br/>
+https://twitter.com/nezumiironyanko/status/1859249135104491888
+
+
+
+――エミリアのいつか好きになる人。<br/>
+<br/>
+悲しいかな、今の話はスバルは聞いていませんよ。聞いてたところでたぶん何もできませんが！<br/>
+https://twitter.com/nezumiironyanko/status/1859249386297122837
+
+
+
+古いかもしれませんが、やっぱり結婚式といえば「その結婚式待ったー！！」ですよね。<br/>
+スバルとラインハルトの突入、それを嬉しそうに迎え入れる花嫁のエミリア。新郎、マジでいいとこないです。<br/>
+https://twitter.com/nezumiironyanko/status/1859249791458492611
+
+
+
+と、スバルがエミリアをさらい返しにいったところで、本日終了！　すなわち、前半戦終了！<br/>
+『襲撃編』が終わり、年明けの『反撃編』へ続く！<br/>
+本当に本当に、すごいアニメにしてくれてありがとうとしか言えません！　見てくれた人たちもありがとう！<br/>
+アニメって、いいもんですね！<br/>
+https://twitter.com/nezumiironyanko/status/1859250200331825291
+
+
+
+[（零大科普）](https://www.bilibili.com/read/cv39863372)
 
 
 
