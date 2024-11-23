@@ -2,14 +2,16 @@
 
 （注：#1001起Trivia不再日更故新开文档。其余部分传送门列于[目录](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#content)）
 
-<!--
 <details>
 <summary>【出处待完善】</summary>
 
+[1063](#re-zero-trivia-1063)
+
+<!--
 十周年问答资源待补：
+-->
 
 </details>
--->
 
 ### Content
 
@@ -741,7 +743,7 @@ The songs "No Money, No Future" and "Dwawa, Age Gaps in Love", which were both s
 
 ![](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/files/lyrics-1054.png)
 </details>
-<!--https://x.com/howlingwolfjoey/status/1842774499923554377 瞎闹-->
+<!--https://twitter.com/howlingwolfjoey/status/1842774499923554377 瞎闹-->
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
@@ -853,6 +855,32 @@ According to the author, "Heroic Reveries" remained a candidate for the title of
 That's because it's a phrase the author holds a lot of attachment to.
 
 （三期7集实况解说 https://twitter.com/nezumiironyanko/status/1856710309546999864 ）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1063](https://twitter.com/LoremIpsumVerb/status/1859364599113621899)
+
+Despite having over 200 wives over the course of his lifetime, Regulus Corneas has never had sex with a single one of them.
+
+That is mainly because he finds acts of sexual reproduction to be utmost disgusting.
+
+【忘了有没有明确的原文支持了】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+
+#### [Re: Zero Trivia #1064](https://twitter.com/LoremIpsumVerb/status/1860055149785546966)
+
+In Episode 8, Regulus threatened to erase everything from the neck down of anyone who moved after becoming angry at Emilia for mentioning Subaru.
+
+The author has clarified that Regulus specifically would target below the neck because he likes his wives' faces.
+
+（三期8集实况解说 https://twitter.com/nezumiironyanko/status/1859248842681782327 ）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
