@@ -886,3 +886,16 @@ The author has clarified that Regulus specifically would target below the neck b
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1065](https://twitter.com/LoremIpsumVerb/status/1861898294160679034)
+
+According to the author, Kiritaka's name was derived from one of his readers who landed on a "Kiriban" (a visually aesthetic number such as being the 10,000th visitor) as he serialised Re: Zero as a Web Novel.
+
+The author reckons that this Kiritaka couldn't have ever imagined that Re: Zero's Kiritaka would end up being so active.
+
+（三期总集篇1集实况解说 https://twitter.com/nezumiironyanko/status/1861782873029914969 ）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
