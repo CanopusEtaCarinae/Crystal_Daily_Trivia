@@ -899,3 +899,14 @@ The author reckons that this Kiritaka couldn't have ever imagined that Re: Zero'
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1066](https://twitter.com/LoremIpsumVerb/status/1862272446860067042)
+
+According to the author, during the one year time gap between Arc 4 and 5, Beatrice first approached members of the Emilia camp saying things like "E-E-E-Emilia", "P-P-P-Petra", "G-G-G-Garfiel" and "Roswaal" in order to get closer to them.
+
+（三期总集篇1集实况解说 https://twitter.com/nezumiironyanko/status/1861780146610634817 ）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---

@@ -1864,7 +1864,7 @@ https://twitter.com/nezumiironyanko/status/1859250200331825291
 
 ### 总集篇01
 
-
+https://www.bilibili.com/read/cv39956503
 
 はい！　水曜日ということはリゼロのお時間です！<br/>
 いやー、3期がまた始まりますね！　今週からまた、『反撃編』までよろしくお願いします！<br/>
@@ -2063,3 +2063,9 @@ https://twitter.com/nezumiironyanko/status/1861786741583335861
 というわけで、今週もお付き合いありがとうございました！！<br/>
 また次回もよろしく！　こんな調子で、『反撃編』までもよろしく！<br/>
 https://twitter.com/nezumiironyanko/status/1861787336494960946
+
+
+
+[TOP](#Content)
+
+---
