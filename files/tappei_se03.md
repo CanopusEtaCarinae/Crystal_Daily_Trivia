@@ -2072,6 +2072,8 @@ https://twitter.com/nezumiironyanko/status/1861787336494960946
 
 ### 总集篇02
 
+https://www.bilibili.com/read/cv40022771
+
 はい、今週も水曜日の夜！　すなわち、リゼロのお時間です！　前回、二周目に突入した三期のアニメ、その1話の分割前半でした！　今日は後半！　さあ、作者もどうなってるか知らない1話を、一緒に見よう！<br/>
 https://twitter.com/nezumiironyanko/status/1864316195673133352
 
