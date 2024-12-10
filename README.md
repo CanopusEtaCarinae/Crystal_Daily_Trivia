@@ -12783,6 +12783,9 @@ https://re-zero.com/news/2159/
 https://re-zero.com/news/2193/
 https://www.bilibili.com/read/cv23215859/?spm_id_from=333.999.0.0
 https://tieba.baidu.com/p/8337935935?
+不排除 可能去 北 西 国
+未来可能 奥托哥 奥托兄
+八章单开
 
 千日手 https://twitter.com/nezumiironyanko/status/350077350702100482
 
@@ -12801,6 +12804,10 @@ https://tieba.baidu.com/p/8958756608
 莱傲天 音速 十周年QA
 
 ask QA Q&A 问答 以前 不当真 忘了 十周年QA
+
+七章 八章 计划 大纲 十周年 33后记 2023春
+
+486 回 不是剧透 说不准 十周年
 
 HE BE 读者观点 签名会
 
