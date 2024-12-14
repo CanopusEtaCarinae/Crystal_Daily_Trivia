@@ -2229,6 +2229,7 @@ https://twitter.com/nezumiironyanko/status/1864324336385155373
 
 ### 总集篇03
 
+https://www.bilibili.com/read/cv40089327
 
 さて、今日もリゼロの放送日ですね！<br/>
 すみません、出先なので実況が頭ちょっと遅刻します！！<br/>
