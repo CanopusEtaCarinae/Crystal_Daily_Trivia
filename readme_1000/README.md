@@ -910,3 +910,59 @@ According to the author, during the one year time gap between Arc 4 and 5, Beatr
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+[Re: Zero Trivia #1067](https://twitter.com/LoremIpsumVerb/status/1868693234597183557)
+
+This is a list of all known Re: Zero Character Birthdays, in order. This does not include characters where a certain date is given to celebrate, but is not their actual birthday.
+
+Reinhard van Astrea - January 1st<br/>
+Joshua Juukulius - January 10th<br/>
+Ricardo Welkin - January 12th<br/>
+Ferris Argyle - January 16th<br/>
+Louanna Astrea - January 17th<br/>
+Natsuki Rigel - January 23rd<br/>
+Echidna - January 24th<br/>
+Rem & Ram - February 2nd<br/>
+Petra Leyte - February 14th<br/>
+Rom - February 20th<br/>
+Anastasia Hoshin - March 10th<br/>
+Otto Suwen - March 24th<br/>
+Natsuki Subaru - April 1st<br/>
+Cecilus Segmunt - April 2nd<br/>
+Crusch Karsten - April 4th<br/>
+Patrasche - April 15th<br/>
+Elsa Granhiert - April 29th<br/>
+Pandora - May 3rd<br/>
+Tivey & Hetaro & Mimi - May 5th<br/>
+Wilhelm van Astrea - May 7th<br/>
+Heinkel Astrea - May 17th<br/>
+Great Rabbit - June 5th<br/>
+Theresia van Astrea - June 12th<br/>
+Carmilla - June 19th<br/>
+Marcos Gildark - June 28th<br/>
+Julius Juukulius - July 7th<br/>
+Minerva - July 20th<br/>
+Felt - August 8th<br/>
+Sekhmet - August 13th<br/>
+Frufoo - September 6th<br/>
+Priscilla Barielle - September 7th<br/>
+Liliac & Shion - September 9th<br/>
+Roswaal L. Mathers - September 16th<br/>
+Emilia - September 23rd<br/>
+Reid Astrea - October 1st<br/>
+Meili Portroute - October 4th<br/>
+Garfiel Tinsel - October 12th<br/>
+Chisha Gold - November 1st<br/>
+Kadomon Risch - November 6th<br/>
+Arakiya - November 11th<br/>
+Frederica Baumann - December 6th<br/>
+Todd Fang - December 12th<br/>
+Shaula - December 20th<br/>
+Vincent Vollachia - December 23rd
+
+（生日信息基本看fandom也就是了）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
