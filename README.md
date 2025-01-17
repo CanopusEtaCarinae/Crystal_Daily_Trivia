@@ -12799,6 +12799,10 @@ https://tieba.baidu.com/p/8958756608
 
 字数统计 https://docs.google.com/spreadsheets/d/e/2PACX-1vS8WoRDJWMLgARxhS-qg3YTADKf1ATAy1untsQaw39iu2iLihGBaCLOfP9C5dLwQvoIA1dtxiAJPTu_/pubhtml
 
+奥托 死归 https://x.com/nezumiironyanko/status/1180777108844367872
+https://x.com/nezumiironyanko/status/1182258716344586242
+https://x.com/rannoaka06/status/1490673018385088514
+
 冰 Huma https://x.com/nezumiironyanko/status/843479804091363328 推搜ヒューマ
 
 莱傲天 音速 十周年QA
