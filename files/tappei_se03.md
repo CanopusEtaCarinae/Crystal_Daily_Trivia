@@ -2370,6 +2370,7 @@ https://twitter.com/nezumiironyanko/status/1866860392091472235
 
 ### 再放送04
 
+https://www.bilibili.com/read/cv40493933
 
 はい、水曜日が終わる寸前、最後のお楽しみはリゼロのお時間です！　2月からの『反撃編』に備え、再放送期間中ですが、前回はエミリアVSシリウスの現場に突如として白いアイツが参戦――からでした！<br/>
 では、今週もよろしく！<br/>
@@ -2503,6 +2504,7 @@ https://twitter.com/nezumiironyanko/status/1869397143066419314
 
 ### 再放送05
 
+https://www.bilibili.com/read/cv40493986
 
 さて、水曜日です！　再放送ターンのリゼロも今年は今日がラスト！　来年もよろしくと思いつつ、まずは今日のお話を最後までよろしくお願いいたします！<br/>
 https://twitter.com/nezumiironyanko/status/1871926411252085094
@@ -2639,6 +2641,7 @@ https://twitter.com/nezumiironyanko/status/1871934979040821609
 
 ### 再放送06
 
+https://www.bilibili.com/read/cv40520839
 
 さて、水曜日です！　つまり、リゼロのお時間です！<br/>
 先週はなんと元旦だったのでさすがにお休みでしたが、今週は前回の24年最後の放送がレグルスさんの最悪の台詞で終わったので、その続きからです。<br/>
@@ -2778,6 +2781,7 @@ https://twitter.com/nezumiironyanko/status/1877006964653260993
 
 ### 再放送07
 
+https://www.bilibili.com/read/cv40520873
 
 一週間が早い早い、2025年も始まってもう二週間！<br/>
 そして、リゼロの襲撃編の再放送もあと三話！　反撃編に向け、本日もよろしくお願いしまーす！！<br/>
@@ -2904,6 +2908,7 @@ https://twitter.com/nezumiironyanko/status/1879543507582697771
 
 ### 再放送08
 
+https://www.bilibili.com/read/cv40520954
 
 はい、今週も水曜日がやってきました！　リゼロのお時間です！<br/>
 襲撃編の再放送も、本日の7話と来週の8話を残すのみ。すなわち、三週後には自動的に反撃編開始となる9話スタートになります！<br/>
