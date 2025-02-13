@@ -12786,6 +12786,7 @@ https://tieba.baidu.com/p/8337935935?
 不排除 可能去 北 西 国
 未来可能 奥托哥 奥托兄
 八章单开
+纯战力 战斗力 战斗技术 战斗 暴食 愤怒 23春 https://x.com/nezumiironyanko/status/1889688478125809673
 
 千日手 https://twitter.com/nezumiironyanko/status/350077350702100482
 
