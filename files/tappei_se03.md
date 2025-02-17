@@ -3310,6 +3310,7 @@ https://twitter.com/nezumiironyanko/status/1887157282477335025
 
 ### E10
 
+https://www.bilibili.com/read/cv40725095
 
 さあ、水曜日の夜です！　すなわち、リゼロの夜！<br/>
 前回はあまりにも盛沢山すぎて実況が追いつかないという体たらくでしたが、今回はそうはいかないぜ！<br/>
@@ -3517,7 +3518,8 @@ https://twitter.com/Rezero_official/status/1889697675773370474
 https://twitter.com/nezumiironyanko/status/1889692728008548405
 
 
-[（零大科普）](https://www.bilibili.com/read/cv40689660)
+[（小说对比）](https://www.bilibili.com/read/cv40689660)<br/>
+[（零大科普）](https://www.bilibili.com/read/cv40717428)
 
 
 
