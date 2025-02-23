@@ -3529,6 +3529,7 @@ https://twitter.com/nezumiironyanko/status/1889692728008548405
 
 ### E11
 
+https://www.bilibili.com/read/cv40797088
 
 早い早い一週間、水曜日の夜、リゼロの夜です！<br/>
 前回、ノンストップバタバタアクションの1話でしたが、今回注目はサブタイにもなっている『リリアナ・マスカレード』です。<br/>
@@ -3679,6 +3680,7 @@ https://twitter.com/nezumiironyanko/status/1892227422843539895
 https://twitter.com/nezumiironyanko/status/1892228593545023526
 
 
+[（零大科普）](https://www.bilibili.com/read/cv40780615)
 
 
 
