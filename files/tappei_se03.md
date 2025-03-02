@@ -3690,6 +3690,7 @@ https://twitter.com/nezumiironyanko/status/1892228593545023526
 
 ### E12
 
+https://www.bilibili.com/read/cv40870327
 
 はい、水曜日！　リゼロの夜です！<br/>
 前回はプリシラ＆リリアナにより、シリウスの討伐が完了しましたが、今回もよろしくお願いいたします！<br/>
