@@ -3937,6 +3937,7 @@ https://twitter.com/nezumiironyanko/status/1894765186101522771
 
 ### E13
 
+https://www.bilibili.com/read/cv40937591
 
 さあ、水曜日！　リゼロの夜です！<br/>
 前回、レグルス・コルニアスとの決着がつくも、残りの制御塔＋都市庁舎＋道端の戦いは続いています！<br/>
