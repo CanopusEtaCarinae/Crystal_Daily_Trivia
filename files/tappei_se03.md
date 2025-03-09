@@ -6,6 +6,7 @@
 
 [E09](#E09) &nbsp; [E10](#E10) &nbsp; [E11](#E11) &nbsp; [E12](#E12) &nbsp; [E13](#E13) <!-- &nbsp; -->
 
+[袭击篇精选](https://www.bilibili.com/read/cv40940295)
 
 ### E01
 
