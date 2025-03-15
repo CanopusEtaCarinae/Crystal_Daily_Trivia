@@ -12780,6 +12780,9 @@ EMT 阵营 实力 近战 远程 https://twitter.com/nezumiironyanko/status/15587
 
 强欲 妻子 第一任 墓 https://x.com/nezumiironyanko/status/907956500714340353
 
+莱傲天第一次拿剑 18问答
+对父言听计从 16卷
+
 EMT 说谎 胃痛 肚子痛 新编集实况 2023春问答 QA
 https://re-zero.com/news/2159/
 https://re-zero.com/news/2193/
