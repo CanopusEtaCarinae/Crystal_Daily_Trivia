@@ -12804,6 +12804,7 @@ https://re-zero.com/news/2313/
 https://tieba.baidu.com/p/8958756608
 
 字数统计 https://docs.google.com/spreadsheets/d/e/2PACX-1vS8WoRDJWMLgARxhS-qg3YTADKf1ATAy1untsQaw39iu2iLihGBaCLOfP9C5dLwQvoIA1dtxiAJPTu_/pubhtml
+https://rezerodb.com/compilations
 
 奥托 死归 https://x.com/nezumiironyanko/status/1180777108844367872
 https://x.com/nezumiironyanko/status/1182258716344586242
