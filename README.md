@@ -12810,6 +12810,12 @@ https://rezerodb.com/compilations
 https://x.com/nezumiironyanko/status/1182258716344586242
 https://x.com/rannoaka06/status/1490673018385088514
 
+六章有奥托 难度
+https://x.com/nezumiironyanko/status/975745014616621056
+https://x.com/nezumiironyanko/status/1032889476610019333
+https://x.com/nezumiironyanko/status/1166236907199705088
+https://x.com/LoremIpsumVerb/status/1908892111560139014
+
 冰 Huma https://x.com/nezumiironyanko/status/843479804091363328 推搜ヒューマ
 
 莱傲天 音速 十周年QA
