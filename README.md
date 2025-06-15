@@ -12748,6 +12748,8 @@ https://twitter.com/nezumiironyanko/status/843489782328057858
 
 贝蒂生日 https://twitter.com/nezumiironyanko/status/860576425048285184
 
+大兔生日 https://x.com/nezumiironyanko/status/463343540085350401 https://x.com/nezumiironyanko/status/474507851356848128
+
 if 大罪 trivia 89
 
 RPG trivia 296 - https://twitter.com/nezumiironyanko/status/879746401348993025
