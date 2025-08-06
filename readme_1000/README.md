@@ -911,7 +911,7 @@ According to the author, during the one year time gap between Arc 4 and 5, Beatr
 
 ---
 
-[Re: Zero Trivia #1067](https://twitter.com/LoremIpsumVerb/status/1868693234597183557)
+#### [Re: Zero Trivia #1067](https://twitter.com/LoremIpsumVerb/status/1868693234597183557)
 
 This is a list of all known Re: Zero Character Birthdays, in order. This does not include characters where a certain date is given to celebrate, but is not their actual birthday.
 
