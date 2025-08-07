@@ -47,3 +47,17 @@ Among them, he even made a reference to Attack on Titan in Chapter 15 of Arc 7, 
 
 ---
 -->
+-->
+#### [2025-08-07](https://twitter.com/LoremIpsumVerb/status/1953189296208302140)
+<!--
+Tappei Nagatsuki is known for referencing many Japanese series and pieces of pop culture in Re: Zero.
+
+Among them, he even made a reference to Attack on Titan in Chapter 15 of Arc 7, after Subaru and the others arrived in the walled city of Guaral.
+
+（七章第15节）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
+-->
