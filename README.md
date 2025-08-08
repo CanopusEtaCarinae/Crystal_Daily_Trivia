@@ -12722,6 +12722,8 @@ https://docs.google.com/document/d/1khHu5kAdtWKYzk_GCLOCL679SUcG-Y0nPWQBgX7AQS4/
 
 7-11章情报 #125/126 #658
 
+暴食信息 https://www.bilibili.com/read/cv3109834
+
 龍 竜 区别 https://tieba.baidu.com/p/6884627965 #862
 
 九神将 twitter https://twitter.com/Rezero_official/status/1205428648318128130
