@@ -22,15 +22,17 @@
 ---
 
 #### [2025-08-02](https://twitter.com/LoremIpsumVerb/status/1951330573760221361)
-<!--
-According to the author, Echidna had a book that was extremely important to her, to the point it changed her destiny.
 
-However, the author then went on to say it was a spoiler, thus not revealing what the book is.
+**Re: Zero Trivia Rewind**
 
-（18年多娜生日）
+It is confirmed by the author, that if Subaru was told he had to chose between Emilia's panties or getting a hug from her, his answer would depend.
+
+If it was in front of her, he would act unsure, but if Emilia wasn't there, he'd immediately chose the hug.
+
+
 
 [Return to Content](#Content)<br/>
-[Return to top](#crystals-trivias---from-1001)
+[Return to top](#crystals-trivias---rewind)
 
 ---
 -->
