@@ -60,6 +60,9 @@ Among them, he even made a reference to Attack on Titan in Chapter 15 of Arc 7, 
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
+-->
 
 ---
--->
+
+#### [2025-08-10](https://twitter.com/LoremIpsumVerb/status/1954256115350245525)
+
