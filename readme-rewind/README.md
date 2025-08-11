@@ -37,6 +37,10 @@ If it was in front of her, he would act unsure, but if Emilia wasn't there, he'd
 ---
 -->
 #### [2025-08-05](https://twitter.com/LoremIpsumVerb/status/1952418124822712822)
+
+**Re: Zero Trivia Rewind**
+
+Despite having eight husbands in the past by the age of 18, Priscilla Barielle is still a virgin.
 <!--
 Tappei Nagatsuki is known for referencing many Japanese series and pieces of pop culture in Re: Zero.
 
