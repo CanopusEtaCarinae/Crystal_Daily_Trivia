@@ -76,4 +76,18 @@ Among them, he even made a reference to Attack on Titan in Chapter 15 of Arc 7, 
 
 #### [2025-08-10](https://twitter.com/LoremIpsumVerb/status/1954256115350245525)
 
+**Re: Zero Trivia Rewind**
+
+According to a past author Q&A, Frederica canonically wears flashy underwear, as a hidden design decision!
+
+What colour do you all think she favours? 🤔
+
 #### [2025-08-10](https://twitter.com/LoremIpsumVerb/status/1955387159449571581)
+
+**Re: Zero Trivia Rewind**
+
+The traces of a brick enclosure, once hosting a flowerbed tended to by Theresia, can be found in the unkempt garden of the main Astrea Mansion.
+
+Felt tasked Reinhard in tending to it, to decide whether she'd end up liking flowers or not.
+
+(I felt this was appropriate to bring back up again, given Felt's true name may have been based off the Italian word for flower.)
