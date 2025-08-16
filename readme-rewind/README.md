@@ -68,6 +68,13 @@ Among them, he even made a reference to Attack on Titan in Chapter 15 of Arc 7, 
 According to the author, he enjoys writing all aspects of Subaru, including when he's being scummy, being cool or dying.
 
 However, he explicitly stated that when it's Subaru dying, his fingers move without hesitation.
+
+
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---rewind)
+
+---
 <!--
 Tappei Nagatsuki is known for referencing many Japanese series and pieces of pop culture in Re: Zero.
 
