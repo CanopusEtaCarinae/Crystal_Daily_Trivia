@@ -105,3 +105,10 @@ The traces of a brick enclosure, once hosting a flowerbed tended to by Theresia,
 Felt tasked Reinhard in tending to it, to decide whether she'd end up liking flowers or not.
 
 (I felt this was appropriate to bring back up again, given Felt's true name may have been based off the Italian word for flower.)
+
+
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---rewind)
+
+---
