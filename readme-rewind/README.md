@@ -29,7 +29,7 @@ It is confirmed by the author, that if Subaru was told he had to chose between E
 
 If it was in front of her, he would act unsure, but if Emilia wasn't there, he'd immediately chose the hug.
 
-
+（[#661](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia?tab=readme-ov-file#re-zero-daily-trivia-661)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---rewind)
@@ -42,7 +42,7 @@ If it was in front of her, he would act unsure, but if Emilia wasn't there, he'd
 
 Despite having eight husbands in the past by the age of 18, Priscilla Barielle is still a virgin.
 
-
+（[#745](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia?tab=readme-ov-file#re-zero-daily-trivia-745)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---rewind)
@@ -69,7 +69,7 @@ According to the author, he enjoys writing all aspects of Subaru, including when
 
 However, he explicitly stated that when it's Subaru dying, his fingers move without hesitation.
 
-
+（[#992](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#re-zero-daily-trivia-992)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---rewind)
@@ -96,7 +96,14 @@ According to a past author Q&A, Frederica canonically wears flashy underwear, as
 
 What colour do you all think she favours? 🤔
 
-#### [2025-08-10](https://twitter.com/LoremIpsumVerb/status/1955387159449571581)
+（[#316](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia?tab=readme-ov-file#re-zero-daily-trivia-316)）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---rewind)
+
+---
+
+#### [2025-08-13](https://twitter.com/LoremIpsumVerb/status/1955387159449571581)
 
 **Re: Zero Trivia Rewind**
 
@@ -106,7 +113,7 @@ Felt tasked Reinhard in tending to it, to decide whether she'd end up liking flo
 
 (I felt this was appropriate to bring back up again, given Felt's true name may have been based off the Italian word for flower.)
 
-
+（[#358](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia?tab=readme-ov-file#re-zero-daily-trivia-358)）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---rewind)

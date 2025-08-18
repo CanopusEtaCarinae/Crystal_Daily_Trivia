@@ -4406,7 +4406,7 @@ https://twitter.com/rezeroyumiya/status/1381572004692721665
 
 ---
 
-####[Re: Zero Daily Trivia #316](https://twitter.com/LoremIpsumVerb/status/1380472339675152395)
+#### [Re: Zero Daily Trivia #316](https://twitter.com/LoremIpsumVerb/status/1380472339675152395)
 
 Frederica canonically wears flashy underwear, as a hidden design decision by the author.
 
