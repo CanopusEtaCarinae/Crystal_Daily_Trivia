@@ -1,6 +1,6 @@
 # Crystal's Trivias - Rewind
 
-（注：#1001起Trivia不再日更故新开文档。其余部分传送门列于[目录](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#content)）
+25年8月开始Ice时不时会回顾以前发过的Trivia而非再发新的，这里也顺便汇个总
 
 <details>
 <summary>【出处待完善】</summary>
