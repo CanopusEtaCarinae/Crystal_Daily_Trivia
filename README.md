@@ -10,6 +10,8 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 （注3：自[#1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#1000-%E5%8D%83%E6%9D%A1%E7%BA%AA%E5%BF%B5)后Trivia不再日更，每日Trivia标题也去掉Daily。[后续Trivia](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)亦另起文档
 
+（注4：自[#1067](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_1000/README.md#re-zero-trivia-1067)后Ice半年多没再更新Trivia，后来又开了个新的rewind系列，亦在[这里另起文档](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme-rewind/README.md#crystals-trivias---rewind)
+
 <details>
 <summary>【出处待完善】</summary>
 
@@ -35,9 +37,13 @@ Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
 
 [901-1000](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_900/README.md#crystals-daily-trivias---from-901)
 
-**自[#1001](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)起Trivia不再日更，此后内容亦再另起文档：**
+**自[#1001](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)起Trivia不再日更，此后内容亦另起文档：**
 
 [1001-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)
+
+**[#1067](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme_1000/README.md#re-zero-trivia-1067)后另起Trivia Rewind系列，此后内容亦再另起文档：**
+
+[2025-08](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme-rewind/README.md#crystals-trivias---rewind)
 
 </details>
 
