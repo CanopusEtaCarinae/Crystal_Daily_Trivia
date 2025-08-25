@@ -17,6 +17,8 @@
 
 [1001-](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/tree/master/readme_1000#crystals-trivias---from-1001)
 
+（Rewind）[2025-08](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme-rewind/README.md#crystals-trivias---rewind)
+
 ---
 
 #### [Re: Zero Daily Trivia #901](https://twitter.com/LoremIpsumVerb/status/1592891728058781697)
