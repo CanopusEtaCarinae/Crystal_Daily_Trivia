@@ -19,6 +19,8 @@
 
 [1001-1010](#re-zero-trivia-1001) &zwnj; [1011-1020](#re-zero-trivia-1011) &zwnj; [1021-1030](#re-zero-trivia-1021) &zwnj; [1031-1040](#re-zero-trivia-1031) &zwnj; [1041-1050](#re-zero-trivia-1041) &zwnj; [1051-1060](#re-zero-trivia-1051) [1061-1070](#re-zero-trivia-1061) <!--&zwnj; [1071-1080](#re-zero-trivia-1071) &zwnj;--> <!--&zwnj; [1081-1090](#re-zero-trivia-1081) &zwnj;-->
 
+（Rewind）[2025-08](https://github.com/CanopusEtaCarinae/Crystal_Daily_Trivia/blob/master/readme-rewind/README.md#crystals-trivias---rewind)
+
 ---
 
 #### [Re: Zero Trivia #1001](https://twitter.com/LoremIpsumVerb/status/1629205377311989764)
