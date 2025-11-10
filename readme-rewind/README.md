@@ -99,3 +99,26 @@ Felt tasked Reinhard in tending to it, to decide whether she'd end up liking flo
 [Return to top](#crystals-trivias---rewind)
 
 ---
+
+#### [2025-11-10](https://twitter.com/LoremIpsumVerb/status/1987665818940043715)
+
+**Re: Zero Trivia Reload**
+
+According to the author in his original post of the "Butterfly's Dream" IF, he will never do a harem route in the main story.
+
+These were his exact words: "A route that will never happen in the main story, the harem route." (本編で絶対に実現しないルート、ハーレムルート実装。)
+
+（色欲IF原文）
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---rewind)
+
+---
+
+#### [2025-11-10](https://twitter.com/LoremIpsumVerb/status/1987665818940043715)
+
+**Re: Zero Trivia Reload**
+
+According to the author in his original post of the "Butterfly's Dream" IF, he will never do a harem route in the main story.
+
+These were his exact words: "A route that will never happen in the main story, the harem route." (本編で絶対に実現しないルート、ハーレムルート実装。)
