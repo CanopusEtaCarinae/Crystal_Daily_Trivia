@@ -12823,6 +12823,10 @@ https://www.bilibili.com/opus/1053801549282672643
 https://x.com/LoremIpsumVerb/status/1908881713087885697
 https://x.com/LoremIpsumVerb/status/1909908845390098641 Louanna 九章
 
+2505 QA
+https://re-zero.com/news/2510/
+https://re-zero.com/news/2517
+
 字数统计 https://docs.google.com/spreadsheets/d/e/2PACX-1vS8WoRDJWMLgARxhS-qg3YTADKf1ATAy1untsQaw39iu2iLihGBaCLOfP9C5dLwQvoIA1dtxiAJPTu_/pubhtml
 https://rezerodb.com/compilations
 
