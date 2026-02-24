@@ -12690,6 +12690,8 @@ https://twitter.com/SNuserTL
 
 司教https://twitter.com/ReZeroMin/status/1267038825525596160
 
+司教 生日 https://twitter.com/nezumiironyanko/status/1077351716461268992，17年NICO生放送
+
 19年 多娜VS 强欲 齑粉 https://twitter.com/nezumiironyanko/status/1096033988932558848
 
 访谈：
