@@ -1,7 +1,7 @@
 
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) <!--&nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08)-->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) <!--&nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08)-->
 
 ### E01
 
@@ -394,3 +394,165 @@ https://twitter.com/nezumiironyanko/status/2044425127094620606
 
 
 [TOP](#Content)
+
+---
+
+### E03
+
+https://www.bilibili.com/read/cv48089438
+
+はい、今週もリゼロ始まりますね！<br/>
+いよいよ、先行上映でもやっていない範囲！　ここから誰も知らないリゼロが始まる！　よろしくお願いしまーす！！<br/>
+https://twitter.com/nezumiironyanko/status/2046952141265494508
+
+
+
+前回、突然の砂漠での魔法による狙撃を受け、最後に展開したE・M・Tの効果でフィールドの結界がほどけた直後から。<br/>
+https://twitter.com/nezumiironyanko/status/2046952310321115152
+
+
+
+起き抜け姉様。<br/>
+https://twitter.com/nezumiironyanko/status/2046952365820092867
+
+
+
+全員がばらけた場面で、とっさに一番近くでピンチに見えたラムに手を伸ばしたスバルでした。<br/>
+https://twitter.com/nezumiironyanko/status/2046952514147463345
+
+
+
+起き抜けパトアナ。<br/>
+https://twitter.com/nezumiironyanko/status/2046952738135921072
+
+
+
+スバル／ラム／アナスタシア／パトラッシュ。<br/>
+RPG下手なやつが組んだパーティーかな？<br/>
+https://twitter.com/nezumiironyanko/status/2046952942012600647
+
+
+
+戦闘員のいないメンバーで、謎の地下の捜索を開始した一行ですが、先行きはまさにお先真っ暗。<br/>
+https://twitter.com/nezumiironyanko/status/2046953672769478739
+
+
+
+スバルは精霊術師の才能があり、結果、ベアトリスと契約していますが、ベアトリスが非常に強力な精霊かつ人工精霊である出自のため、ベアトリス以外の他の精霊と契約ができません。なので、エミリアやユリウスと違い、微精霊とも話せません。<br/>
+https://twitter.com/nezumiironyanko/status/2046953870350532838
+
+
+
+ちなみに今のフロイト、ＷＥＢ版だとクラピカでした。クラピカはさすがに使えなかったな！(笑)<br/>
+https://twitter.com/nezumiironyanko/status/2046953978542563360
+
+
+
+触れるといきなり消える謎の扉（壁）。これもRPGのお約束っぽくて、お気に入りギミック。パトラッシュはご機嫌斜めですが。<br/>
+https://twitter.com/nezumiironyanko/status/2046954204296798388
+
+
+
+三期ではなかなかチャンスがありませんでしたが、スバルとラムの丁々発止も、聞いていると小気味いい。好きです。<br/>
+https://twitter.com/nezumiironyanko/status/2046954416226656317
+
+
+
+暗くて空気の悪い場所を長く移動しているせいで、徐々にみんなの顔色と表情も曇り始めます。気持ちがくさくさしてるときはこういうこともある。人を責めてはいけない。<br/>
+https://twitter.com/nezumiironyanko/status/2046954705457488368
+
+
+
+＞レムのことなんて<br/>
+それはちょっとライン越えだな！<br/>
+https://twitter.com/nezumiironyanko/status/2046955305289015438
+
+
+
+お仕置きにも限度がある（戒め）<br/>
+https://twitter.com/nezumiironyanko/status/2046955715017986367
+
+
+
+今回の描写は人によってはキツイかもしれないので、己の想像力にメンタルが負ける方は目をつぶるの推奨です。<br/>
+<br/>
+と、Ａパート終わって書いておく。<br/>
+https://twitter.com/nezumiironyanko/status/2046956372093468768
+
+
+
+ふー、よかった。なかったことになって。<br/>
+https://twitter.com/nezumiironyanko/status/2046956664155472070
+
+
+
+ちなみにここの、指を突っ込む姉様、すごく好きなところなので言い方拘ってもらいました。<br/>
+https://twitter.com/nezumiironyanko/status/2046956794418016633
+
+
+
+自分たちの直前の行動が明らかに異常だったことから、その原因が環境にあると当たりを付けました。実際、瘴気の影響は無視できず、それだけに厭われるものです。魔獣も引き寄せますしね。<br/>
+https://twitter.com/nezumiironyanko/status/2046957193711571443
+
+
+
+パトラッシュに乗ってるアナスタシア、ユリウスと一緒にいないのも相まって珍しいですが、可愛いですね。可愛くない？<br/>
+https://twitter.com/nezumiironyanko/status/2046957447995375849
+
+
+
+砂漠のダンジョンで流砂と蟻地獄はお約束！<br/>
+https://twitter.com/nezumiironyanko/status/2046957538680418712
+
+
+
+落ちた先のフィールドで、絶対出くわしちゃいけないタイプのFOEと出くわす。<br/>
+https://twitter.com/nezumiironyanko/status/2046957621933228293
+
+
+
+これたぶん、物語の後半でもっとLv上げてから再挑戦するタイプの隠しボスだよね？<br/>
+https://twitter.com/nezumiironyanko/status/2046957755047796977
+
+
+
+助けにきてくれる姉様も神ってますが、その姉様と一緒にきてくれるパトラッシュも絆Lvが高い。<br/>
+今の二人で攻撃するシーン、PVで1000回くらい見た！<br/>
+https://twitter.com/nezumiironyanko/status/2046958005074473316
+
+
+
+EDだ！　ＥＤだぞー！！　注視せよ！！<br/>
+https://twitter.com/nezumiironyanko/status/2046958349988847660
+
+
+
+しかし、本当に30分早いですね？　一瞬じゃない？<br/>
+待つのは一週間なのに、1話は一瞬でビビるよね。<br/>
+https://twitter.com/nezumiironyanko/status/2046958957240131952
+
+
+
+というわけで、提供はラストに現れた謎の美女（シャウラ）！　スバルたちでは手も足も出なかった魔獣（餓馬王）を圧倒したらしき実力、いったい何者なのか。きっとミステリアスなクールキャラに違いない（OP）。<br/>
+では、今週もありがとうございました！　また来週もよろしく！！<br/>
+https://twitter.com/nezumiironyanko/status/2046959269787119632
+
+
+
+そしてもちろん今回も、アニメ本編が終わったら、ミニアニメの更新がある。<br/>
+今回はこの話数にいなかったベアトリスがメイン。さあ、刮目して可愛いと言うのだ。<br/>
+[（转推SP）](https://twitter.com/Rezero_official/status/2046959712890192325)<br/>
+https://twitter.com/nezumiironyanko/status/2046960118726848720
+
+
+
+そして、ついにEDもちゃんと放映に乗っかりまして、素晴らしい仕上がりでしたね。<br/>
+リゼロはOPで格好良く、EDでスタイリッシュの風潮がありますが、今回のEDのアーティスティックなオシャレさヤバいよね。俺ももっと血を上手く使いたいぜ！<br/>
+[（转推ED）](https://twitter.com/myth_and_roid/status/2046921968084279729)<br/>
+https://twitter.com/nezumiironyanko/status/2046960703370936362
+
+
+
+[TOP](#Content)
+
+---
