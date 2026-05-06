@@ -1,6 +1,6 @@
 # Crystal's Daily Trivias
 
-Credit: [Ice](https://twitter.com/LoremIpsumVerb)  (From 2020-05-29)
+Credit: [Ice](https://twitter.com/rezero_ice)  (From 2020-05-29)
 
 部分trivia因个人水平有限未找到明确出处，会用方头括号【】在相应trivia下面标注。欢迎各位零学大佬们提issue或pr补充。<!--detail标题链接无效-->
 
