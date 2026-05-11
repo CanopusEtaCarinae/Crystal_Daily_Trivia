@@ -12831,6 +12831,10 @@ https://x.com/LoremIpsumVerb/status/1909908845390098641 Louanna 九章
 https://re-zero.com/news/2510/
 https://re-zero.com/news/2517
 
+2604 QA
+https://re-zero.com/news/2632
+https://x.com/rezero_ice/status/2040668036626084219
+
 字数统计 https://docs.google.com/spreadsheets/d/e/2PACX-1vS8WoRDJWMLgARxhS-qg3YTADKf1ATAy1untsQaw39iu2iLihGBaCLOfP9C5dLwQvoIA1dtxiAJPTu_/pubhtml
 https://rezerodb.com/compilations
 
