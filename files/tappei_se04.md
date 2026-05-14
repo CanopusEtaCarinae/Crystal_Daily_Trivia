@@ -1,7 +1,7 @@
 
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) <!--&nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08)-->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) <!--&nbsp; [E07](#E07) &nbsp; [E08](#E08)-->
 
 ### E01
 
@@ -562,201 +562,201 @@ https://twitter.com/nezumiironyanko/status/2046960703370936362
 https://www.bilibili.com/read/cv48659629
 
 はい！　というわけで、今週もやってまいりましたリゼロタイム！　早くも4話！　もう4話！　先週はなかなか散々な目に遭ったスバル一行でしたが、今週はいったい何がどうしてどうなるのか！　君の目で、たしかみてみろ！<br/>
-https://x.com/nezumiironyanko/status/2049488674279281121
+https://twitter.com/nezumiironyanko/status/2049488674279281121
 
 
 
 始まりました！<br/>
 出だしから聞こえてきたこの声は……？？？<br/>
-https://x.com/nezumiironyanko/status/2049488935957774838
+https://twitter.com/nezumiironyanko/status/2049488935957774838
 
 
 
 いや、この声たちは……？？？<br/>
-https://x.com/nezumiironyanko/status/2049488981562368503
+https://twitter.com/nezumiironyanko/status/2049488981562368503
 
 
 
 遠吠え……？？？<br/>
-https://x.com/nezumiironyanko/status/2049489059400339679
+https://twitter.com/nezumiironyanko/status/2049489059400339679
 
 
 
 て、テロップだ！　テロップってことは、まさか、OPは……！！<br/>
-https://x.com/nezumiironyanko/status/2049489115293626496
+https://twitter.com/nezumiironyanko/status/2049489115293626496
 
 
 
 前回、信じられないくらいヤバい右の道と、勘弁してほしいような左の道で苦労したスバルたちですが、目覚めはエミリアの膝枕から。まさに地獄から天国ですね。<br/>
-https://x.com/nezumiironyanko/status/2049489255404372072
+https://twitter.com/nezumiironyanko/status/2049489255404372072
 
 
 
 竜車の外は見慣れない空間。竜車から飛び降りるベアトリスの「なのよ」という掛け声ですが、まあまあベアトリスは日常的に「かしら」「なのよ」と掛け声を出しています。<br/>
-https://x.com/nezumiironyanko/status/2049489477492752890
+https://twitter.com/nezumiironyanko/status/2049489477492752890
 
 
 
 ついに「見つけた」以外の発言をした謎の新キャラ！<br/>
 ここまでの鬱憤を晴らすみたいな勢いで、よう喋る。<br/>
-https://x.com/nezumiironyanko/status/2049489623437771157
+https://twitter.com/nezumiironyanko/status/2049489623437771157
 
 
 
 潰されているベア子が可愛いのと、心配したスバルが起きたら女の子と抱き合って（？）いて、モヤッとした気持ちを足に込めたエミリアたん。とても良いと思います。<br/>
-https://x.com/nezumiironyanko/status/2049489833471754473
+https://twitter.com/nezumiironyanko/status/2049489833471754473
 
 
 
 集合してきたメンバーから散々言われるスバル。まあ、美少女に抱き着かれている代償としては残当。<br/>
-https://x.com/nezumiironyanko/status/2049490099935789117
+https://twitter.com/nezumiironyanko/status/2049490099935789117
 
 
 
 ちなみに「あんま喋るな」は、シャウラ的にはかなり忘れてた命令でしたが、「お師様が戻った！」という喜びで思い出したので、キリッと順守してみた感じ。先生が見てるときだけちゃんと自習してる風にする生徒みたいな。<br/>
-https://x.com/nezumiironyanko/status/2049490529700958530
+https://twitter.com/nezumiironyanko/status/2049490529700958530
 
 
 
 『棒振り』レイドはともかく、『皮肉屋』ボルカニカは、なかなか他の人は言えないやつですね。一応、『神龍』ですよお相手。<br/>
-https://x.com/nezumiironyanko/status/2049490746932367830
+https://twitter.com/nezumiironyanko/status/2049490746932367830
 
 
 
 フリューゲル。<br/>
 どこで聞いたか思い出せるかな？　リゼロクイズだよ。<br/>
-https://x.com/nezumiironyanko/status/2049490856554758548
+https://twitter.com/nezumiironyanko/status/2049490856554758548
 
 
 
 何故かシャウラにやたらと懐いているメィリィと、髪を引っ張るメィリィをぶん投げたりしないシャウラ。仲良くしていてよきかなよきかな。<br/>
-https://x.com/nezumiironyanko/status/2049491095122563485
+https://twitter.com/nezumiironyanko/status/2049491095122563485
 
 
 
 ここのシャウラのパトラッシュの持ち運び方、はたして何人がこのネタがわかるだろうか……。<br/>
-https://x.com/nezumiironyanko/status/2049491179809738765
+https://twitter.com/nezumiironyanko/status/2049491179809738765
 
 
 
 本格的な初登場が今回だからというのもありますが、この回のシャウラの台詞、スバルと同じぐらいあって笑った覚えが。<br/>
 大体毎回、リゼロはスバルの台詞が突出して多いのです。<br/>
-https://x.com/nezumiironyanko/status/2049491342754226538
+https://twitter.com/nezumiironyanko/status/2049491342754226538
 
 
 
 塔の中にある、一種のリフレッシュルーム。作中では『緑部屋』と呼ばれている空間で、塔内では貴重な水が得られるところですね。ちなみにシャウラは乱暴に使うので緑部屋の精霊に嫌われています（笑）<br/>
-https://x.com/nezumiironyanko/status/2049491763656876042
+https://twitter.com/nezumiironyanko/status/2049491763656876042
 
 
 
 前回のＡパートのことを思うと、ここでゆったりとした時間を過ごすスバルとラムのシーンは大事。<br/>
-https://x.com/nezumiironyanko/status/2049491997061435541
+https://twitter.com/nezumiironyanko/status/2049491997061435541
 
 
 
 ヘルズ・スナイプです。<br/>
-https://x.com/nezumiironyanko/status/2049492106251841907
+https://twitter.com/nezumiironyanko/status/2049492106251841907
 
 
 
 シャウラの軽口めいた告白に、まともに受け止めてウルウルするのはエミリアのみ。アナスタシアとユリウスは話半分なのか、その意味を考えているのか、どっちでしょうか。<br/>
-https://x.com/nezumiironyanko/status/2049492493973197211
+https://twitter.com/nezumiironyanko/status/2049492493973197211
 
 
 
 今日はカメラがシャウラに向く場面が多いため、必然的に背中にくっついているメィリィも画面に入ってきますが、口を利かないわりに、表情で色々物語っていて、意外と見応えがありますね、この娘。<br/>
-https://x.com/nezumiironyanko/status/2049492681806786760
+https://twitter.com/nezumiironyanko/status/2049492681806786760
 
 
 
 「モノリス、か。言われてみればモノリスとしか言いようがないほど、しっくりくるモノリスだ。実にモノリスだったな。何故思い当たらなかったのか、不覚だ。だが知れてよかった。モノリスと」<br/>
-https://x.com/nezumiironyanko/status/2049492935864185286
+https://twitter.com/nezumiironyanko/status/2049492935864185286
 
 
 
 ちなみに2期の『聖域』で挑んだのが『試練』。ここで今始まったのが『試験』。ちょっと違うんじゃぜ。<br/>
-https://x.com/nezumiironyanko/status/2049493329524711758
+https://twitter.com/nezumiironyanko/status/2049493329524711758
 
 
 
 最初、スバルがモノリスに触れたときはスバルの声でしたが、ユリウスが触れるとユリウスの声で『試験』問題が聞こえてきました。<br/>
 こういう仕掛け、前にもあったね。<br/>
-https://x.com/nezumiironyanko/status/2049493501482831896
+https://twitter.com/nezumiironyanko/status/2049493501482831896
 
 
 
 下手な鉄砲を撃ったと知られて、もじもじするのが可愛いエミリアたん。「えい！」「やあ！」「たあ！」と、触りまくったのが目に浮かぶ。<br/>
-https://x.com/nezumiironyanko/status/2049493613403582526
+https://twitter.com/nezumiironyanko/status/2049493613403582526
 
 
 
 『聖域』のときのガーフィールもですが、塔のシャウラも番人ぶっているわりに、『試練』にも『試験』にも全く情報を持っておらず、めちゃめちゃ妨害役として優秀。<br/>
-https://x.com/nezumiironyanko/status/2049493884863185272
+https://twitter.com/nezumiironyanko/status/2049493884863185272
 
 
 
 震えるユリウスをじと目で見ているアナスタシア。いったい、何を思っていたのだろう。味わい深い顔だ。<br/>
-https://x.com/nezumiironyanko/status/2049493987887907175
+https://twitter.com/nezumiironyanko/status/2049493987887907175
 
 
 
 ちなみにユリウスは歴オタみたいなところがあるので、歴史上の人物は大好きだし、尊敬できる相手であってほしいという憧れがとても強いです。まあ、レイドは比較的リアルな情報が残っているタイプのはずなので、どれだけ不都合な情報に目をつぶってきたのか、という……。<br/>
-https://x.com/nezumiironyanko/status/2049494233875382484
+https://twitter.com/nezumiironyanko/status/2049494233875382484
 
 
 
 この白いサブタイ、よく見るとぽつぽつと☆が浮かび上がっていて、それが何の星図を描いているかを確かめてみるとめっちゃオシャレなんだなこれが。
-https://x.com/nezumiironyanko/status/2049494400578068771
+https://twitter.com/nezumiironyanko/status/2049494400578068771
 
 
 
 それにしても早い！　ＥＤ早いよ！　本当？　OPなかったのに、こんなに早く終わる？　信じられないな！<br/>
-https://x.com/nezumiironyanko/status/2049494511752282203
+https://twitter.com/nezumiironyanko/status/2049494511752282203
 
 
 
 ＥＤ後にもＣパートがあった！　そうだよね！　まだあるよね！　ふー、焦った！<br/>
-https://x.com/nezumiironyanko/status/2049494683819422057
+https://twitter.com/nezumiironyanko/status/2049494683819422057
 
 
 
 ところで、仲間たちが全然突破できなかった問題を颯爽と解くって、すごい主人公っぽくない？<br/>
-https://x.com/nezumiironyanko/status/2049494812894912741
+https://twitter.com/nezumiironyanko/status/2049494812894912741
 
 
 
 3期のレグルス攻略でも役立ったスバルの星の知識ですが、スバルが星に詳しい理由は、学校で「自分の名前の由来を調べてみよう」という宿題が出たとき、自分の名前が星由来だと知って、以来、たくさん星について学んだことが理由です。ロマンチストなんです。<br/>
-https://x.com/nezumiironyanko/status/2049495084601922037
+https://twitter.com/nezumiironyanko/status/2049495084601922037
 
 
 
 ――俺だったら、リゲルの方を取る。<br/>
-https://x.com/nezumiironyanko/status/2049495272125030678
+https://twitter.com/nezumiironyanko/status/2049495272125030678
 
 
 
 白い光が晴れたとき、『試験』を突破し、現れるのは巨大な大図書館――と、いったところで4話終了！！<br/>
 Ｃパートがあっても、結局早い！　早すぎる！　本当に30分あった？　あったなぁ！　今週もありがとう！<br/>
-https://x.com/nezumiironyanko/status/2049495613121946104
+https://twitter.com/nezumiironyanko/status/2049495613121946104
 
 
 
 提供は、モノリスに触れるスバルと、モノリスに触れるスバルを後方腕組みしながら見守っているユリウス。<br/>
 『試験』を突破して、早くもこの塔を訪れた目的を果たすことができるのか。その答えは以下来週！　といったところで今週もありがとう！　次もよろしく！<br/>
-https://x.com/nezumiironyanko/status/2049495936284717309
+https://twitter.com/nezumiironyanko/status/2049495936284717309
 
 
 
 しかし、言うなれば調子こいてるときのスバルの顔が好きと言い切るベアトリス、なかなかいい趣味である。<br/>
-https://x.com/nezumiironyanko/status/2049496337679544755
+https://twitter.com/nezumiironyanko/status/2049496337679544755
 
 
 
 はい！　そしてアニメ本編が終了したら、そのままの流れでミニアニメの方も楽しみましょう！<br/>
 今週は、スバルが寝ていて起きなかった時間の裏側。ベアトリス主観のシリーズ継続ですが、サムネは姉様が不穏な顔です。何があったかな？？<br/>
-[（转推SP）](https://x.com/Rezero_official/status/2049496427299000662)<br/>
-https://x.com/nezumiironyanko/status/2049496847933481039
+[（转推SP）](https://twitter.com/Rezero_official/status/2049496427299000662)<br/>
+https://twitter.com/nezumiironyanko/status/2049496847933481039
 
 
 
@@ -774,22 +774,22 @@ https://www.bilibili.com/read/cv48697758
 
 さあ、水曜日の夜11時、リゼロのお時間です！<br/>
 ちなみに本日は3期アニメに登場したシルフィ・エルマート（184番）の誕生日でもあります！　シルフィは現在、エミリアの強火担当。その彼女が本編の現在を知ったらどう反応するのか……ともあれ、おめでとうと共に、今週もよろしく！<br/>
-https://x.com/nezumiironyanko/status/2052025414521102502
+https://twitter.com/nezumiironyanko/status/2052025414521102502
 
 
 
 前回はスバルの現代知識無双で、大図書館が解放されたところでしたが、そこから――といったところで、今テロップ流れた？　ということはOPは……。<br/>
-https://x.com/nezumiironyanko/status/2052025713801506979
+https://twitter.com/nezumiironyanko/status/2052025713801506979
 
 
 
 ここの本の中身がどう表現されるか、作者も楽しみにしてました。思った以上に読めませんね。わくわくする。<br/>
-https://x.com/nezumiironyanko/status/2052026100277191080
+https://twitter.com/nezumiironyanko/status/2052026100277191080
 
 
 
 RPGで曰く付きの図書館っていったら、そりゃ色んな事が起こる。本に落ちるのもお約束。<br/>
-https://x.com/nezumiironyanko/status/2052026224088842717
+https://twitter.com/nezumiironyanko/status/2052026224088842717
 
 
 
@@ -798,91 +798,280 @@ FF5で、本の開いたページの上で戦闘するところとか、好き�
 
 
 セピア色の景色と共に始まったのは、スバルのモノローグ……？　が、出てきたのは君たちの知っている誰かだ。<br/>
-https://x.com/nezumiironyanko/status/2052026584346083709
+https://twitter.com/nezumiironyanko/status/2052026584346083709
 
 
 
 「悪いことをしたら罰を受けるんだよ」をちょっと過激に伝えるお父さん。<br/>
-https://x.com/nezumiironyanko/status/2052026816324644864
+https://twitter.com/nezumiironyanko/status/2052026816324644864
 
 
 
 ここ、最後に風で街中から塵が上がったらいいですよねって言ったら、思ったよりでかい街で塵が上がってビックリした作者です。あんな調子であちこち練り歩いたのがテュフォンですね。<br/>
-https://x.com/nezumiironyanko/status/2052027360757833982
+https://twitter.com/nezumiironyanko/status/2052027360757833982
 
 
 
 「まぁ、楽勝だったけど！」「そ、そうね、楽勝だったけど！」<br/>
-https://x.com/nezumiironyanko/status/2052027678354796685
+https://twitter.com/nezumiironyanko/status/2052027678354796685
 
 
 
 ユリウスの読んだ『バルロイ・テメグリフ』について、詳しくはリゼロEx『最優紀行』で詳しく書かれています。王選前に帝国にいったユリウス、ラインハルト、フェリスが大変な目に遭う話です。面白いよ！<br/>
-https://x.com/nezumiironyanko/status/2052028090965192711
+https://twitter.com/nezumiironyanko/status/2052028090965192711
 
 
 
 Ａパート早くない！？<br/>
-https://x.com/nezumiironyanko/status/2052028182874988782
+https://twitter.com/nezumiironyanko/status/2052028182874988782
 
 
 
 実は塔についてから役目が終わってやることなくなって退屈なメィリィ。わりと本気で、塔攻略については興味ありません。<br/>
-https://x.com/nezumiironyanko/status/2052028678155149452
+https://twitter.com/nezumiironyanko/status/2052028678155149452
 
 
 
 メィリィは『魔操の加護』の効果で、魔獣版の狼少女をやっていました。その後の人間らしさの参考はエルザなので、これは教科書がよくない。<br/>
-https://x.com/nezumiironyanko/status/2052029085623505223
+https://twitter.com/nezumiironyanko/status/2052029085623505223
 
 
 
 この図書館の活用方法は色々あるのですが、どれも直感的ではないのでなかなか難しい。まぁ、ここを作った人物が自分基準で作ったのでそういうとこある。自分ができるから他の人もできるだろう？くらいの。<br/>
-https://x.com/nezumiironyanko/status/2052029696830046657
+https://twitter.com/nezumiironyanko/status/2052029696830046657
 
 
 
 約束を軽視してエミリアに怒られるスバル。<br/>
-https://x.com/nezumiironyanko/status/2052030101458669946
+https://twitter.com/nezumiironyanko/status/2052030101458669946
 
 
 
 性格の悪い、というのを聞いたエミリアたんがいったい誰を思い浮かべて階段を見つけたのか。ヒントはエで始まったナで終わる四文字の『強欲の魔女』！<br/>
-https://x.com/nezumiironyanko/status/2052031112386576815
+https://twitter.com/nezumiironyanko/status/2052031112386576815
 
 
 
 妙だな？　初めて見るのに何故か1000回見た記憶のある剣……おーぷにん、ぐ？？<br/>
-https://x.com/nezumiironyanko/status/2052031345074090333
+https://twitter.com/nezumiironyanko/status/2052031345074090333
 
 
 
 シャウラが出たばっかりなのに新キャラだー！！<br/>
-https://x.com/nezumiironyanko/status/2052031447352082920
+https://twitter.com/nezumiironyanko/status/2052031447352082920
 
 
 
 そしてまさかの最初とお尻でダブルテロップ！　OPとEDは犠牲になったのだ……！<br/>
-https://x.com/nezumiironyanko/status/2052031554957066526
+https://twitter.com/nezumiironyanko/status/2052031554957066526
 
 
 
 ちゃんと覚えてて偉いエミリアたん。<br/>
-https://x.com/nezumiironyanko/status/2052031971761762566
+https://twitter.com/nezumiironyanko/status/2052031971761762566
 
 
 
 早い！　マジか今週も終了です！<br/>
 提供は泡を吹いて失神するシャウラ！　シャウラといい、『棒振り』といい、新キャラの露出が多いなと思いました。砂漠ステージだから仕方ないね！<br/>
 さて、現れた『棒振り』など何するものぞ！　やったれユリウスってなところでまた来週！　ありあした！<br/>
-https://x.com/nezumiironyanko/status/2052032694469669111
+https://twitter.com/nezumiironyanko/status/2052032694469669111
 
 
 
 そして、30分からはミニアニメの時間です！　この流れは必ず覚えておきましょう！！！<br/>
 今週はユリウスがメインのお話。3期の最後のことがあってから、4期の今に至るまでの彼の物語です。<br/>
 [SP](https://www.youtube.com/watch?v=d18TLuZzOWA)<br/>
-https://x.com/nezumiironyanko/status/2052033527060046314
+https://twitter.com/nezumiironyanko/status/2052033527060046314
+
+
+
+[TOP](#Content)
+
+---
+
+### E06
+
+https://www.bilibili.com/read/cv49009972
+
+早くも1週間ですね！　今日も今日とて23時から作者は実況するわけですが、今日はすごく好きな回です！<br/>
+めちゃめちゃおもしれーから、絶対見てくれよな！　<br/>
+まあ、毎回めちゃめちゃ面白いアニメなんですがね！　がはははは！<br/>
+https://twitter.com/nezumiironyanko/status/2054552106804379944
+
+
+
+さて、改めて本日もよろしくお願いいたします！<br/>
+今日はなななな、なんと名前回！　ということは、大活躍確約ということです。やったね！<br/>
+https://twitter.com/nezumiironyanko/status/2054562124509450312
+
+
+
+始まりました！<br/>
+が！　これはいつぞやの光景――。<br/>
+https://twitter.com/nezumiironyanko/status/2054562381339193705
+
+
+
+やった！　OPだ！　今週はOPがあるぞー！<br/>
+https://twitter.com/nezumiironyanko/status/2054562499027165240
+
+
+
+なかなか思わせぶりなスタートでしたが、それがいったい何を暗示しているのか。<br/>
+前回は、第二層へ上がり、そこで赤毛の男と遭遇したところでしたね。『棒振り』を自称した男、いったい何がどうしてどうなるのか……。<br/>
+https://twitter.com/nezumiironyanko/status/2054562882432741678
+
+
+
+なおシャウラは引き続き寝ている。<br/>
+https://twitter.com/nezumiironyanko/status/2054563106450497827
+
+
+
+
+赤毛、青い目……。<br/>
+https://twitter.com/nezumiironyanko/status/2054563200365126127
+
+
+
+ちなみに赤い男の「オメエ」はカタカナ表記です。キャラ表現で大事だから覚えておいてね。<br/>
+https://twitter.com/nezumiironyanko/status/2054563312990605678
+
+
+
+ちなみに右利きなのに左でハシ持ってます。<br/>
+https://twitter.com/nezumiironyanko/status/2054563452778381670
+
+
+
+アナスタシア（襟ドナ）のぶっ放している「ジワルド」は陽魔法の攻撃魔法です。火の「ゴーア」とかと同じ等級の魔法ですが、当たればちゃんと威力がある。当たれば。<br/>
+https://twitter.com/nezumiironyanko/status/2054563780802326651
+
+
+
+ユリウスが子ども扱いされていますが、準精霊たちとの契約が切れかけ状態の彼でも、その剣技の実力はルグニカ王国で五指に入ります。三指かな。<br/>
+https://twitter.com/nezumiironyanko/status/2054564204917719309
+
+
+
+選手交代！<br/>
+頭脳戦（！？）から自分有利に持ち込んだエミリアが、行く――！<br/>
+https://twitter.com/nezumiironyanko/status/2054564370030772718
+
+
+
+たくさん氷の武器を出して、それを飛ばしたり、自分で拾ったりして攻撃するのがアイスブランド・アーツで、実際めっちゃ強いはずなんですが、相手が上手い。<br/>
+https://twitter.com/nezumiironyanko/status/2054564734951882805
+
+
+
+変態野郎！　クソ野郎！　大罪司教！<br/>
+スバルのレパートリーの中の罵詈雑言トップスリー。<br/>
+https://twitter.com/nezumiironyanko/status/2054565025436856507
+
+
+
+赤毛の男だから平然（？）としてますが、エミリアの腕力であのでかい氷で殴られたら、スバルなら死んでたでしょうね。<br/>
+https://twitter.com/nezumiironyanko/status/2054565265778913673
+
+
+
+姉様の冷たい目。<br/>
+でも仕方ない。エミリアたん以外誰も通れそうにない。<br/>
+https://twitter.com/nezumiironyanko/status/2054565586508923071
+
+
+
+エミリアたん一人で上の階に上げる、ということに拒否反応の強い陣営。理解度が高い。<br/>
+https://twitter.com/nezumiironyanko/status/2054565770529853529
+
+
+
+スバルとエミリアはレグルスとの戦いを見ているので、ラインハルト級という評価もさほど的を外したものではないでしょう。まぁ、それでもまだ足りないくらいの感じの見方なのですが。<br/>
+https://twitter.com/nezumiironyanko/status/2054565997215101370
+
+
+
+お！　ここでしか見られない絵がありましたね！<br/>
+実は今回のためだけに、まだデザインのなかったキャラとか、国の国旗とかを大塚先生に用意してもらいました！　うーん、贅沢。<br/>
+https://twitter.com/nezumiironyanko/status/2054566152299594050
+
+
+
+『棒振り』の名前発覚！　発覚！<br/>
+https://twitter.com/nezumiironyanko/status/2054566339638132748
+
+
+
+その名はレイド・アストレア。<br/>
+シャウラが拒否反応をすごい起こしていたのは、それだけ嫌な思い出がたくさんあるんでしょうねえ。<br/>
+https://twitter.com/nezumiironyanko/status/2054566544454435011
+
+
+
+『緑部屋』から行方をくらましたユリウス、その足が向かった先は、手痛い敗戦をしたばかりの――らしくない行動、その真意は。<br/>
+https://twitter.com/nezumiironyanko/status/2054566809689563293
+
+
+
+回想にあった幼い日のユリウスに剣を教えているのは、リッケルト・ホフマンという人物です。<br/>
+実はこの回のアバンにも登場していましたが、剣も使える文官タイプ。意外なステ振りですね。<br/>
+twitter.com/nezumiironyanko/status/2054567186631676377
+
+
+
+ちなみにリッケルト・ホフマンには息子がいて、しばらく王都の裏通りで仲間とつるんで悪さ働いてましたが、最近は金髪の王選候補者のところで働いてますね。<br/>
+https://twitter.com/nezumiironyanko/status/2054567436771566030
+
+
+
+初代『剣聖』レイド・アストレアは掛け値なしの天才なので、挑発ではなく、本当に剣を振り始めて3ヶ月であらゆる剣士を上回りました。それまでは素手で暴れていましたが、素手でも世界最強でした。<br/>
+https://twitter.com/nezumiironyanko/status/2054567746122441082
+
+
+
+ちなみに眼帯を付けている目も怪我はしていません。<br/>
+片目を塞いでおくくらいしないと誰も相手にならないのと、カッコいいから付けています。<br/>
+https://twitter.com/nezumiironyanko/status/2054567953941791154
+
+
+
+スバルとユリウス、この塔にきた男たちだけの、意地の一幕。<br/>
+https://twitter.com/nezumiironyanko/status/2054568102999077053
+
+
+
+――だから、ユリウスをこの階段に、独りきりにしてやるものか<br/>
+https://twitter.com/nezumiironyanko/status/2054568605665394921
+
+
+
+すまない、すまない、エンディング……！<br/>
+だが、いい回だった……！　いい回だったぞ……！！<br/>
+https://twitter.com/nezumiironyanko/status/2054569037871608310
+
+
+
+というわけで、今週もあっという間でした！<br/>
+が、実に価値あるあっという間だった！　提供は、男たちの並んだ背中といったところで、今週もありがとう！<br/>
+また来週、いったいどうなっていくのかお楽しみに！<br/>
+このあと、youtubeでミニアニメも忘れるな！<br/>
+https://twitter.com/nezumiironyanko/status/2054569302276354187
+
+
+
+今週も！　ミニアニメはユリウスメインの「有言実行備忘録」となっております！　見れ！<br/>
+[SP](https://www.youtube.com/watch?v=M66vN5mITkA)<br/>
+https://twitter.com/nezumiironyanko/status/2054570969742938128
+
+
+
+[（转推配音）](https://twitter.com/Rezero_official/status/2054569352050171917)<br/>
+[（转推广播预告）](https://twitter.com/Rezero_official/status/2054570107037180152)<br/>
+[（转推SP）](https://twitter.com/Rezero_official/status/2054569855458664662)<br/>
+[（转推台词）](https://twitter.com/nezumiironyanko/status/2054577508469919773)<br/>
+[（转推ED）](https://twitter.com/kihow_/status/2054571200135975364)<br/>
 
 
 
