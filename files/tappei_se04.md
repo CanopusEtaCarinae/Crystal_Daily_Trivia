@@ -1,7 +1,7 @@
 
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) <!--&nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08)-->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) <!--&nbsp; [E09](#E09) &nbsp; [E08](#E08)&nbsp; [E08](#E08&nbsp; [E08](#E08))-->
 
 ### E01
 
@@ -1086,134 +1086,134 @@ https://www.bilibili.com/read/cv49368889
 はい！　今週もリゼロのお時間です！<br/>
 前回、思いがけない名前回となりましたが、今回はそうではない。つまり穏やかな日常回です！　日常回！？　塔の中で！？<br/>
 ってなところで、今週もよろしく！<br/>
-https://x.com/nezumiironyanko/status/2057098979167580608
+https://twitter.com/nezumiironyanko/status/2057098979167580608
 
 
 
 前回はユリウスの名前回、なかなかの独断でのやらかしだったため、エミリアたんもご立腹です。<br/>
 そして、テロップということはオープニングは……。<br/>
-https://x.com/nezumiironyanko/status/2057099168393625663
+https://twitter.com/nezumiironyanko/status/2057099168393625663
 
 
 
 エミリアたんの服、そうなってたのね！　可愛い！<br/>
-https://x.com/nezumiironyanko/status/2057099276317302962
+https://twitter.com/nezumiironyanko/status/2057099276317302962
 
 
 
 ちなみにパトラッシュの喋り方はオットーによると「わたくし」「ですわ」なので、仲間内だとフレデリカに一番近いです。淑女同士、気も合いそうですね。<br/>
-https://x.com/nezumiironyanko/status/2057099457267925233
+https://twitter.com/nezumiironyanko/status/2057099457267925233
 
 
 
 さて、男のはしかに厳しい姉様。とはいえ、姉様がこの塔に期待してるレムのことを考えると、これも仕方ないお話。<br/>
-https://x.com/nezumiironyanko/status/2057099904586244482
+https://twitter.com/nezumiironyanko/status/2057099904586244482
 
 
 
 ちなみに、一度クリアしているエミリアが他の人の挑戦にも参加する――というパターンも策としては考えられますが、その場合、レイドがもうちょっと本気になるかもなので、より危ないかもしれない。<br/>
-https://x.com/nezumiironyanko/status/2057100161332175272
+https://twitter.com/nezumiironyanko/status/2057100161332175272
 
 
 
 シャウラの時間感覚は、塔で四百年待っていたことからもわかる通り、一般とはかなりズレています。能天気に見える彼女ですが、その発言の真意は……寂しがりかな？<br/>
-https://x.com/nezumiironyanko/status/2057100420204609618
+https://twitter.com/nezumiironyanko/status/2057100420204609618
 
 
 
 なお、ラインハルトが同行した場合、二層の『試験』はレイドが本気になるので、余計に難易度が上がるクソ仕様です。<br/>
-https://x.com/nezumiironyanko/status/2057100673926484223
+https://twitter.com/nezumiironyanko/status/2057100673926484223
 
 
 
 今の食事のシーン、原作だとシャウラに褒められたエミリアが「私も、真剣にシャウラの師匠になるか考えてみる」と真に受けてました。迂闊に褒めると、王様じゃなくて料理人を目指しかねない。気を付けよう。<br/>
-https://x.com/nezumiironyanko/status/2057100882127495364
+https://twitter.com/nezumiironyanko/status/2057100882127495364
 
 
 
 合間合間で挿入されるスバルとベアトリスのわちゃわちゃですが、書いてて楽しいので、気が付くとついつい入れてしまう……癖になってんだ。スバルとベア子をわちゃつかせるの。<br/>
-https://x.com/nezumiironyanko/status/2057101088856358914
+https://twitter.com/nezumiironyanko/status/2057101088856358914
 
 
 
 緑部屋には入れる人数上限があって、大人数で入ろうとすると部屋の精霊のご機嫌を損ねます。下手すると出入りを禁じられるので、損ねていいことはありません。<br/>
 シャウラ？　とっくに損ねてるんじゃないですかね……。<br/>
-https://x.com/nezumiironyanko/status/2057101382218641884
+https://twitter.com/nezumiironyanko/status/2057101382218641884
 
 
 
 この硬そうな石のベッドでぐっすりできるんですから、スバルが異世界慣れしたのか、あるいは緑部屋の精霊には石のベッドでも快適睡眠を約束するパゥワーがあるのか。後者の方がそれっぽいので、後者にしときます。<br/>
-https://x.com/nezumiironyanko/status/2057101825317429577
+https://twitter.com/nezumiironyanko/status/2057101825317429577
 
 
 
 塔にくる途中の砂海でもお世話になった白い鳥ですが、塔に着いた前後がバタバタしすぎて、存在を忘れていましたね。それが塔内にいて、なおかつ襟ドナと……というのは、なんでしょうね？<br/>
-https://x.com/nezumiironyanko/status/2057102057937772594
+https://twitter.com/nezumiironyanko/status/2057102057937772594
 
 
 
 鳥、いっぱいいるね……。<br/>
 ラインハルトも辿り着けなかったはずなのに。ということは、ラインハルトは鳥以下……？<br/>
-https://x.com/nezumiironyanko/status/2057102280235835818
+https://twitter.com/nezumiironyanko/status/2057102280235835818
 
 
 
 ちなみに、襟ドナの一人称は「ボク」ですね。レイドは「オレ」で、メィリィは「わたし」。シャウラは「あーし」。<br/>
 書くとき、注意してみてね。<br/>
-https://x.com/nezumiironyanko/status/2057102714291777953
+https://twitter.com/nezumiironyanko/status/2057102714291777953
 
 
 
 今、追及されるナツキ・スバルの出自……！<br/>
 振り返ってみれば、怪しすぎるこの男……いったい、何者？（襟ドナ視点）<br/>
-https://x.com/nezumiironyanko/status/2057102886790943011
+https://twitter.com/nezumiironyanko/status/2057102886790943011
 
 
 
 飛び立つ鳥！<br/>
 リゼロ世界の鳥は、空気を読む……！<br/>
-https://x.com/nezumiironyanko/status/2057103104190111874
+https://twitter.com/nezumiironyanko/status/2057103104190111874
 
 
 
 プリステラの戦いが終了してから、塔にいる現在までに移動で半月以上かかっています。<br/>
 そう考えると、今のユリウスのショックもひとしおでしょうね。<br/>
-https://x.com/nezumiironyanko/status/2057103613479231969
+https://twitter.com/nezumiironyanko/status/2057103613479231969
 
 
 
 前回のこともあって、作者がユリウスを苦しめるのを楽しんでいると思っている人が多いかもしれませんが、勘違いしないでもらいたい。ユリウスだけじゃないから！<br/>
-https://x.com/nezumiironyanko/status/2057103872230121893
+https://twitter.com/nezumiironyanko/status/2057103872230121893
 
 
 
 前にも話したと思いますが、アナスタシアの肉体は生まれつきのゲートの不備で、外からのマナを取り込めない体質です。マナが使えない場合、オドという魂の核みたいなものを削って魔法を使うことになるので、二層の無茶はかなりの負担がかかりました。<br/>
-https://x.com/nezumiironyanko/status/2057104300590198806
+https://twitter.com/nezumiironyanko/status/2057104300590198806
 
 
 
 ユリウスの胸の内は非常に複雑です。理性的なユリウスだから、こうなると言えますね。もっと感情的になれたらいいんですが、リゼロの騎士は全員、感情表現が下手なので。<br/>
-https://x.com/nezumiironyanko/status/2057104531000058338
+https://twitter.com/nezumiironyanko/status/2057104531000058338
 
 
 
 ここで引き返せたラムは、自分の今の状況を冷静に判断できていますね。とはいえ、いきかけたのはレムを想っての焦りなので、その心境は……といったところ。<br/>
-https://x.com/nezumiironyanko/status/2057104806146375823
+https://twitter.com/nezumiironyanko/status/2057104806146375823
 
 
 
 ふと、何かに気付いて走り出したスバル。さて、そのひらめきの結果やいかに――！？<br/>
-https://x.com/nezumiironyanko/status/2057104982231679228
+https://twitter.com/nezumiironyanko/status/2057104982231679228
 
 
 
 目覚めのモーニングコールにエミリアとベア子とレムとパトラッシュ、こうして見るとものすごいスバルのハーレムみたいな光景ですね。<br/>
-https://x.com/nezumiironyanko/status/2057105218744271128
+https://twitter.com/nezumiironyanko/status/2057105218744271128
 
 
 
 どこかで聞いたような、10年前に聞いたような叫びでしたね……。<br/>
-https://x.com/nezumiironyanko/status/2057105547028242526
+https://twitter.com/nezumiironyanko/status/2057105547028242526
 
 
 
@@ -1221,19 +1221,184 @@ https://x.com/nezumiironyanko/status/2057105547028242526
 一晩明けて、いったい何がどうしてどうなったのかみんな疑問がたくさんでしょうが、あえて言いましょう。<br/>
 <br/>
 第六章『記憶の回廊』、本編スタートです。<br/>
-https://x.com/nezumiironyanko/status/2057106176945594603
+https://twitter.com/nezumiironyanko/status/2057106176945594603
 
 
 
 さて、本編が見終わったら？　そう、ミニアニメを見ることで、リゼロのアニメ視聴は完了するのだ。<br/>
 今回も、ユリウスの「有言実行備忘録」！　最後まで今日をしゃぶり尽くして、また明日を迎えよう！<br/>
 [SP](https://www.youtube.com/watch?v=YVsKfjFOT7s)<br/>
-https://x.com/nezumiironyanko/status/2057107405088112922
+https://twitter.com/nezumiironyanko/status/2057107405088112922
 
 
-[（转推HaruSabin原画）](https://x.com/HaruSabin/status/2057098134971686954)<br/>
-[（转推SP）](https://x.com/Rezero_official/status/2057106571172499760)<br/>
-[（转推台词）](https://x.com/Masahiro_S0612/status/2057107710647415075)<br/>
+[（转推HaruSabin原画）](https://twitter.com/HaruSabin/status/2057098134971686954)<br/>
+[（转推SP）](https://twitter.com/Rezero_official/status/2057106571172499760)<br/>
+[（转推台词）](https://twitter.com/Masahiro_S0612/status/2057107710647415075)<br/>
+
+
+
+[TOP](#Content)
+
+---
+
+### E08
+
+https://www.bilibili.com/read/cv49741945
+
+今週もリゼロ始まります！<br/>
+さあ、前回はあんな感じでしたが、今回はどうなっていくか！　楽しくやっていきましょう！<br/>
+https://twitter.com/nezumiironyanko/status/2059635965304717798
+
+
+
+前回、変な感じになったスバルですが、はたして、いったい何が起こったのか。ずいぶんと軽はずみなことを言いますが。<br/>
+https://twitter.com/nezumiironyanko/status/2059636209736147235
+
+
+
+何もかも忘れた風なスバル、それに対応するエミリアとベアトリスですが、状況的にはなかなか、どう判断すべきか難しいですね。<br/>
+https://twitter.com/nezumiironyanko/status/2059636486958645634
+
+
+
+スバルの発言に対し、エミリアとベアトリスの反応はだいぶ大人というか、理解を示したものでしたが。さて、その内心はどうなっているか、はたしてーー。<br/>
+https://twitter.com/nezumiironyanko/status/2059636732208050319
+
+
+
+ちなみに、この状態のスバルは前髪がちょろっと下がっていて可愛いですね。目もキラキラしています。できる人はぜひ、一話と比較してあげてください。<br/>
+https://twitter.com/nezumiironyanko/status/2059636971597914185
+
+
+
+針の筵になるスバルですが、この状態になってからの仲間との初対面。スバルは知る由もありませんが、なかなか初対面扱いだとしんどい人もいるかもしれませんね。せんね。んね。ねー。<br/>
+https://twitter.com/nezumiironyanko/status/2059637278801322197
+
+
+
+シャウラがピタッとくっついてきて、ちゃんと顔を赤くするところに、今のスバルらしさが出ていますね。<br/>
+https://twitter.com/nezumiironyanko/status/2059637571425358165
+
+
+
+スバルとラム、他の人がいない場所で話しますが、ちゃんとラムが「そうしたい」という意図を受け取った結果だったりします。意外と、ちゃんと空気を読めるところがある、というと印象変わったりしますかね？<br/>
+https://twitter.com/nezumiironyanko/status/2059637804246950016
+
+
+
+姉様的にも、ここでスバルが記憶をなくしたなんて話は受け入れられません。なにせ、スバルがそう言い出したら、レムのことをどう受け止めればいいかの指標を失うことになるためです。ラムの必死さも、そういう背景がありますね。まぁ、今のスバルにはわかりませんが！<br/>
+https://twitter.com/nezumiironyanko/status/2059638058790821936
+
+
+
+ここでようやくスバルと話にこられるユリウスですが、最初の場面で受けていたショックもようやく抜けた様子。話す予定だったアナスタシア＝襟ドナの事情も話さなくてはなりませんから、やっと話せます。<br/>
+https://twitter.com/nezumiironyanko/status/2059638433426145713
+
+
+
+スバルの記憶喪失に加え、そこにアナスタシアの襟ドナ宣言を受けると、さすがにエミリアも急反応。とはいえ、「いじわる」くらいで済ませるのはエミリアの性格で、スバルはもっと悪い言い方をしたでしょうね。まぁ、今はしませんが！<br/>
+https://twitter.com/nezumiironyanko/status/2059638723592302979
+
+
+
+スバルがちゃんと機能できない今、このあたりの舵取りをするのがエミリアなのが、その人間性の成長を感じられて、作者的にはいい感じだなと思う部分です。それに追随するスバルに対するみんなの意見は、さて、どうでしょうかね。<br/>
+https://twitter.com/nezumiironyanko/status/2059639003104882972
+
+
+
+忘れているかもしれないので説明しますが、三層は「死者の書」を読むことが可能な場所のことです。そこで倒れているスバルを見つけたということは、最後にスバルはいったい何を見ていたのか。その辺りを考えるのも、六章を読み解く上では大事になる、かも？<br/>
+https://twitter.com/nezumiironyanko/status/2059639324573081924
+
+
+
+「ステータスオープン！」は、実は一話のときにもやっていましたね。それを受け、他の技能も試してみましたが、悲しいかな記憶の喪失と一緒にスキルもリセットされている疑惑ーー。<br/>
+https://twitter.com/nezumiironyanko/status/2059639574700392807
+
+
+
+夢かな？　夢だな！<br/>
+https://twitter.com/nezumiironyanko/status/2059639663674208389
+
+
+
+Ａパート終了！　ほのぼのしたパートでしたね！　異世界生活もなりそうじゃん！<br/>
+https://twitter.com/nezumiironyanko/status/2059639883254353961
+
+
+
+「また」と証言するスバル、細かいところに気付ける人は、もしかしたら「エミリアちゃん」が気になってるかもしれませんね。気にしててもいいことないので忘れていいですよ！<br/>
+https://twitter.com/nezumiironyanko/status/2059640208396788087
+
+
+
+何となく、同じ場面に出くわした感のあるスバルに、エミリアやベアトリスの対応はどこか似通ったもので。<br/>
+うーん、夢かな？？<br/>
+https://twitter.com/nezumiironyanko/status/2059640451024732341
+
+
+
+予知夢とは、なかなか強めのチートスキルですね。<br/>
+これに従えば、あらゆる問題を最善でクリア可能！　さすが！　これぞ異世界転生！　ヒューっ！<br/>
+https://twitter.com/nezumiironyanko/status/2059640689819074871
+
+
+
+改めて、階段を覗き込むスバル。はたして、いったい自分に何が起こったのか。それを確かめる覚悟を決めますがーー。<br/>
+https://twitter.com/nezumiironyanko/status/2059640925740220767
+
+
+
+ついうっかり、自分がいないところでされている自分の話を聞くと、ちょっと色々変な気持ちになったりしますよね。<br/>
+https://twitter.com/nezumiironyanko/status/2059641114278429083
+
+
+
+ちょっと変な気持ちになった報いにしては、少しやりすぎかもしれないな？？<br/>
+https://twitter.com/nezumiironyanko/status/2059641267265675612
+
+
+
+なんてことだ！　ベア子にあんな態度！　ベア子は聖女かママだというのに！<br/>
+https://twitter.com/nezumiironyanko/status/2059641439378899190
+
+
+
+色んな意味で、弱い奴に対して全く容赦のない相手のところにうっかりきてしまった結果、大変な目に遭わされる。<br/>
+https://twitter.com/nezumiironyanko/status/2059641610020028814
+
+
+ここのスバルの嘆きは、自分がこんなことに遭う理由を探した結果、思い当たったのが「母親がいってらっしゃいと言ったとき、それに返事しないで、ココアを飲んだコップを洗わなかったこと」だったという話。他の理由が思いつかないくらい、スバルは普通に生きてきたーーというお話です。<br/>
+https://twitter.com/nezumiironyanko/status/2059641997800186336
+
+
+
+かなりしんどい目に遭いましたが、それすら繰り返す事実に、心が折られる。ほぼ状況を正しく把握したものの、それが希望になるかと言えば、ならない。<br/>
+https://twitter.com/nezumiironyanko/status/2059642239803179025
+
+
+
+悲しいかな、記憶のないスバルが助かるためにした行動は、とあるルールに抵触するーー。<br/>
+https://twitter.com/nezumiironyanko/status/2059642389862773067
+
+
+
+というわけで、早くも今週も終了！毎回のことながら、あまりにも30分毎回のことながら、あまりにも30分が早すぎる！　神は何を考えているのか。時間の使い方を間違えたのではないか。リゼロだけでも30分を300分にしては？　他もいおい調整していこう！<br/>
+https://twitter.com/nezumiironyanko/status/2059642839571853599
+
+
+
+というわけで、今週もありがとうございました！ついに始まった六章、いったいここから先はどうなっていってどんな風になってどういうつもりなのか、来週からも楽しくついに始まった六章、いったいここから先はどうなっていってどんな風になってどういうつもりなのか、来週からも楽しく待っていてください！<br/>
+<br/>
+では、ありがとうございました！　30分からはミニアニメもよろしく！　また来週！　バイバーイ！！<br/>
+https://twitter.com/nezumiironyanko/status/2059643478645318060
+
+
+
+[（转推转推SP）](https://twitter.com/uedakana/status/2059644957116518859)<br/>
+
+
+
+[（零大科普）](https://www.bilibili.com/read/cv49721849)
 
 
 
