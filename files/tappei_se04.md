@@ -1,7 +1,7 @@
 
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) &nbsp; [E08-2](#E08-2) &nbsp; [E09](#E09) <!--&nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08)-->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) &nbsp; [E08-2](#E08-2) &nbsp; [E09](#E09) &nbsp; [E10](#E10) <!--&nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08)-->
 
 ### E01
 
@@ -1413,164 +1413,164 @@ https://www.bilibili.com/read/cv50062200 （前半）
 さて、今週も水曜日！　リゼロの日です！<br/>
 いつもよりくるのが早い？　そうですね。実は先週、お酒でべろべろでまともな実況ができてなかったのが心残りなので、セルフで74話の実況を勝手にやります。<br/>
 75話の実況は23時からなので、そちらはそちらでよろしく！<br/>
-https://x.com/nezumiironyanko/status/2062164765250875450
+https://twitter.com/nezumiironyanko/status/2062164765250875450
 
 
 
 懐かしい挨拶から始まりました74話。前回の最後でかなり唐突感があったのでわからなかった人もいるかもしれませんが、サブタイが表わす通り――ナツキ・スバル、異世界初日に回帰（精神的に）しました。<br/>
-https://x.com/nezumiironyanko/status/2062165115005501941
+https://twitter.com/nezumiironyanko/status/2062165115005501941
 
 
 
 初対面のつもりの挨拶に、当然ながら戸惑うエミリアとベアトリス。ここまで一年以上積み上げてきた日々がいきなり崩れる展開に落ち込む彼女たちを見て、さすがにスバルも空気を読みます。<br/>
-https://x.com/nezumiironyanko/status/2062165300054003770
+https://twitter.com/nezumiironyanko/status/2062165300054003770
 
 
 
 エミリアたんの可愛いほっぺが真っ赤に！<br/>
-https://x.com/nezumiironyanko/status/2062165342915637290
+https://twitter.com/nezumiironyanko/status/2062165342915637290
 
 
 
 今回のお話では、合間合間に挿入される、スバルの周りの人たちのリアクションに注目してほしいですね。声にならない部分を絶妙に絵で表現してくれています。<br/>
-https://x.com/nezumiironyanko/status/2062165544846180380
+https://twitter.com/nezumiironyanko/status/2062165544846180380
 
 
 
 ＯＰ！　ＯＰじゃないか！　また会えたな、ＯＰ！<br/>
-https://x.com/nezumiironyanko/status/2062165635845751011
+https://twitter.com/nezumiironyanko/status/2062165635845751011
 
 
 
 「君の名前を教えてほしい」は、一章でのスバルが抱いた願いでしたが、それを最初に持ち出したことで、エミリアの中に去来した気持ちは得心なのか、あるいはこれまで以上の寂寥感なのか、ですね。<br/>
-https://x.com/nezumiironyanko/status/2062165857678270760
+https://twitter.com/nezumiironyanko/status/2062165857678270760
 
 
 
 さて、スバルが初期化されると、もちろんスバルも大変ですが、今この塔にはその影響をもろに受ける人が何人かいますね。<br/>
-https://x.com/nezumiironyanko/status/2062166187564536148
+https://twitter.com/nezumiironyanko/status/2062166187564536148
 
 
 
 「目潰しの呪文」は、二章でもやったことですね。名前のことといい、ハイペースで一章から六章までのイベントを消化していくつもりなのか……？<br/>
-https://x.com/nezumiironyanko/status/2062166419748606155
+https://twitter.com/nezumiironyanko/status/2062166419748606155
 
 
 
 すでに関係性が出来上がっているところからはじめましてするのはかなり大変ですが、あえて関係整理を第三者から伝えられると、改めて妙なメンバーだ。<br/>
-https://x.com/nezumiironyanko/status/2062166629199528060
+https://twitter.com/nezumiironyanko/status/2062166629199528060
 
 
 
 何も言えないユリウス。昨夜の出来事を思い返せば、残当。<br/>
-https://x.com/nezumiironyanko/status/2062166776553807906
+https://twitter.com/nezumiironyanko/status/2062166776553807906
 
 
 
 「エミリアちゃん」ですが、これを聞いた視聴者各位はどう思われましたかね？　引っかかるなとか気持ち悪いなと感じてもらえたなら、恐悦至極。<br/>
-https://x.com/nezumiironyanko/status/2062166916027076833
+https://twitter.com/nezumiironyanko/status/2062166916027076833
 
 
 
 スバルの態度を追及するべく、二人きりのタイミングを作ったラムですが、その心中は穏やかではありません。<br/>
 ここでのラムの反応はスバルなら何か考えがある、という信用もありますが、それ以上に「知らない双子の妹のレム」という存在の確証をスバルに委ねていたことが大きいです。<br/>
 見た目などもあるので、事実としてレムが自分の妹とはわかっていますが、その考えを補強するにはスバルが必要不可欠でしたので。<br/>
-https://x.com/nezumiironyanko/status/2062167389773631977
+https://twitter.com/nezumiironyanko/status/2062167389773631977
 
 
 
 かろうじて立て直したユリウス、平静を装えてしまうのがさすがと言えるような、悲しいような。<br/>
-https://x.com/nezumiironyanko/status/2062167544262500842
+https://twitter.com/nezumiironyanko/status/2062167544262500842
 
 
 
 ここの襟ドナの告白、記憶喪失状態のスバルには本気で意味がわからなすぎて混乱しますね。<br/>
 はじめましてだった相手が、実は違う人なんだよと言われても、何もかもわからない。<br/>
-https://x.com/nezumiironyanko/status/2062167720603553879
+https://twitter.com/nezumiironyanko/status/2062167720603553879
 
 
 
 そんなわけで、アナスタシアが襟ドナと発覚し、ラムとユリウスが低調。メィリィとシャウラが我関せずとなると、仕切りはエミリアがやることになります。<br/>
 なんて状況だ。でも、逆境こそ飛躍するチャンスとも言えます。そう、羽化のとき……！<br/>
-https://x.com/nezumiironyanko/status/2062168019594551792
+https://twitter.com/nezumiironyanko/status/2062168019594551792
 
 
 
 昨夜、何かを思いついたスバルが向かった先は、『死者の書』の収められた書庫。そこで倒れている間に記憶を喪失したスバルに何があったのか。<br/>
 それを紐解く答えは、いざどこに。<br/>
-https://x.com/nezumiironyanko/status/2062168498072371649
+https://twitter.com/nezumiironyanko/status/2062168498072371649
 
 
 
 「ステータスオープン！」は最初もやってましたが、異世界と聞いたらやってしまう行為のトップに入っていてほしいという作者の願望が込められています。<br/>
-https://x.com/nezumiironyanko/status/2062168644721987945
+https://twitter.com/nezumiironyanko/status/2062168644721987945
 
 
 
 ものすごいでかい穴に見えますが、これは最初に上がってきた五層からの螺旋階段ですね。でかすぎる螺旋階段、そこを覗き込んだ途端、いきなりの衝撃――。<br/>
-https://x.com/nezumiironyanko/status/2062168812515140021
+https://twitter.com/nezumiironyanko/status/2062168812515140021
 
 
 
 笑い事じゃありませんが、「夢？」となるのも仕方ない感覚。作者も経験ありますが、みんなも一回くらい、高いところから落ちて目覚める夢を見た経験があるのでは？　あれは何なんですかね。あと、いつまで経っても学校に遅刻する夢を見るのも何なんですかね。<br/>
-https://x.com/nezumiironyanko/status/2062169094812778965
+https://twitter.com/nezumiironyanko/status/2062169094812778965
 
 
 
 目の前の状況を改めて確認するスバルに、エミリアとベアトリスが激しく混乱。が、それを伝えるうちに、スバルは気付きます。――そう、予知夢！<br/>
-https://x.com/nezumiironyanko/status/2062169370600857745
+https://twitter.com/nezumiironyanko/status/2062169370600857745
 
 
 
 ここでスバルが『予知夢』をエミリアたちに伝えなかった裏には、記憶のあったときの自分がそれを仲間に伝えていなかったことに端を発します。<br/>
 当然、信頼し合う仲間なら話しているはずの能力、それを伝えていなかったのは何故――と。<br/>
 一瞬でそこに気付くあたり、わりと頭が回るんですよ、この主人公。<br/>
-https://x.com/nezumiironyanko/status/2062169718723854782
+https://twitter.com/nezumiironyanko/status/2062169718723854782
 
 
 
 さっき最悪の夢を見た螺旋階段の前で、スバルは切り替え、予知夢を仲間に共有しようとしますが……ちょうど、仲間たちの話し合いが悪いタイミングに。<br/>
-https://x.com/nezumiironyanko/status/2062170067224400138
+https://twitter.com/nezumiironyanko/status/2062170067224400138
 
 
 
 ちなみにここでの話し合いは、実は前回はちょっと違っていました。今回この話し合いになったのは、これが2周目であると感じたスバルの挙動やリアクションが1周目と違って怪しく、ラムやアナスタシアに不審に思われてしまったことが原因です。<br/>
 二章でループする毎にレムやラムに怪しまれたのと同じことですね。<br/>
-https://x.com/nezumiironyanko/status/2062170379913977938
+https://twitter.com/nezumiironyanko/status/2062170379913977938
 
 
 さて、初回と違い、二回目は落ちる位置が悪かった。途中の段差にぶつかり、体のあちこちを壊しながら落ちてしまったスバルは、初めての『死』の痛みに発狂もののストレスを受けます。結果、泣きわめきながら逃げることになりますが、逃げた先が最悪の選択。<br/>
-https://x.com/nezumiironyanko/status/2062170632742424609
+https://twitter.com/nezumiironyanko/status/2062170632742424609
 
 
 
 レイドはスバルの記憶喪失の事情なんて知りませんし、興味もありません。ただ、見所のない雑魚がより情けない醜態を晒しにきたので、ひたすら不愉快。殺さなかっただけ温情ですが、それがよかったのかどうか。<br/>
-https://x.com/nezumiironyanko/status/2062170846366720248
+https://twitter.com/nezumiironyanko/status/2062170846366720248
 
 
 
 ボロボロのスバル、自分がこんな目に遭った理由を探しますが、思いつくのは「家を出るとき、母にいってきますを言わなかった。ココアを飲んだコップを洗えと言われたくなかったから」というものでした。<br/>
 <br/>
 本気でそう思っているわけではありません。それぐらいしか、自分のした悪事に心当たりがない少年ということです。<br/>
-https://x.com/nezumiironyanko/status/2062171096020119719
+https://twitter.com/nezumiironyanko/status/2062171096020119719
 
 
 
 なお、スバルが「いってらっしゃい」と言われたときには、気付いた菜穂子さんがささっとコップを洗ってしまったあとだったという。<br/>
-https://x.com/nezumiironyanko/status/2062171221618508144
+https://twitter.com/nezumiironyanko/status/2062171221618508144
 
 
 
 あれだけの傷を負っても、仲間の治癒魔法や緑部屋で回復してしまう……が、心に負った傷はそうはいきません。<br/>
 信用を置けない仲間に言われたことも耳を貸せず、スバルは塔を出てしまいますが――しちゃいけないルールがあったはずだな？<br/>
-https://x.com/nezumiironyanko/status/2062171417207267610
+https://twitter.com/nezumiironyanko/status/2062171417207267610
 
 
 
 というわけで、改めて74話『オマエハダレダ』でした！<br/>
 23時からはちゃんと今週の75話の実況をするので、まあ基本的にはそっちでよろしく！<br/>
 じゃあ、次のエピソードでまた会おう！<br/>
-https://x.com/nezumiironyanko/status/2062171641464209703
+https://twitter.com/nezumiironyanko/status/2062171641464209703
 
 
 
@@ -1584,145 +1584,145 @@ https://www.bilibili.com/read/cv50062200 （后半）
 
 さて、じゃあ今週もリゼロよろしくお願いします！<br/>
 さっきも挨拶してた？　そうかもね！　事情はあとで把握しろ！　今はこのリゼロを楽しもうぜ！<br/>
-https://x.com/nezumiironyanko/status/2062172415728447897
+https://twitter.com/nezumiironyanko/status/2062172415728447897
 
 
 
 前回の惨状を受け、塔から逃げ出してしまったスバル。塔内にエミリアたちを残して逃亡を図りますが、それをさっそく許してくれないのがアウグリア砂丘の洗礼。<br/>
-https://x.com/nezumiironyanko/status/2062172612751695905
+https://twitter.com/nezumiironyanko/status/2062172612751695905
 
 
 
 メィリィがいたので実感ないかもですが、アウグリア砂丘は本来、普通の人がいったらこのぐらいのヘビーさがひっきりなしに襲いかかってくる魔境です。<br/>
 だから四百年、到達者もいなかった。<br/>
-https://x.com/nezumiironyanko/status/2062172778061815918
+https://twitter.com/nezumiironyanko/status/2062172778061815918
 
 
 
 砂蚯蚓をやられ方は見覚えのあるものですが、当然スバルは存じ上げない。舞い込む事態の最悪さに頭を悩ませたくなりますが、流砂に呑まれるは、地下は魔獣の死体塗れだわ、スバルの心は削られる一方ですね<br/>
-https://x.com/nezumiironyanko/status/2062173078537506836
+https://twitter.com/nezumiironyanko/status/2062173078537506836
 
 
 
 ＯＰ！　ＯＰじゃないか！　今日二回目だな！　いや、youtubeでも見てたから10回目くらいだけども！<br/>
-https://x.com/nezumiironyanko/status/2062173250449449240
+https://twitter.com/nezumiironyanko/status/2062173250449449240
 
 
 
 目覚める→美少女と美幼女と出会う→美少女たちと美青年と出会う→高いところから落ちる→美少女と美幼女と美青年と再会→陰口をたたかれる→高いところから痛い思いをして落ちる→赤毛に刺される→外に出たらでかいミミズに襲われる→流砂で落ちて死体だらけ。<br/>
 <br/>
 大体今、こんな感じ。<br/>
-https://x.com/nezumiironyanko/status/2062173794178064702
+https://twitter.com/nezumiironyanko/status/2062173794178064702
 
 
 
 落ちた地下を進み、何とか活路を見出そうとするスバルですが、この嫌な感じの砂の道にも見覚えがありますね。<br/>
-https://x.com/nezumiironyanko/status/2062173928127430699
+https://twitter.com/nezumiironyanko/status/2062173928127430699
 
 
 
 阻まれた壁の前、光に包まれたスバルが気付くと、そこは逃げ出したはずの塔の中――。<br/>
 忘れられたあの場所では起きなかった出来事が起きたのには理由がありますが、今はまだ語らぬ。<br/>
-https://x.com/nezumiironyanko/status/2062174168863670601
+https://twitter.com/nezumiironyanko/status/2062174168863670601
 
 
 
 望まぬ形で戻ったスバルの脳裏に過ったのは、最悪の可能性を自分の手で摘むという狂気の発想。このあたり、ＯＰでも描かれていて、どんな場面なのかとみんな思っていたかもしれませんが、このときのスバルの心境はみんなにはどう見えますかね。<br/>
-https://x.com/nezumiironyanko/status/2062174401018421381
+https://twitter.com/nezumiironyanko/status/2062174401018421381
 
 
 
 那个斯巴鲁的漆黑杀意，也被意想不到的惨状所迎接，变得顾不上那个了。<br/>
-https://x.com/nezumiironyanko/status/2062174579863548001
+https://twitter.com/nezumiironyanko/status/2062174579863548001
 
 
 
 ここのユリウス、背中にメィリィを庇っているところが、詳細はわからなくともユリウスらしいと思えてお気に入りです。15話のラムとかもそうでしたね。<br/>
-https://x.com/nezumiironyanko/status/2062174721983344931
+https://twitter.com/nezumiironyanko/status/2062174721983344931
 
 
 
 ちなみにWEB版ではここは「死者たちの塔」というサブタイでした。<br/>
-https://x.com/nezumiironyanko/status/2062174914287964389
+https://twitter.com/nezumiironyanko/status/2062174914287964389
 
 
 
 待ち受けていたのはパトラッシュ。そのパトラッシュにも耐えかねて剣を突き立てますが、それでも揺らがぬ地竜の眼差しの前で、ハリボテの決意も決壊します。<br/>
-https://x.com/nezumiironyanko/status/2062175124116357122
+https://twitter.com/nezumiironyanko/status/2062175124116357122
 
 
 
 しかし小林裕介すげえな……。<br/>
-https://x.com/nezumiironyanko/status/2062175167959490889
+https://twitter.com/nezumiironyanko/status/2062175167959490889
 
 
 
 次から次へと、スバルの知らない災いが起こる起こる。ついにはパトラッシュさえも、巻き起こる黒い何かの中に呑まれますが、最後にバルコニーに達したスバルが見たものは、もはや世界の終わり――そのスバルの後ろに立ったのは、いったい。<br/>
-https://x.com/nezumiironyanko/status/2062175477536882908
+https://twitter.com/nezumiironyanko/status/2062175477536882908
 
 
 
 いやあ、いいこと一個もないＡパートでしたね！<br/>
-https://x.com/nezumiironyanko/status/2062175661482299476
+https://twitter.com/nezumiironyanko/status/2062175661482299476
 
 
 
 あんな終わり方を迎えても、戻ってくる場所は同じところ。それが『死に戻り』。<br/>
 戻ってすぐ、スバルは目の前の細い首に手を伸ばしかけますが――かろうじて踏みとどまったスバルが縋り付くのは、今のスバルが唯一信じられる愛竜でした。<br/>
-https://x.com/nezumiironyanko/status/2062175989619478912
+https://twitter.com/nezumiironyanko/status/2062175989619478912
 
 
 スバルがこれまでと違う行動を取ることを決めたけど、この試行錯誤も、ある意味で二章のリフレインだね。<br/>
 ちなみに作者的には、六章にはこれまでの章の要素がたくさん入っているイメージです。そういう見方をしてみるのも、面白いかもね！<br/>
-https://x.com/nezumiironyanko/status/2062176359854776462
+https://twitter.com/nezumiironyanko/status/2062176359854776462
 
 
 
 「プロポーズ四百年待ちッス！」は、待たされるにしても待たされすぎている。そんな男やめた方がいいよ。<br/>
-https://x.com/nezumiironyanko/status/2062176656480149777
+https://twitter.com/nezumiironyanko/status/2062176656480149777
 
 
 
 部屋に現れたユリウスの反応に不審さを覚えたスバルですが、それは昨夜の出来事を知らないが故の違和感、すれ違いというやつです。<br/>
-https://x.com/nezumiironyanko/status/2062176811363205151
+https://twitter.com/nezumiironyanko/status/2062176811363205151
 
 
 
 ユリウスの心情が語られ、何も知らないスバルはたじたじになるだけで済みましたが、名前回を知る多くのものは苦しんだのではなかろーか。<br/>
-https://x.com/nezumiironyanko/status/2062177392744108369
+https://twitter.com/nezumiironyanko/status/2062177392744108369
 
 
 
 スバルが強気でユリウスと話せたのも、自分に味方してくれるシャウラに見ていてもらったからでした。なお、そのシャウラにもパトラッシュの悪口は許しません。<br/>
 シャマクへの信頼も取り戻す日がくるだろうか……。<br/>
-https://x.com/nezumiironyanko/status/2062177601024921972
+https://twitter.com/nezumiironyanko/status/2062177601024921972
 
 
 
 「お師様にとって都合のいい女！」とまで豪語するシャウラに、ナツキ・スバルへの信頼度がミニマム低いスバルは報いないのが耐えられなった模様。<br/>
 とはいえ、これが報いることになると思えるほど、元の自分への信頼度は高くない。<br/>
-https://x.com/nezumiironyanko/status/2062177977321099273
+https://twitter.com/nezumiironyanko/status/2062177977321099273
 
 
 
 「ママ」と「エルザ」が、メィリィの人生において大きな影響力を持った存在です。エルザはご存知の通りですが、ママに対してもろくな印象はないでしょうね。<br/>
-https://x.com/nezumiironyanko/status/2062178276928618777
+https://twitter.com/nezumiironyanko/status/2062178276928618777
 
 
 
 耳打ち前の舌なめずり、いっぱいリテイクしました！(笑)　俺、アフレコで見てました！(笑)<br/>
-https://x.com/nezumiironyanko/status/2062178374538395940
+https://twitter.com/nezumiironyanko/status/2062178374538395940
 
 
 
 一瞬の意識の途絶、次に目が覚めたとき、そこには首に手の跡がついたメィリィの姿が。<br/>
 必死に記憶に引っかかった蘇生措置をするスバルですが、その甲斐なく、さらに痛みを覚えた腕にあったのは――。<br/>
-https://x.com/nezumiironyanko/status/2062178632572047454
+https://twitter.com/nezumiironyanko/status/2062178632572047454
 
 
 
 69話にも相当相性がよかったように感じるＥＤですが、それ以上に今日の方が相性が良いと作者は思います。みんなはどう思うかな？　ぜひコメントで教えてください。<br/>
-https://x.com/nezumiironyanko/status/2062178943290232951
+https://twitter.com/nezumiironyanko/status/2062178943290232951
 
 
 
@@ -1730,23 +1730,199 @@ https://x.com/nezumiironyanko/status/2062178943290232951
 六章、始まってますね、色んな意味で！<br/>
 味わった重たい気持ちは、30分からのミニアニメで解消していく！　そのお約束を今日も守ろう！<br/>
 [SP](https://www.youtube.com/watch?v=QGL39Tk7ulA)<br/>
-https://x.com/nezumiironyanko/status/2062179544615043430
+https://twitter.com/nezumiironyanko/status/2062179544615043430
 
 
 
 じゃあ、今週もありがとうございました！<br/>
 また来週もよろしく！　状況はよくなるのか！　ならないのか！　ならないのか！　乞うご期待！<br/>
-https://x.com/nezumiironyanko/status/2062179739910222132
+https://twitter.com/nezumiironyanko/status/2062179739910222132
 
 
 
-[（转推CV）](https://x.com/taka8rie/status/2062178827611336948)<br/>
-[（转推特典）](https://x.com/Rezero_official/status/2062179497190007120)<br/>
-[（转推特典）](https://x.com/Rezero_official/status/2062179748961227106)<br/>
+[（转推CV）](https://twitter.com/taka8rie/status/2062178827611336948)<br/>
+[（转推特典）](https://twitter.com/Rezero_official/status/2062179497190007120)<br/>
+[（转推特典）](https://twitter.com/Rezero_official/status/2062179748961227106)<br/>
 
 
 
 [（零大科普）](https://www.bilibili.com/read/cv50037787)
+
+
+
+[TOP](#Content)
+
+---
+
+### E10
+
+https://www.bilibili.com/read/cv50388597
+
+はい！　本日もやってきました、水曜日！　その夜！　つまりリゼロの日です！　前回も、一難あってまた一難でしたが、こっから上向くことはあるのか！<br/>
+先週も波乱の幕閉じからの、今週も混乱の幕開け！　やっていきまっしょい！<br/>
+https://twitter.com/nezumiironyanko/status/2064708924386005232
+
+
+
+突然の意識の途絶から、目覚めたそこには変わり果てたメィリィ。そして、痛みのある腕には見知らぬ傷――うーん、絶対に自分では味わいたくない寝覚め。<br/>
+https://twitter.com/nezumiironyanko/status/2064709459281391755
+
+
+
+当然ながら、何が起きたのかわからないなりに何が起きたかを推測するスバル。結果、深まるのは腕に刻まれた文字、それが何者によるものなのか。知っているようで知らない、そんな相手に踏み込むことになります。<br/>
+https://twitter.com/nezumiironyanko/status/2064709659240591396
+
+
+
+混乱を抜け、最初にすることが問題隠しなのはよくない。とはいえ、俯瞰して見られる立場なら、今のスバルの行動のあちこちに「マズいミス」が散見されると思うので、それも楽しんでみてください。<br/>
+https://twitter.com/nezumiironyanko/status/2064710054046241138
+
+
+
+今まさに、エミリアの言葉に心を動かされかけたスバルでしたが、そこに舞い込んでくるのが、この瞬間に思いつく限り最悪の報せ。<br/>
+https://twitter.com/nezumiironyanko/status/2064710465612374438
+
+
+
+『死者の書』の仕組みを考えると、本の厚みがそれぞれ違っているのがなかなか味わい深いですね。メィリィの名前が書かれた本がどのぐらいの厚さだったかも含めて。<br/>
+https://twitter.com/nezumiironyanko/status/2064710745162719537
+
+
+
+チビッ子１号→ベアトリス。<br/>
+チビッ子２号→メィリィ。<br/>
+https://twitter.com/nezumiironyanko/status/2064710829128446191
+
+
+
+この主人公、ずっと眉間に皺寄ってて犯人みたいなツラ構えだな。犯人じゃないか？<br/>
+https://twitter.com/nezumiironyanko/status/2064711006417502560
+
+
+
+前回の『テュフォン』の本の次は、『メィリィ』の本の始まり始まり。<br/>
+これに限らずですが、『死者の書』の書き方は普段と違った書き方を意識しているので、原文を見る機会があれば注目してみてください。<br/>
+https://twitter.com/nezumiironyanko/status/2064711318373097836
+
+
+
+ぎ、ギルティラウ！　ギルティラウさんじゃないか！<br/>
+https://twitter.com/nezumiironyanko/status/2064711373293334671
+
+
+
+ぎ、ギルティラウさああああん！！！！<br/>
+https://twitter.com/nezumiironyanko/status/2064711426011484499
+
+
+
+祝！　1期～4期まで全出演！<br/>
+https://twitter.com/nezumiironyanko/status/2064711561357521353
+
+
+
+おや？　聞き覚えのあるいい声で醜い発言。<br/>
+https://twitter.com/nezumiironyanko/status/2064711741884510597
+
+
+
+メィリィもですが、出会った当初のエルザさんも少女と大人の間くらいからのスタートで、そういう姿を見るのも味わい深さがありますね。<br/>
+https://twitter.com/nezumiironyanko/status/2064712095833448899
+
+
+
+しかし小林裕介すげぇな……。<br/>
+https://twitter.com/nezumiironyanko/status/2064712441263800762
+
+
+
+仮の話ですが、たぶん、塔にいるメンバーの中で一番読むのに不適切な一冊。<br/>
+https://twitter.com/nezumiironyanko/status/2064712936271270302
+
+
+
+強烈な濃度で『誰かの人生』が叩き込まれるものなので、受け止める側の器が見合わないと、当然ながら頭の中がわやくちゃになります。<br/>
+『死者の書』のかなり強烈な副作用ですね。<br/>
+https://twitter.com/nezumiironyanko/status/2064713413381832928
+
+
+
+ここぞとばかりに悪い顔をしてくるイマジナリーメィリィパイセン。<br/>
+https://twitter.com/nezumiironyanko/status/2064713659100827723
+
+
+
+賢い（悲観的）チームは、塔の中を探しつつも、メィリィが塔の外に逃れようとして、そこで命を落とした可能性も視野に入れています。その場合、亡骸も見つからないだろうな、とも。<br/>
+ある程度、エミリアを納得させるために動いているところもありますね。<br/>
+https://twitter.com/nezumiironyanko/status/2064713971870085534
+
+
+
+意味深に寄り添ってくれるシャウラ。「ちゃーんとわかった」とは、いったい。<br/>
+https://twitter.com/nezumiironyanko/status/2064714048479117530
+
+
+
+緑部屋の精霊の回復効果があるのは、別にベッドの上じゃなきゃいけないわけではありませんが、スバルを見守るベアトリスの奥で、パトラッシュがベッドに頭だけ乗っけて眠っているのが可愛い。<br/>
+https://twitter.com/nezumiironyanko/status/2064714319754125614
+
+
+
+後ろめたいことがあると、相手の行動の一挙一動の全部が自分に迫っているように感じてしまいますね。――何故、そんなことを知っているか、か？　やれやれ、勘のいい読者は嫌いじゃないぜ。<br/>
+https://twitter.com/nezumiironyanko/status/2064714597471522824
+
+
+
+襟ドナの反対は、今日の行動をエミリアの納得のために時間を使ったことを手札にしていますね。<br/>
+https://twitter.com/nezumiironyanko/status/2064714902913388943
+
+
+
+一姫二太郎三太夫。何が生まれる想定なんだ？？<br/>
+https://twitter.com/nezumiironyanko/status/2064714991073407208
+
+
+
+馬鹿な、探偵役はこのナツキ・スバルではないのか――！！<br/>
+https://twitter.com/nezumiironyanko/status/2064715153271333193
+
+
+
+ラムの『視ていた』発言は、直前のパトラッシュの目を借りた『千里眼』のことですね。スバルが明らかに不審な行動をするのを目撃し、尾けてきました。<br/>
+探偵役だと思われた最初の視点キャラが噛ませになる、というのもある種のお約束――っ！<br/>
+https://twitter.com/nezumiironyanko/status/2064715519731831087
+
+
+
+今回、ＥＤの入り方が大変お気に入りですが、どうでしょうか。前にもＥＤの相性の話とかしましたが、今回のサブタイＩＮのところで不穏な前奏が入るのとか、めちゃめちゃ心が掻き乱されてよい。ディモールトベネ。<br/>
+https://twitter.com/nezumiironyanko/status/2064715820215960049
+
+
+
+サブタイの入り方、好きです！<br/>
+今までのリゼロで、サブタイ読み上げ系のパターンはなかった気がするので、"強さ"を感じました。まだまだ、新しい魅せ方があるという"強さ"を。<br/>
+https://twitter.com/nezumiironyanko/status/2064716088970223962
+
+
+
+さて！　今週も一難あってまた一難っていうか、閻魔の顔も三度じゃ足らぬというか、そんな感じでしたが、ありがとうございました！<br/>
+四期前半戦もあと1話！　マジで？　あと1話で何がどうなるの？　そんな疑問も尽きないままに、30分からはミニアニメで心を癒し、来週を満を持して待とう！<br/>
+[SP](https://www.youtube.com/watch?v=BKWvnhrjlt8)<br/>
+https://twitter.com/nezumiironyanko/status/2064717042360676364
+
+
+
+そう言えば、3期はイマジナリーエルザで、4期はイマジナリーメィリィ、か……。<br/>
+https://twitter.com/nezumiironyanko/status/2064717605039116516
+
+
+
+そう言えば1個補足しないとですが、メィリィが持っていたエルザぬいは、彼女にスバルが「何か作ってほしいものあるか？」と聞いたときにリクエストされたものです。スバル的にもファーストダイの相手だしで色々複雑でしたが、メィリィの希望に沿いました。たぶん、メィリィに何回かリテイクも出されている。
+https://twitter.com/nezumiironyanko/status/2064719108516819029
+
+
+
+[（零大科普）](https://www.bilibili.com/read/cv50350811)
 
 
 
