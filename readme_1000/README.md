@@ -968,3 +968,18 @@ Vincent Vollachia - December 23rd
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia #1068](https://twitter.com/rezero_ice/status/2062589201074254053)
+
+Reid Astrea's design features two interesting elements, involving the use of sanskrit characters.
+
+The first one is the character on his eyepatch, which is roughly pronounced like "tin". It comes from the translation of the Arabic "Tinnin", representing the constellation of Draco.
+
+The second is the one on his robe, which is pronounced like "kha". It represents the concept of the "sky" or a "void".
+
+【似乎没找到官方明证，等大佬确认】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
