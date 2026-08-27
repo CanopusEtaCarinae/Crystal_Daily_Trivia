@@ -1,7 +1,7 @@
 
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) &nbsp; [E08-2](#E08-2) &nbsp; [E09](#E09) &nbsp; [E10](#E10) &nbsp; [E11](#E11) &nbsp; [E12](#E12) &nbsp; [E13](#E13) <!--&nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08)-->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) &nbsp; [E08-2](#E08-2) &nbsp; [E09](#E09) &nbsp; [E10](#E10) &nbsp; [E11](#E11) &nbsp; [E12](#E12) &nbsp; [E13](#E13) &nbsp; [E14](#E14) <!--&nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08)-->
 
 ### E01
 
@@ -2303,175 +2303,175 @@ https://www.bilibili.com/read/cv52491778
 
 はい！　朝から夜へ！　そしてリゼロのお時間です！<br/>
 本日、4期後半戦の第二話！　前回、突き落とされ問題に一個の決着を見たスバルたちですが、ここから何がどうなるか！　こうご期待の上、今日もよろしく！<br/>
-https://x.com/nezumiironyanko/status/2090075722803204228
+https://twitter.com/nezumiironyanko/status/2090075722803204228
 
 
 
 始まりました！<br/>
 前回は、みんなでレイドの弱点を探そう――からです。<br/>
-https://x.com/nezumiironyanko/status/2090076359746052210
+https://twitter.com/nezumiironyanko/status/2090076359746052210
 
 
 
 『死者の書』は対象の死因が書いているわけで、それは言うなれば相手の攻略本と言えます。火に弱いとか水に弱いとか、ゲーム的な弱点はなかなかないかもですが、死因はあんまり克服できないでしょうからね。<br/>
-https://x.com/nezumiironyanko/status/2090076564088381938
+https://twitter.com/nezumiironyanko/status/2090076564088381938
 
 
 
 「ちゃん」には落ち込んだエミリアでしたが、「今日日聞かねぇな」にはパッと明るい顔。スバルの口癖を聞くたびに「もっともっと！」となっています。<br/>
-https://x.com/nezumiironyanko/status/2090076753335374053
+https://twitter.com/nezumiironyanko/status/2090076753335374053
 
 
 
 成立の経緯もありますが、長生きキャラが特にエミリア陣営は多い。ペトラの十三歳やガーフィールの十五歳がものすごく健全ですね。<br/>
 実はここ二人、二歳しか違わないんだぜ！<br/>
-https://x.com/nezumiironyanko/status/2090076928787292164
+https://twitter.com/nezumiironyanko/status/2090076928787292164
 
 
 
 ユリウスを呼び止めるのに、ラムにあとを任せるあたり、「誰が一番適切に判断できるか」をここまでの経験で判断したスバルです。<br/>
 戦闘力とかじゃなく、冷静な判断という意味ね。襟ドナでなくアナスタシアなら、また話は違うでしょうが。<br/>
-https://x.com/nezumiironyanko/status/2090077139005747325
+https://twitter.com/nezumiironyanko/status/2090077139005747325
 
 
 
 「それはそれ、これはこれ」は、サブタイの中では結構お気に入りのやつでしたが、前にも言った通り、ＡパートとＢパートだと、Ｂパートの方がサブタイに採用されやすい……痛しかゆし！<br/>
-https://x.com/nezumiironyanko/status/2090077349392069115
+https://twitter.com/nezumiironyanko/status/2090077349392069115
 
 
 
 記憶がないことを、ユリウスの負けたところを知らないという理屈に持ってくるところに、スバルの考え方の強さを感じられて、作者的には好きです。<br/>
 忘れて全部が悪い方向にはいかないんだぜ、と言いたい。<br/>
-https://x.com/nezumiironyanko/status/2090077587133649040
+https://twitter.com/nezumiironyanko/status/2090077587133649040
 
 
 
 
 貴重なユリウスさんのオウム返しだーっ！<br/>
-https://x.com/nezumiironyanko/status/2090077668859605092
+https://twitter.com/nezumiironyanko/status/2090077668859605092
 
 
 
 本を読んだ結果、悪いことが起きるとしたら、スバルが引き受けるのが、すでに喰らっている可能性からも、戦闘力的にも、スバルが一番マシ……！<br/>
-https://x.com/nezumiironyanko/status/2090078128618312113
+https://twitter.com/nezumiironyanko/status/2090078128618312113
 
 
 
 マント脱ぐと、オメエ、いよいよ肌色多すぎんな、オメエ。<br/>
-https://x.com/nezumiironyanko/status/2090078219055858121
+https://twitter.com/nezumiironyanko/status/2090078219055858121
 
 
 
 「先にご飯食べてていいよ」は、二章の頃にも「車に気を付けて、男に気を付けて」とエミリアを見送っていた経緯があるので、それのシリーズのイメージです。<br/>
 初期スバルに戻ってるから言うことですねえ。<br/>
-https://x.com/nezumiironyanko/status/2090078500237808112
+https://twitter.com/nezumiironyanko/status/2090078500237808112
 
 
 
 前に見た、テュフォンやメィリィの『死者の書』とはずいぶんと違った雰囲気ですが、この神聖さがレイドの記憶――とは、ちょっと違う印象だな？<br/>
-https://x.com/nezumiironyanko/status/2090078642634432930
+https://twitter.com/nezumiironyanko/status/2090078642634432930
 
 
 
 ちなみに、リゼロの六章の章タイトルが「記憶の回廊」でした。<br/>
-https://x.com/nezumiironyanko/status/2090078718740025476
+https://twitter.com/nezumiironyanko/status/2090078718740025476
 
 
 
 ルイの一人称は「わたしたち」と「あたしたち」です。ちなみにライとロイは「ぼくたち」「おれたち」を交互に繰り返すスタイルになっています。<br/>
 これは『暴食』の権能の影響の表現です。ベア子の「なのよ」「かしら」と同じ、文章表現ですね。<br/>
-https://x.com/nezumiironyanko/status/2090079121821110446
+https://twitter.com/nezumiironyanko/status/2090079121821110446
 
 
 
 言うまでもありませんが、弟も妹も生まれてはおりません。<br/>
-https://x.com/nezumiironyanko/status/2090079195728904379
+https://twitter.com/nezumiironyanko/status/2090079195728904379
 
 
 
 ルイが腕をガリガリやっていますが、これは彼女がどんな影響を受けた結果の癖なんでしょうね。<br/>
-https://x.com/nezumiironyanko/status/2090079366009217421
+https://twitter.com/nezumiironyanko/status/2090079366009217421
 
 
 
 貴重な、『死者の書』を読んでいる最中の姿ですね。実は作者もどうなってんのかなーって思ってました。こーなってんだろなーからの、こーなってたんだなー！です。<br/>
-https://x.com/nezumiironyanko/status/2090079695559938138
+https://twitter.com/nezumiironyanko/status/2090079695559938138
 
 
 
 シャウラが本気で本気で撃つ時のヘルズ・スナイプですが、これ、くるとき撃たれてたら百パーセント、塔まで辿り着けずに終わってましたね。<br/>
-https://x.com/nezumiironyanko/status/2090079860869984381
+https://twitter.com/nezumiironyanko/status/2090079860869984381
 
 
 
 スバルの記憶を消した犯人がわかると、昨日の、記憶が消える前のスバルの行動がおおよそわかるかと。<br/>
 つまるところ、昨日のスバルが気付いたことも、今回のスバルと同じだったわけですね。同じレイドの攻略法を思いついて、ここでボスと出くわしてしまった、と。<br/>
-https://x.com/nezumiironyanko/status/2090080313531928621
+https://twitter.com/nezumiironyanko/status/2090080313531928621
 
 
 
 めっちゃ嬲って煽ってくるルイ。<br/>
-https://x.com/nezumiironyanko/status/2090080502363615474
+https://twitter.com/nezumiironyanko/status/2090080502363615474
 
 
 
 ……妙だな、CMがこないぞ……？<br/>
-https://x.com/nezumiironyanko/status/2090080628855525766
+https://twitter.com/nezumiironyanko/status/2090080628855525766
 
 
 
 ここのルイの声の変化、すごいいい。いくない？　めっちゃいくないです？<br/>
-https://x.com/nezumiironyanko/status/2090080751912178144
+https://twitter.com/nezumiironyanko/status/2090080751912178144
 
 
 
 実際、記憶って難しいですね。<br/>
 ここのスバルは記憶喪失ですが、その記憶喪失になったあとの、短くとも濃密なスバルの時間はあるわけで、それが消えるとか消えないって話に、どう折り合いを付ければいいのか。なんてひどい話だ。<br/>
-https://x.com/nezumiironyanko/status/2090081227663638716
+https://twitter.com/nezumiironyanko/status/2090081227663638716
 
 
 
 しばらく黙りますね。<br/>
-https://x.com/nezumiironyanko/status/2090081498066305306
+https://twitter.com/nezumiironyanko/status/2090081498066305306
 
 
 
 ルイにそこにいる相手の姿も声も足音も聞こえなかったのは、そこに現れた『彼女』が、邪魔でいらないと手放されたものだからです。そうされた経緯は、またそのときに。<br/>
-https://x.com/nezumiironyanko/status/2090082318732218387
+https://twitter.com/nezumiironyanko/status/2090082318732218387
 
 
 
 今回のサブタイでもある『立ちなさい』は、六章を書く上でどうしても書きたかった部分で、たぶん、一番か二番に書きたかったところでした。リゼロを書き始める前に考えてた『俺を選べ』とかとはまた別の、新しく生えてきた書きたいポイントでしたね。<br/>
-https://x.com/nezumiironyanko/status/2090082729107042385
+https://twitter.com/nezumiironyanko/status/2090082729107042385
 
 
 
 『暴食』の大罪司教、『飽食』のルイ・アルネブのキャラ性は、『人生リセマラ』です。<br/>
-https://x.com/nezumiironyanko/status/2090083259141276038
+https://twitter.com/nezumiironyanko/status/2090083259141276038
 
 
 
 『記憶の回廊』でルイはある記憶を手放しています。そうした理由は、それがナツキ・スバルに手を出すことに対してものすごく強烈な抵抗感を抱かせたからです。<br/>
 誰かの記憶を喰らうということは、その誰かへの気持ちを引き継ぐことでもある。食べたものの栄養を選んで一部だけ取り込んだりできないでしょう。それと同じことだと思ってください。<br/>
-https://x.com/nezumiironyanko/status/2090083974718873708
+https://twitter.com/nezumiironyanko/status/2090083974718873708
 
 
 
 もう少し話したいので話しますが、ルイがスバルにあれこれ言っていたのは告白通り、「一度『暴食』で喰った相手をもう一度喰うには、しっかり前と後で違った存在だ」と区別できないといけないからです。<br/>
 一度正解したクイズのパネルは、もう一回は開けない――みたいなものです。パネルを開きたいなら、別のクイズになってないといけない。<br/>
 そうするために色々画策したり言葉を弄しましたが、言うなれば守護天使に力ずくで妨害されました。守護天使がそこにいた理由はルイの行動の結果なので、因果応報。<br/>
-https://x.com/nezumiironyanko/status/2090085225040924715
+https://twitter.com/nezumiironyanko/status/2090085225040924715
 
 
 
 ちなみに、なんでレイドの本を読んだはずなのに、ルイのいるわけわからんところに繋がっとんねんって問題に関してはちゃんと答えがあるんですが、まだ言うのが早いので、もっと先の話数で、忘れてなければ話します！<br/>
-https://x.com/nezumiironyanko/status/2090085960319135995
+https://twitter.com/nezumiironyanko/status/2090085960319135995
 
 
 
 そして本編のあとは、こちらのミニアニメを見るのもお忘れなく！　本編で愛が語られたなら、こちらも愛を語りましょう。――愛、素晴らしいですね？<br/>
-[（转推SP）](https://x.com/Rezero_official/status/2090084606796247500)<br/>
-https://x.com/nezumiironyanko/status/2090086673141092578
+[（转推SP）](https://twitter.com/Rezero_official/status/2090084606796247500)<br/>
+https://twitter.com/nezumiironyanko/status/2090086673141092578
 
 
 
@@ -2479,12 +2479,150 @@ https://x.com/nezumiironyanko/status/2090086673141092578
 そんな問題続きのプレアデス監視塔、この先もどうなる！　そして今回も、難しいお話を、可能な限り引っ張って引っ張って作ってくださった素晴らしさに感謝！<br/>
 <br/>
 こっから先も、フルスロットルで付き合ってください！　ってなわけで、また来週！<br/>
-https://x.com/nezumiironyanko/status/2090086906780598674
+https://twitter.com/nezumiironyanko/status/2090086906780598674
 
 
 
 [（零大科普1）](https://www.bilibili.com/read/cv52460822)<br/>
 [（零大科普2）](https://www.bilibili.com/read/cv52460848)
+
+
+
+[TOP](#Content)
+
+---
+
+### E14
+
+https://www.bilibili.com/read/cv52675707
+
+はい！　今週もやってきました水曜日！　リゼロのお時間！<br/>
+前回はレイドの『死者の書』に潜ったはずが、何故か知らない相手にお出迎えされ、知らない子からめっちゃ叱咤激励されて我を取り戻しました！　改めてスバルが忙しすぎる。<br/>
+今週はどうなる。よろしく！<br/>
+https://twitter.com/nezumiironyanko/status/2092612999735562557
+
+
+
+メィリィの認識でユリウスは「かっこいいお兄さん」で、スバルは「お兄さん」なんですねえ。<br/>
+https://twitter.com/nezumiironyanko/status/2092613292057608318
+
+
+
+現存する魔獣の大部分は、『暴食の魔女』ダフネが元を生み出したもので、特に強大だったのが『白鯨』『大兎』『黒蛇』です。魔獣たちは魔女の瘴気に惹き付けられる性質があるのでスバルがたびたび囮やっていますが、なら魔女教は？　大罪司教は？という疑問もあるでしょう。この辺り、魔女因子に適合してるしてないとかが関係しているのですが、ネタバレ的にここまでしか話せない内容だったのでここまでだった！<br/>
+https://twitter.com/nezumiironyanko/status/2092614051004375137
+
+
+
+仕込みをしてた子たちは、何のために仕込んでたのかは聞かない方がいいんでしょうねえ。<br/>
+https://twitter.com/nezumiironyanko/status/2092614386531938360
+
+
+
+「エミリア様が壁を壊して戻られてもいい頃だ」というユリウスの認識は、監視塔にくるまでの間の旅路で更新された認識ですね。<br/>
+「なるほど、エミリア様はずいぶんと強くなられたのだな……」と。まあ、三章以前からそのケはあったんですが。<br/>
+https://twitter.com/nezumiironyanko/status/2092614731307913634
+
+
+
+レムやユリウスのときは『暴食』の権能の効果が見えるまで時間がありましたが、間がないタイミングで消えた相手についての話し合いが起きると、こういう齟齬が発生しますね。<br/>
+https://twitter.com/nezumiironyanko/status/2092615064738308411
+
+
+
+ラムがエミリアのことで頭が痛くなるのはベアトリスの説明の通りですが、ユリウスや襟ドナたちに比べて、エミリアが心を占める部分が多い影響ですね。外から見るより、ラムはエミリアを大事に思っています。<br/>
+https://twitter.com/nezumiironyanko/status/2092615378568716298
+
+
+
+エミリアとユリウスの連携攻撃に対応するライの戦闘技術は飛び抜けたものです。が、微妙にエミリアとユリウスの相性が悪くて、連携がよくないのもあります。<br/>
+理論派のユリウスと、感覚派のエミリアは一緒に戦うとバランスが悪いんですね。エミリアは合わせられる相手がくっつくと強い。<br/>
+https://twitter.com/nezumiironyanko/status/2092615845218504983
+
+
+
+喪失編の最終話でも下りてきていたレイドですが、もちろん奪還編のこのタイミングでも下りてきています。どういうカラクリで二層の『試験』から下りてこられないはずの彼が下りてきたかは、種明かしをお待ちを。<br/>
+https://twitter.com/nezumiironyanko/status/2092616309280498073
+
+
+
+魔獣が押し寄せる。<br/>
+『暴食の魔女』の大罪司教がきてる。<br/>
+レイドが下りてきて暴れる。<br/>
+NEW！ でかいサソリがくる。<br/>
+https://twitter.com/nezumiironyanko/status/2092616604010066127
+
+
+
+魔獣が押し寄せる。<br/>
+『暴食の魔女』の大罪司教がきてる。<br/>
+レイドが下りてきて暴れる。<br/>
+でかいサソリがくる。<br/>
+NEW！　「愛してる」って言われる。<br/>
+https://twitter.com/nezumiironyanko/status/2092616843546734669
+
+
+
+誰にでも「愛してる」って言うスバルの軽口、この辺から傾向が強まっている気がする。<br/>
+https://twitter.com/nezumiironyanko/status/2092617476102365396
+
+
+
+「エミリア様が」とラムが言えたのは、シャウラ側に寄り道しなかった分、エミリアが『暴食』の被害に遭うのを避けられた結果です。時間短縮の成果ですね。<br/>
+https://twitter.com/nezumiironyanko/status/2092617887890739517
+
+
+
+今、画面の絵作りまで18話にめっちゃ寄せてたな……(笑)<br/>
+https://twitter.com/nezumiironyanko/status/2092618136340271387
+
+
+
+「顔はエミリア様の数少ない――」の台詞を受けると、ラムがいつもエミリアのこと「ビジュいいわね……」と思いながら見てるのかなって気持ちになりませんか？　じっと見られるエミリアが「？」と首を傾げる絵まで浮かんできますね。<br/>
+https://twitter.com/nezumiironyanko/status/2092618443392774512
+
+
+
+目で見るより、魂で感じた――の方が適切なスバルの判定です。<br/>
+https://twitter.com/nezumiironyanko/status/2092618807760281928
+
+
+
+「合わせるかしら！」「山勘でやってみる！」<br/>
+https://twitter.com/nezumiironyanko/status/2092618876211392786
+
+
+
+でもこれで『暴食』撃破！　ついに、長年の仇を討ち果たしました！　やったね！<br/>
+https://twitter.com/nezumiironyanko/status/2092619067446469027
+
+
+
+サブタイの「障害」がめっちゃカラフルでオシャレでしたね！？　二色まではあっても、あんな何色も入ったサブタイは初めてでは！？<br/>
+https://twitter.com/nezumiironyanko/status/2092619471630549111
+
+
+
+は、早くねえか？　もう30分？　スバルだけじゃなく、作者もバタバタしてるだけで過ぎたが？？<br/>
+https://twitter.com/nezumiironyanko/status/2092619802846392457
+
+
+
+はい！　今週も本編が終わったらミニアニメを見よう！<br/>
+前回に引き続き、フェルトサイドのお話です！　何やら懐かしい顔も出てくるかも！<br/>
+<br/>
+[【リゼロ】ミニアニメ第80話「金獅子と剣聖」│『Re:ゼロから始める休憩時間(ブレイクタイム)』4th season](https://www.youtube.com/watch?v=z8w18HxqoW8)<br/>
+https://twitter.com/nezumiironyanko/status/2092620789866754486
+
+
+
+ってわけで、今週も疾風の如く過ぎ去っていきましたが、お付き合いありがとうございました！<br/>
+何やら最後ユリウスが爆弾発言してましたが、じゃあ『暴食』は全滅ってことでいいですか？　どうでしょうかというところは、また来週のお楽しみ！<br/>
+それでは、お付き合いありがとう！　またー！<br/>
+https://twitter.com/nezumiironyanko/status/2092621519394611640
+
+
+
+[（零大科普）](https://www.bilibili.com/read/cv52674433)
 
 
 
