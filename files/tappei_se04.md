@@ -1,7 +1,7 @@
 
 ## Content
 
-[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) &nbsp; [E08-2](#E08-2) &nbsp; [E09](#E09) &nbsp; [E10](#E10) &nbsp; [E11](#E11) &nbsp; [E12](#E12) &nbsp; [E13](#E13) &nbsp; [E14](#E14) &nbsp; [E15](#E15) &nbsp; <!--[E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08)-->
+[E01](#E01) &nbsp; [E02](#E02) &nbsp; [E03](#E03) &nbsp; [E04](#E04) &nbsp; [E05](#E05) &nbsp; [E06](#E06) &nbsp; [E07](#E07) &nbsp; [E08](#E08) &nbsp; [E08-2](#E08-2) &nbsp; [E09](#E09) &nbsp; [E10](#E10) &nbsp; [E11](#E11) &nbsp; [E12](#E12) &nbsp; [E13](#E13) &nbsp; [E14](#E14) &nbsp; [E15](#E15) &nbsp; [E16](#E16) <!--&nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08) &nbsp; [E08](#E08)-->
 
 ### E01
 
@@ -2637,108 +2637,108 @@ https://www.bilibili.com/read/cv52810593
 はい！　今週もやってきましたリゼロタイムです！<br/>
 前回、とんでも事態に陥った塔の中、まさかの『暴食』との決着があったかと思いきや、ユリウスがいきなりなことを言い出して大混乱続行――というところから！<br/>
 本日もよろしくお願いしまーす！！<br/>
-https://x.com/nezumiironyanko/status/2095149692690825217
+https://twitter.com/nezumiironyanko/status/2095149692690825217
 
 
 
 冒頭にテロップが出てきたということはOPは……。<br/>
-https://x.com/nezumiironyanko/status/2095149823955787808
+https://twitter.com/nezumiironyanko/status/2095149823955787808
 
 
 
 前回のユリウスの発言から、レイド＝『暴食』という話になりましたが、起きた出来事は別物です。<br/>
 『暴食』はレイドを喰らい、しかし、食い尽くすことができずに逆に乗っ取られた――と思ってください。それが、本来なら上から下りてこられないはずのレイドが二層から出てこられた理由です。<br/>
-https://x.com/nezumiironyanko/status/2095150231956644237
+https://twitter.com/nezumiironyanko/status/2095150231956644237
 
 
 
 ちなみにレイドは受肉したので、塔内の一通りの心残りを片付けたら外に出ていくつもりです。<br/>
 何百年かぶりの外を満喫する気。ヤバい。<br/>
-https://x.com/nezumiironyanko/status/2095150459040440410
+https://twitter.com/nezumiironyanko/status/2095150459040440410
 
 
 
 行間で片付けられるベストメンバー……！<br/>
-https://x.com/nezumiironyanko/status/2095150694433272188
+https://twitter.com/nezumiironyanko/status/2095150694433272188
 
 
 
 時間切れとばかりに押し寄せる塔の崩壊と、『嫉妬の魔女』の言葉ですが、喪失編の最後にエミリアがバーンとやっていたように、条件を満たせば斬り払うことも可能な様子。レイドはともかく、エミリアはどうやって満たしたのか――は、いずれ。<br/>
-https://x.com/nezumiironyanko/status/2095151380906627103
+https://twitter.com/nezumiironyanko/status/2095151380906627103
 
 
 
 レイドの一刀で再び『死に戻り』したスバルですが、その表情と心構えには奇妙な落ち着きがあるようで。<br/>
 確かめにきたのは、今のスバルが必要としている最後のひと押し――そのために、シャウラのところへ。<br/>
-https://x.com/nezumiironyanko/status/2095151815146995744
+https://twitter.com/nezumiironyanko/status/2095151815146995744
 
 
 
 死んでくれるのか？<br/>
 死ぬッスよ。<br/>
-https://x.com/nezumiironyanko/status/2095151874702037311
+https://twitter.com/nezumiironyanko/status/2095151874702037311
 
 
 
 シャウラが過ごした四百年の日々の一部は、アニメ四期の円盤特典小説として書かせていただきました。<br/>
 シャウラらしく、あっけらかんと朗らかに過ごしている風に描いたものですが、そこからどんな印象を受けるかは皆さんにお任せしてます。<br/>
-https://x.com/nezumiironyanko/status/2095152260678660150
+https://twitter.com/nezumiironyanko/status/2095152260678660150
 
 
 
 五つ目のルールを隠したシャウラの真意は語られた通り、その裏にあるのは「条件が揃えば、お師様なら絶対に『試験』をクリアしちゃう」という信頼でした。だから隠さざるを得ない。<br/>
-https://x.com/nezumiironyanko/status/2095152880059838565
+https://twitter.com/nezumiironyanko/status/2095152880059838565
 
 
 
 「――五、『試験』の破壊を禁ぜず、ッス」<br/>
 <br/>
 これは「『試験』を壊すことを禁止しない」という意味です。<br/>
-https://x.com/nezumiironyanko/status/2095153205709799607
+https://twitter.com/nezumiironyanko/status/2095153205709799607
 
 
 
 『一途な星』は、六章のサブタイの中でもかなりお気に入りです。ちなみにシャウラもちゃんと星の名前です。<br/>
-https://x.com/nezumiironyanko/status/2095153521498964117
+https://twitter.com/nezumiironyanko/status/2095153521498964117
 
 
 
 わからなかったシャウラの真意がわかった今、スバルを迷わせるものはもうない。そういう意味で、準備が整った『カウントゼロ』です。<br/>
-https://x.com/nezumiironyanko/status/2095153815460962743
+https://twitter.com/nezumiironyanko/status/2095153815460962743
 
 
 
 『暴食』のロイ・アルファルドは、『悪食』と呼ばれるだけあって、ライよりも数で言えば圧倒的に人の『記憶』も『名前』も食べているのですが、それらの経験を加味しても、レイドの質量には耐えられませんでした。<br/>
-https://x.com/nezumiironyanko/status/2095154413451268198
+https://twitter.com/nezumiironyanko/status/2095154413451268198
 
 
 
 ギュンッてして、ドンッ！<br/>
-https://x.com/nezumiironyanko/status/2095154557362049181
+https://twitter.com/nezumiironyanko/status/2095154557362049181
 
 
 
 可能な限り、毎回違ったルートを辿って、起きている事態の把握と対処法の模索に力を割きますが、それでも毎回の悲劇は起こるわけで、心は削られていきます。<br/>
 削られない方法もありますが、それを選ぶと大体ＢＡＤルートにいく<br/>
-https://x.com/nezumiironyanko/status/2095155746325533165
+https://twitter.com/nezumiironyanko/status/2095155746325533165
 
 
 
 新たに芽生えた権能、仲間の位置を特定するそれは『怠惰』の権能である『インビジブル・プロヴィデンス』とは別、異なる魔女因子が発露させた力です。<br/>
 そしてそれが新たに感知した所縁を辿った先、そこにあった一冊の本は――。<br/>
-https://x.com/nezumiironyanko/status/2095156130960097696
+https://twitter.com/nezumiironyanko/status/2095156130960097696
 
 
 
 他の人に見つかる心配はしなくて大丈夫！<br/>
 異世界の人には漢字は読めないからね！　習ってないから！<br/>
-https://x.com/nezumiironyanko/status/2095156401782108198
+https://twitter.com/nezumiironyanko/status/2095156401782108198
 
 
 
 提供絵にも使われているスバルとシャウラのシーンですが、このときのシャウラが必死で耐えている感を、瞳の描き方で見せるの、魅せ方がわかりすぎていて行き届きすぎている……！<br/>
 これ、めっちゃよかったよな！<br/>
-https://x.com/nezumiironyanko/status/2095156752409149447
+https://twitter.com/nezumiironyanko/status/2095156752409149447
 
 
 
@@ -2746,18 +2746,129 @@ https://x.com/nezumiironyanko/status/2095156752409149447
 前回まではフェルト陣営を見せていましたが、今回はプリシラ陣営。プリステラ後の一幕になります。<br/>
 <br/>
 [【リゼロ】ミニアニメ第81話「妾バンザイ」](https://www.youtube.com/watch?v=iXKe8YlaxQ4)<br/>
-https://x.com/nezumiironyanko/status/2095157329188769922
+https://twitter.com/nezumiironyanko/status/2095157329188769922
 
 
 
 そんなわけで今週もありがとうございました！<br/>
 奪還編も早いもので今回で折り返し！　あと四話で決着へ……四話！？　四話で！？　いけんのか！？　スバルも「カウントゼロ」ってスタート地点っぽいこと言ってたが、いけんのか！？<br/>
 そんな疑念と共にまた来週！　本の中身はなんじゃろな！<br/>
-https://x.com/nezumiironyanko/status/2095157961987694723
+https://twitter.com/nezumiironyanko/status/2095157961987694723
 
 
 
 [（零大科普）](https://www.bilibili.com/read/cv52809867)
+
+
+
+[TOP](#Content)
+
+---
+
+### E16
+
+https://www.bilibili.com/read/cv52926009
+
+はい！　本日も水曜日！　すなわちリゼロの夜です！<br/>
+一周間の速さはもはや言及せずともいいとして、今日はとても大事な日！　もはや大事じゃない回の方が珍しいですが、大注目でよろしくお願いします！！<br/>
+https://twitter.com/nezumiironyanko/status/2097686558329692255
+
+
+
+前回、シャウラの真意を知り、その上で戦い続けることを誓ったスバルの十回以上の死。――その後、スバルが感知したのは、三層に存在する『菜月・昴』の名が記された『死者の書』で……というところからでした。<br/>
+懐かしい映像も流れましたね。<br/>
+https://twitter.com/nezumiironyanko/status/2097686964107694306
+
+
+
+懐かしい映像の続きですが、記念すべきファーストキル。<br/>
+https://twitter.com/nezumiironyanko/status/2097687345944551694
+
+
+
+仲間の位置を感知する権能の効果で、書庫にある『菜月・昴』の本の位置を特定しているんですね。厳密には「仲間」ではなく、仲間判定を辿っているイメージになりますが、「己が敵」とか言い出したら感知に引っかからないかもしれない。<br/>
+https://twitter.com/nezumiironyanko/status/2097688012775969225
+
+
+
+しかし、今聞き直しても序盤から死に方がうまい小林裕介。<br/>
+https://twitter.com/nezumiironyanko/status/2097688103704207437
+
+
+
+懐かしい顔ぶれのメンバー。ちなみにラチンスは、現在進行中の書籍10章ではメインメンバーの一人です。ここでスバル刺したときはそんなことになるとは作者すらも知る由もなく……。<br/>
+https://twitter.com/nezumiironyanko/status/2097688424459514091
+
+
+
+続くDIEジェスト……見入ってしまいますね。<br/>
+https://twitter.com/nezumiironyanko/status/2097689215178064293
+
+
+
+記憶のないスバルにとって、いまだに詳しい事情のわからない『ナツキ・スバル』は、特別な力のあるはずの身近な他人でした。この『死者の書』を読み続けることで、しかしだんだんと気付いていきます。『ナツキ・スバル』が特別ではないことに。<br/>
+https://twitter.com/nezumiironyanko/status/2097690006865523077
+
+
+
+「お前が俺に追いついた」＝記憶をなくす前のスバルが味わった経験を、今の『スバル』が『死者の書』を読み切ることで全部見たってことですね。文字通り、最初から塔まで追い切りました。<br/>
+https://twitter.com/nezumiironyanko/status/2097690568310845706
+
+
+
+ここのスバルと『スバル』のやり取り、見入る。聞き入る。<br/>
+https://twitter.com/nezumiironyanko/status/2097692336608391264
+
+
+
+ラストのスバルの台詞は書籍とは違うものになっておりますが、さすがにここで夏休みは意味がわからない人には意味がわからなすぎるのでね！<br/>
+https://twitter.com/nezumiironyanko/status/2097692597875785798
+
+
+
+さて、またまた登場のルイですが、彼女が何を味わったのか。『死に戻り』を欲しがっていた彼女は、ここにやってきたスバルの記憶を喰らうことで、記憶が空になったスバルに同一化していた――と思ってください。<br/>
+ルイは色々あって魂と魔女因子だけの存在なので、ＡＢに分かれて、『死に戻り』を手に入れるために暗躍していました。Ａがスバルを誘導して、スバルにスバルを否定させ、Ｂが自分を拒絶したスバルを改めて喰らって『死に戻り』を獲得しようとしていましたが、失敗しました。<br/>
+『死に戻り』には、ナツキ・スバル以外誰も耐えられないからです。<br/>
+https://twitter.com/nezumiironyanko/status/2097693568299335846
+
+
+
+大丈夫だよ――エミリアたん。<br/>
+https://twitter.com/nezumiironyanko/status/2097693739951292762
+
+
+
+最後のルイＡとルイＢの喰らい合いは、「『死に戻り』を体感したことで、二度と同じ思いを味わいたくなくて消えたがらないＡ」と、「『死に戻り』を得るために、自分を拒むＡを喰らおうとするＢ」という構図。Ａが勝てば『死に戻り』に怯えたルイが、Ｂが勝てばやっぱり『死に戻り』に怯えたＡと同一化したＢが残るので、『死に戻り』を体感して心を壊されたルイは再起不能です。そういう不毛な争いでした。<br/>
+https://twitter.com/nezumiironyanko/status/2097694435262050782
+
+
+
+今回の『ナツキ・スバル』ですが、『ゼロから』や『俺を選べ』と同じように、リゼロを書く上でやりたいなーと思っていた内容の1本です。六章で何をしたかったかと言えば、ナツキ・スバルにナツキ・スバルを見せたかった、というお話。
+演出も演技も、最高の1話でした。原作者狂喜乱舞。<br/>
+https://twitter.com/nezumiironyanko/status/2097694864746148272
+
+
+
+ラジオで高橋さんにもばらされたけど、ここでやるために最初から「エミリアたん」って呼ばせてたんやで。<br/>
+https://twitter.com/nezumiironyanko/status/2097695219701760099
+
+
+
+さて、そしてアニメが終わったらミニアニメ！<br/>
+今回は前回同様、プリシラ陣営のお話に相成ります！<br/>
+こちらもぜひともご覧あれ！　『死に戻り』が重要になった本編の裏側で、何故この回なのか、色々考えてみても面白いぞよ。<br/>
+[（转推SP）](https://twitter.com/Rezero_official/status/2097694264121557492)<br/>
+https://twitter.com/nezumiironyanko/status/2097696139772653912
+
+
+
+ちなみにスバルと『スバル』はあのやり取りなのに、ルイＡとルイＢはあの調子なので、同じようにもう一人の自分と話してるのになんて落差だ。<br/>
+https://twitter.com/nezumiironyanko/status/2097697239745675357
+
+
+
+
+[（零大科普）](https://www.bilibili.com/read/cv52925019)
 
 
 
