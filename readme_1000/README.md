@@ -983,3 +983,18 @@ The second is the one on his robe, which is pronounced like "kha". It represents
 [Return to top](#crystals-trivias---from-1001)
 
 ---
+
+#### [Re: Zero Trivia](https://twitter.com/rezero_ice/status/2101681341699850485)
+
+（标题直接没记数了）
+
+According to the author, if Alec Hoshin hadn't persuaded Reid Astrea to join him, during the days he was hunting and eating Dragons, the world might have been destroyed.
+
+Alec may be regarded as the world's MVP.
+
+【一时完全想不起具体出处了……等大佬】
+
+[Return to Content](#Content)<br/>
+[Return to top](#crystals-trivias---from-1001)
+
+---
