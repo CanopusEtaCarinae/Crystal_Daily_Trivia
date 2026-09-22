@@ -992,7 +992,7 @@ According to the author, if Alec Hoshin hadn't persuaded Reid Astrea to join him
 
 Alec may be regarded as the world's MVP.
 
-【一时完全想不起具体出处了……等大佬】
+https://x.com/nezumiironyanko/status/2100239270791524765 （83集实况解说）
 
 [Return to Content](#Content)<br/>
 [Return to top](#crystals-trivias---from-1001)
